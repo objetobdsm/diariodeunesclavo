@@ -1,0 +1,10 @@
+---
+layout: post
+title: "652 días de esclavitud, 11 de castidad"
+date: 2011-10-29 22:25:00 +0000
+permalink: /2011/10/652-dias-de-esclavitud-11-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">el día lo pasé prácticamente en casa. estuve trabajando en el blog y en varias cosas que tenía pendientes. reestructuré las normas de esclavitud y añadí las dos normas que mi Dueño dio ayer. </div><div style="text-align: justify;">a media tarde, en obediencia a las órdenes recibidas, este perro se rapó al 1. a partir de ahora se convertirá en una rutina cada 15 días. este perro llevará el pelo rapado como muestra de sumisión y esclavitud por deseo de su Dueño. tras suplicar su permiso quedé con unos conocidos para ir a una obra de teatro y tomar algo por ahí. siguiendo órdenes llevé botas. las uso frecuentemente cuando es posible, pero me causa una sensación extraña pensar que ya no usaré ningún otro tipo de calzado. este perro es consciente de que habrá ocasiones donde resulte extraño pero la obediencia está por encima de todo eso. lo interesante fue que encontré en el teatro a un grupo de tíos, uno de ellos con unas botas vaqueras marrones muy llamativas, sobre todo porque llevaba unos pantalones de pata estrecha y no dejaban ver todas las botas. el complemento era una chaqueta de cuero marrón. no pude evitar pensar que así debía parecer este perro a los demás. hubo un cruce de miradas, como de reconocimiento cuando vio las mias, pero inmediatamente aparté la vista y ma concentré en otra cosa. no debo recrearme en las botas de otros, tal y como ordena mi Amo. solo faltaría que ahora se pusieran de moda y todos en las palmas empezaran a usar botas. estaría bien pero este perro lo pasaría muy mal.</div>obediencia ciega para el esclavo, poder absoluto para el Amo

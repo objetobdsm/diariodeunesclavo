@@ -1,0 +1,11 @@
+---
+layout: post
+title: "disciplina"
+date: 2010-07-01 06:57:00 +0000
+permalink: /2010/07/disciplina.html
+tags:
+  - esclavitud
+  - disciplina
+---
+
+disciplina.<br />(Del lat. disciplīna).<br />1. f. Doctrina, instrucción de una persona, especialmente en lo moral.<br />2. f. Arte, facultad o ciencia.<br />3. f. Especialmente en la milicia y en los estados eclesiásticos secular y regular, observancia de las leyes y ordenamientos de la profesión o instituto.<br />4. f. Instrumento, hecho ordinariamente de cáñamo, con varios ramales, cuyos extremos o canelones son más gruesos, y que sirve para azotar.<br />5. f. Acción y efecto de disciplinar.<br /><br /><br /><br /><br />disciplinar.<br />(De disciplina).<br />1. tr. Instruir, enseñar a alguien su profesión, dándole lecciones.<br />2. tr. Azotar, dar disciplinazos por mortificación o por castigo.<br />3. tr. Imponer, hacer guardar la disciplina (observancia de las leyes).<br /><br />estas son definiciones de la real academia de la lengua sobre la palabra disciplina. a veces me ocurre eso, me viene a la mente una palabra y empiezo a indagar en ella. en este caso me fascinó la primera acepción de disciplina, que tiene un claro sentido pedagógico. tenía de la disciplina un sentido más de ser estricto, de cumplir normas, de obedecer, más de la acepción 3. sin embargo me gustan mucho las dos anteriores. mi AMO me disciplina, desde luego, no sólo porque establece unas leyes por las que regirme, sino porque me enseña e instruye, me lleva por el camino de la realización como esclavo. la semana pasada me escribió que iba a recorrer todas las etapas, pero cuando EL tirara de la correa. me pareció una imagen fascinante, fantástica, porque así me siento, con un collar y una correa que EL lleva y de la que tira. EL me disciplina.<br />¿el final del camino? El tiene otra frase que me acompaña siempre. suele decir que el último empujón para meterme en la celda definitiva me lo dará EL. eso significa que no dependerá de mi, que lo hará cuando EL quiera, desee, y considere que esté preparado. mientras tanto, recorro el camino disciplinadamente y dando gracias por su presencia, por haberle encontrado, pero sobre todo agradecido porque me ha aceptado como esclavo.

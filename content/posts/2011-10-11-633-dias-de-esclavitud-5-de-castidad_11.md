@@ -1,0 +1,10 @@
+---
+layout: post
+title: "633 días de esclavitud, 5 de castidad"
+date: 2011-10-11 22:30:00 +0000
+permalink: /2011/10/633-dias-de-esclavitud-5-de-castidad_11.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">hoy el sistema de comunicación de las blackberrys ha tenido un fallo global, una caída generalizada del servicio y mi Dueño y este perro, nos comunicamos básicamente así. cuando este perro se enteró de la situación se sintió un poco sólo. los mensajes, las solicitudes de permiso para hacer prácticamente todo, se realizaban a través de ese servicio, lo que hacía convertido al aparato en una especie de collar, de correa por el que mi Amo me tenía sujeto y controlado. sin embargo la experiencia acabó siendo positiva porque los "problemas de comunicación" no significaron en absoluto que el control y el poder de mi Dueño sobre este perro se redujeran en lo más mínimo. </div><div style="text-align: justify;">el día fue duro, muy duro en el trabajo, pero por fin terminó y por la tarde pude estar dedicando tiempo a mi vida: escribiendo, leyendo, poniendo cosas al día. a media tarde hablé por internet con mi Dueño y fue una de esas conversaciones enriquecedoras, donde dio apoyo a su perro y éste se sintió, de manera renovada, poseído y dominado. </div><div style="text-align: justify;">por la noche, obedeciendo sus órdenes, este perro se ordeñó, pero como en otras ocasiones, no fue algo que uno pudiera decir que lo disfrutó. fue más como un trámite. los últimos ordeños han sido más o menos así, meros trámites. el tema del placer ha trascendido lo puramente sexual en este perro. el placer es estar a los pies de mi Amo, sintiendo su cuero en la cara y las botas en la lengua; obedeciendo sus órdenes y haciendo su voluntad. ese es el único placer, la única satisfacción que este perro está sientiendo últimamente.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD fotos y cuero"
+date: 2010-12-16 07:06:00 +0000
+permalink: /2010/12/fdd-fotos-y-cuero.html
+tags:
+  - imagenes
+  - leather
+---
+
+<div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/70/ce/70ce8ca66082b2e951c21cd946a5c832b799fbd307a0e464d17916de3ca6dc9b.jpg" imageanchor="1"><img height="640" src="/uploads/fc/6b/fc6bd48667f1605747198f90d0a2486e9f45ff018430ef4a1a85bfbcb6abea73.jpg" width="480" border="0" /></a></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><br /></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify">de nuevo un encuentro de los que se celebran por ahí, y en medio, un fotógrafo que es fotografiado. por supuesto lo que ha llamado la atención a este perro no es la cámara, sino el cuero que lleva, incluído los guantes. no va este perro a repetir lo que todos saben que suscita tanto cuero, brillante, duro, protector... la reflexión de este esclavo va hoy por la imagen en sí. cuando comenzó el diario su intención era sobre todo escribir. nunca ha sido bueno dibujando, y tampoco ha tenido las habilidades y los conocimientos para hacer fotografías, aunque esto puede cambiar. la única habilidad para crear mundos alternativos y para recrear fantasías era la escritura. originariamente fue, por tanto, un blog de palabras más que de imágenes. ya habían, y hay muchos blogs de ese tipo, algunos incluso sólo con imágenes. y es cierto, como ha dicho este perro en otras ocasiones, que vivimos en un mundo más visual que lector. sin embargo este esclavo se dio cuenta de que no eran excluyentes. así nacieron las fotos del día (FdD), como esta.</div><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify">no hay duda de que sería un placer para este perro ver las fotografías que ha hecho este leathermen, pero también es verdad que sabe que su Amo desea que desarrolle su capacidad intelectual, especialmente la escritura. y sus deseos son órdenes que se cumplen sin rechistar. </div>

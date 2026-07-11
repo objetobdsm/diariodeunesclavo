@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1643 de esclavitud, 91 de castidad"
+date: 2014-07-15 22:09:00 +0000
+permalink: /2014/07/dia-1643-de-esclavitud-91-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align:justify;"><span style="line-height:1.5em;">ser un esclavo enjaulado, en sentido de jaula de castidad, tiene una carga peculiar. de hecho has dejado de ser "persona", o al menos sujeto de derechos. eres un objeto humano y eso se traduce en que has perdido el derecho a usar tu cuerpo. ya no es tuyo. en el caso del perro, el Dueño ha establecido que no tendrá "más sexo"; entendido éste como una actividad satisfactoria para su disfrute. el perro será ordeñado y/o usado, pero ya no tendrá sexo. si en algún momento el Dueño ordena que el perro se corra con un orgasmo, será eso, una orden y, por tanto, sale de la categoría de "sexo" como disfrute del propio cuerpo para el placer.</span></div><br/><div style="text-align:justify;">lo irónico es que el perro ha llegado a un punto, ya compartido en otros lugares de este blog, en el que tener un orgasmo le crea "culpabilidad" o al menos le hace sentir mal. la mayoría vería el orgasmo como un premio, pero el perro lo ve como un castigo, como si hubiera fallado al Dueño en algo.</div><br/><div style="text-align:justify;">hoy el perro llamó al Dueño para suplicar su permiso para comprar un coche. dicho así parece extraño pero el perro lleva mucho tiempo ya con el mismo vehículo y le llegó a las manos una oferta muy buena. le explicó al Dueño las razones y Éste aceptó, dando permiso al perro. es cierto que el Dueño nieva pocas cosas al perro, pero también es cierto que el perro no molesta al Dueño con cosas superfluas, caprichos o cosas innecesarias. si suplica permiso para algo, es justificado y siempre tiene que ir la súplica acompañada de las correspondientes razones. lo importante no es tanto qué diga si, cuanto que si dice no, el perro obedecería. ahí esta la clave de todo esto, en la obediencia.</div><br/><div style="text-align:justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1835 de esclavitud, 282 de castidad"
+date: 2015-01-22 22:19:00 +0000
+permalink: /2015/01/dia-1835-de-esclavitud-282-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el perro está escribiendo el blog que le hubiera gustado leer. eso significa que no se limita a lo puramente físico o sexual. la esclavitud y la sumisión son, para el perro, un proceso psicológico de transformación interior, que se va realizando poco a poco. para algunos se trata sencillamente de echar un polvo, pero para los Amos y esclavos naturales esto va de intercambio de poder y de romper la voluntad del esclavo de forma que el Dueño sea el Amo absoluto.<br/>la base de todo es que la igualdad es válido para algunos perros no para otros, que en el orden natural de cosas hay una jerarquía, un orden desigual, con unos arriba y otros abajo. el entrenamiento del esclavo va encaminado a asegurar este desequilibrio y hacerlo parte fundamental de su vida, abandonando todas las ideas preconcebidas sobre la libertad, la igualdad y, en definitiva, sobre el mundo. el objetivo final es que el esclavo ya solo sea a través de los ojos del Amo, perciba la realidad a través de su Dueño y que todo pase por El.<br/>como hemos dicho en otras ocasiones, esto exige una gran responsabilidad por parte del Dueño. asumir la vida de una persona no es algo que se deba tomar a la ligera.<br/>hoy, por ejemplo, el perro se levantó muy caliente, como hacía tiempo no se sentía, así que la primera cosa que hizo fue mandarle un mensaje al Dueño diciéndoselo y ofeciéndole la castidad del día de hoy. el Dueño devolvió el mensaje aceptando el ofrecimiento. el perro pasó el resto del día igual, excitado, pero con la jaula puesto para evitar tentaciones.<br/>el perro fue a la facultad por la tarde porque tenía una reunión y antes, trabajo en equipo. la tarde pasó muy rápido y fue muy productiva. el perro llegó a casa cansado pero con menos calentura que por la mañana.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

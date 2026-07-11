@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2666 de esclavitud, 638 de castidad"
+date: 2017-05-03 22:42:00 +0000
+permalink: /2017/05/dia-2666-de-esclavitud-638-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el condicionamiento existe, 402 lo ha experimentado y lo experimenta cada día porque es lo que ha hecho el Dueño con su mente. de ser un masturbador compulsivo sin control, ahora este objeto siente rechazo cuando ve su pene libre sin la jaula. a veces, como mal menor, tiene que quitársela durante unos minutos por cuestiones de higiene. tiene que lavarse y lavarla a riesgo de ir por ahí oliendo mal o coger una infección. cualquiera podría pensar que es una oportunidad para masturbarse o para faltar a las normas del Dueño. pero entonces ¿para qué todo esto? ¿qué sentido tendría? 402 sabe que en ese caso no podría ocultarlo mucho tiempo, de hecho cree que el Dueño lo sabría casi de inmediato. pero es que aún así este inferior no quiere, o no puede hacerlo. es incapaz de tocarse por la repulsa que le produce. psicológicamente es como si eso no estuviera ahí. ya no es una experiencia gratificante.<br/>cuando el Dueño puso la jaula en su objeto lo "condenó" a vivir de una manera determinada. ya no puede orinar de pie, ya no puede dejar de afeitarse los genitales o ponerse crema hidratante cuando lo hace para evitar raspaduras o heridas. cuando termina de orinar tiene que secarse lo mejor posible y sentarse incluso en los sitios públicos. en cuanto al sexo no sólo está eliminada la posibilidad de ser "activo"; una contradicción para este objeto. tampoco es posible ni siquiera una mamada. ¿quién mamaría una polla enjaulada? sería como mamar un dildo de plástico. en el sexo sólo queda el ano, que es humillante y que tampoco puede usar, porque no es sólo que esté enjaulado, es que está enjaulado porque es un objeto. no tiene sexo, no tiene orgasmos, ni derechos ni posibilidad de tenerlos. 402 ya no tiene sexualidad.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

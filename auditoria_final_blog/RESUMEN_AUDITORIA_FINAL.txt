@@ -1,0 +1,32 @@
+AUDITORÍA FINAL BLOG MIGRADO
+========================================================================
+ROOT: /home/gustavo/Escritorio/Descargas/blogger2static/migration_blog
+
+CONTEOS
+------------------------------------------------------------------------
+Markdown posts analizados:           12837
+HTML públicos analizados:            12838
+Uploads analizados:                  12202
+
+URLs externas en content/:           1532
+URLs Blogger/Google en content/:     35
+Posts sin imágenes:                  12450
+Imágenes locales rotas en MD:        0
+MD sin HTML generado:                0
+
+URLs externas en public/:            2899
+URLs Blogger/Google en public/:      58
+HTML públicos sin MD origen:         1
+Uploads huérfanos:                   260
+
+FICHEROS GENERADOS
+------------------------------------------------------------------------
+01_external_urls_in_content.csv
+02_blogger_urls_in_content.csv
+03_posts_without_images.csv
+04_broken_local_images_in_md.csv
+05_md_without_public_html.csv
+06_external_urls_in_public.csv
+07_blogger_urls_in_public.csv
+08_public_without_md.csv
+09_uploads_orphans.csv

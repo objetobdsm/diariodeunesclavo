@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1266 de esclavitud."
+date: 2013-07-04 21:46:00 +0000
+permalink: /2013/07/dia-1266-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">99 días de castidad, 99 desde el último ordeño.</div><div style="text-align: justify;">propiamente el perro comienza sus vacaciones en la no-vida hoy. y justamente hoy ha pasado algo curioso, una nueva lección del Dueño. el perro estaba en la disyuntiva de tener que esperar en un sitio a que se resolviera una situación de la no-vida o esperar en un lugar más agradable, aprovechando el tiempo trabajando para el blog. el esclavo fue a este segundo lugar y se lo comunicó al Dueño, diciéndole que, ante la disyuntiva, había "optado" por la segunda. el Dueño contestó:</div><div style="text-align: justify;">"Muy bien. Pero no uses la palabra optar. Cuida el lenguaje".</div><div style="text-align: justify;">el perro quedó un poco impactado, sobre todo por lo delicado y extremadamente profundo que puede ser algo tan aparentemente simple. el Dueño siempre ha querido que el perro cuide el lenguaje, de hecho es una de las normas que el Dueño ha impuesto a su perro; pero el perro siempre se lo tomó como ser amable, no grosero. con esta respuesta el Dueño establece un camino ¿nuevo?, no sería capaz de decirlo. hay palabras, verbos, que no se le están permitidas a un perro, porque demuestran algo que no tiene. "libertad, poder, elegir, decidir, optar".... son palabras que debería eliminarse paulatinamente del vocabulario de un perro esclavo. en su boca son antinaturales, de hecho cuando leí la respuesta del Dueño comprendí lo incómodo que había sido para este perro usarla. </div><div style="text-align: justify;">además el nuevo camino de la objetificación comenzado así lo exige. el perro se va dando cuenta de lo vacío de la mayoría de las conversaciones y de cómo y cuánto se malgasta hablando tonterías. la vida ideal de un perro es en silencio, o sólo diciendo "si, Dueño". todo lo que salga de ahí es algo sobre lo que trabajar para erradicarlo.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

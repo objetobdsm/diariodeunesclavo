@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5395 de esclavitud, castrado permanentemente"
+date: 2024-10-26 22:11:00 +0000
+permalink: /2024/10/dia-5395-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> todo el día encerrado en casa sin salir y el objeto no entiende como alguien no puede gustarle eso y esté constantemente buscando relaciones sociales y cosas que hacer fuera de casa. la idea de vivir permanentemente encerrado es cada vez más fuerte, más intensa. no tiene el objeto necesidad de nadie salvo de mi Señor. sin Él nada tendría sentido pero con Él todo lo tiene, hasta la cosa más ínfima. hoy el objeto se ha despertado con la misma condición que ayer: existiendo profundamente y adorando a mi Señor, que por cierto ha tenido un día terriblemente social y no ha estado pendiente de su objeto, como debe ser. los inferiores no existimos para ser el centro de atención de los Superiores, sino para hacer su vida más fácil y placentera. el objeto sabe que su papel es como el de las botas de mi Señor: estar almacenadas hasta que desee usarlas para su gusto y placer. la paciencia y la espera son partes inseparables de la existencia de un objeto.</p><p style="text-align: justify;">el objeto está disfrutando de las conversaciones que se están produciendo en el grupo. es muy interesante ver las distintas perspectivas, y los distintos puntos de vista, pero sobre todo el respeto con el que cada uno aporta. es lo que más ha llamado la atención al objeto. acostumbrado como estamos al griterío y a la llamada de atención gratuita, a bien quien dice la mayor burrada y quien le falta el respeto al resto, ver una discusión civilizada sobre la esclavitud y la sumisión anima el alma del objeto. gracias infinitas a todos los que están participando. es un ejemplo de como podemos ser mejores que los normales.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

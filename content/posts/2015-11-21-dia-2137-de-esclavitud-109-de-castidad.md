@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2137 de esclavitud, 109 de castidad"
+date: 2015-11-21 05:22:00 +0000
+permalink: /2015/11/dia-2137-de-esclavitud-109-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">al perro se le ha ocurrido hoy que hay una forma de vivir la esclavitud de una forma "latente", sin grandes cosas, pero de manera efectiva. la esclavitud no va tanto, que si, de vestir de cuero o latex permanentemente cuanto de obedecer, de servir y cumplir las órdenes del Amo. para un esclavo que está buscando vivir este tipo de vida, pero por las circunstancias no puede, la mejor forma es volverse alguien obediente. la vida está llena en todos los ambientes de espacios y ocasiones donde se tienen que hacer cosas, pero nadie se ofrece para hacerlas. un esclavo natural "encubierto" debería hacerlas. a la vista de los demás puede parecer alguien disponible, amable incluso, pero en su interior sabe que obedece no para agradar a todos los demás, sino porque es su naturaleza obedecer y servir, y lo está haciendo como entrenamiento para cuando el Amo aparezca.<br/>puede darse el caso de que los demás empiecen a considerarle alguien sumiso. ¿y? ¿acaso no lo es? en esto también existe un límite, aquel en el que hacer esos "pequeños favores" sea contraproducente para la vida del propio esclavo dentro de unos límites aceptables, por ejemplo que por hacer eso no pueda hacer su trabajo y corra el riesgo de ser despedido. aparte de eso, ¿por qué no acercarle café a los compañeros, o hacer las fotocopias que se necesitan, o llevar a alguien que vive lejos y se le ha estropeado el coche a casa? no son cosas espectaculares porque no te arrodillas ante ningún Amo de cuero, pero si te sientes algo perdido e incómodo con tu entorno, estas pequeñas cosas empezarán a reconciliarte con tu naturaleza y te estarán entrenando para tu futura vida de esclavitud.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

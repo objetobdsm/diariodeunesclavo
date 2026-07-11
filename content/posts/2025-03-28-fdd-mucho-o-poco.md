@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD mucho o poco"
+date: 2025-03-28 02:56:00 +0000
+permalink: /2025/03/fdd-mucho-o-poco.html
+tags:
+  - FdD
+  - leather
+---
+
+<p> </p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/6d/f6/6df6a7ad31830aa69d48ad1b3a11b53baea938fa3180276b11cb6ab97b295b15.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="883" data-original-width="640" height="640" src="/uploads/6d/12/6d12145b7ea11aec8d4810c2764f9a0aa8a0bdbaeadb19bd9b00cf93b2f0b0fe.jpg" width="464" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: justify;">hay una especie de contradicción entre lo austero que debe ser un esclavo y sumiso, por definición; y el hecho de que los fetichistas del cuero y el latex nunca tienen suficiente. la adquisición de este tipo de materiales no se guía por la necesidad de estar vestido, sino por el deseo de hacerlo de una forma que excite su imaginación y su cuerpo. el objeto ha pensado en muchas ocasiones qué necesitaría una vez encerrado. su lista es corta: los dos pares de botas sendra que tiene, un par negro y un par marrón, un pantalón de cuero largo, tal vez otro corto para el verano y camisetas negras lisas. una chaqueta de cuero negra, ropa interior y poco más. ¿limitado? en absoluto. un objeto no necesita más, porque en su proceso, el objeto se ha dado cuenta que no tiene por qué tener un armario completo y repleto de prendas de cuero, que eso sí es derecho de los Dominantes, Superiores y Amo, pero no de esto. de hecho le parece que la ropa que tiene es excesiva y ya lleva dos años en que no compra ni un pantalón vaquero y solo se agencia unas camisas lisas que usa una y otra vez. nadie le ha dicho que vista mal, ni bien tampoco, pero el objeto está fuera de las modas, del consumo desenfrenado de ropa y de acumular cosas que no necesita. tal vez por eso se ha fijado tanto últimamente en el minimalismo, porque al final consiste en tener una especie de "uniforme", un estilo en el que te sientas cómodo y que agrade a tu Amo, en cuatro cosas que te definan y que te ayuden a presentarte ante los demás.</div><br /><p></p>

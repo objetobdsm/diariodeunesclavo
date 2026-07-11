@@ -1,0 +1,10 @@
+---
+layout: post
+title: "en la moto de mi AMO XL"
+date: 2010-02-03 09:12:00 +0000
+permalink: /2010/02/en-la-moto-de-mi-amo-xl.html
+tags:
+  - ficción propia
+---
+
+<div style="text-align: justify;">el prison era un local estricto. no permitían entrar si no era con código de vestimenta muy serio. sólo se podía acceder con botas y cuero, goma, latex o ropa militar. no conozco a nadie porque sólo veo las botas de los que están en el bar. a veces tengo que hacer un esfuerzo para no levantar la vista. oía a mi AMO manteniendo una conversación pero no prestaba atención, no era de mi incumbencia. sólo tenía que estar allí arrodillado, esperando. además en cuanto me relajaba el plug volvía a hacerse presente y evitaba que pensara en otra cosa. de pronto aparecen unas botas delante mía. son estilo engineer y altas, muy altas, llegan hasta las rodillas de un tío con pinta de Amo, completamente vestido de cuero. se queda allí unos segundos. levanto la vista y me encuentro con sus ojos fríos, inmutables. lentamente vuelvo la cabeza para mirar a mi AMO. todos en la mesa están en silencio observando. dijo mi vista en EL y espero. los segundos pasan y entonces, asiente ligeramente con la cabeza. como si hubiera activado un resorte, me lancé sobre las botas del recién llegado y comencé a lamérselas, sacando completamente la lengua y recorriéndolas de la punta hasta la parte superior. no pensaba en nada, sólo limpiaba. de pronto empezó a caerme un líquido caliente sobre la cabeza. comprendí inmediatamente que me estaban orinando. de pronto me encontré no sólo lamiendo las botas sino tragando parte de la orina, pero seguí lamiendo. al pasar un rato la bota estaba completamente brillante. el chorro había cesado pero las gotas aún caían por mi cara y mi pecho. entonces levantó la bota e hizo que levantara la cabeza. por el rabillo del ojo vi como daba un billete de 50 euros a mi AMO, que lo cogió sonriendo.</div>

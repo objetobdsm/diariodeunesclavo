@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2478 de esclavitud, 442 de castidad"
+date: 2016-10-20 22:13:00 +0000
+permalink: /2016/10/dia-2478-de-esclavitud-442-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el Dueño ordenó a 402 que se gastara lo que le pagaron por la conferencia que dio el sábado pasado en él mismo, en algo que gustara al objeto. 402 ha obedecido la orden hoy comprando una serie de libros en la libreria canaima. realmente una pequeña parte ya ha sido destinada a una ofrenda al Dueño por su cumpleaños pero que no se hará efectivo hasta mediados del mes que viene.<br/>el tema del dinero siempre es delicado en una relación de Dominación/sumisión, en cualquier relación de hecho; incluso y especialmente en las de amistad, por ejemplo. no hay forma más rápida de perder a un amigo que prestarle o pedirle prestado dinero.<br/>entre un esclavo y un Amo la cosa esa clara. si el esclavo es una propiedad del Amo ¿a quién pertenecen las "propiedades" del esclavo? ni se molesta 402 en contestar.<br/>pero esto también hay que negociarlo, porque no sería la primera vez que un Amo lleva a un esclavo a la ruina y luego lo libera, dejándolo indefenso. por supuesto, 402 catalogaría a ese de un mal Amo, pero haberlos, haylos.<br/>en el caso concreto de este objeto la cosa está clara . 402 administra el dinero, en sentido de pagar las facturas, pero debe suplicar permiso al Dueño para comprar todo aquello que no sea comida. y aquí no impera la ley del "silencio administrativo", que consiste en que si el objeto suplica algo "urgente" y el Dueño no puede contestar, se da por concedido. en el caso del dinero hay que tener el permiso explícito del Dueño.<br/>402 por ejemplo, tuvo que tener permiso del Dueño para comenzar estar últimas obras. eran necesarias pero sin ese permiso no hubiera podido hacerlas. también es verdad que se parte del principio de que 402 es bastante juicioso en ese sentido. si no lo fuese, sería una parte muy importante del entrenamiento y el Dueño tendría que dedicar al tema muchos más esfuerzos de los que dedica actualmente.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

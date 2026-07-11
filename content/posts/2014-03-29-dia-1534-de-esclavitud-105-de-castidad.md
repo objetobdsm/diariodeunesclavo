@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1534 de esclavitud, 105 de castidad"
+date: 2014-03-29 22:27:00 +0000
+permalink: /2014/03/dia-1534-de-esclavitud-105-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hoy el perro se ha despertado con una tremenda erección, un recuerdo lejano de cuando aún era humano. no pudo evitar tener una sensación de culpabilidad por eso. es curioso como avanza y profundiza el entrenamiento. en otras circunstancias no habría sentido nada, al contrario, el perro se habría hecho una paja para comenzar el día. ahora, sin embargo, un cierto sentimiento de vergüenza se asentó en el perro.<br/>el Dueño está pasando una mala racha y eso se refleja en el perro. desde hace tiempo existe un vínculo entre ambos de forma que hay un trasvase de sentimientos y emociones. es una relación, un intercambio de información que trasciende la distancia.<br/>a media tarde el eprro se sentía nervioso y algo ansioso así que suplicó al Dueño que le permitiera ordeñarse. eso fue otro signo de que, anímicamente, la cosa va mejorando. realmente lo primero que suplicó fue usar el butt-plug. cuando lo hace la ansiedad se reduce. el Dueño accedió a ambas cosas.<br/>el perro le propuso al Dueño una prueba. quería probar si podría sacarse la leche con la jaula puesta. primero el perro se puso el butt plug. siempre le resulta extraño esa mezcla de placer y dolor que acompaña la dilatación del esfinter; y sobre todo al final, cuando por fin se ajusta. esa sensación cuando el esfinter se cierra alrededor de la parte más fina del butt es increíble.<br/>una vez dentro intentó sacarse la leche pero le fue imposible. eran demasiadas sensaciones. al final el perro se scaó la leche sin la jaula pero con el butt plug, y sin orgasmo por supuesto. el perro apenas recuerda lo que es tener uno. tampoco tiene derecho a tenerlo. un perro esclavo no tiene derecho al placer, si lo siente es solo porque el Dueño se lo permite.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

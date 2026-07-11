@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1542 de esclavitud, 113 de castidad"
+date: 2014-04-06 22:27:00 +0000
+permalink: /2014/04/dia-1542-de-esclavitud-113-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">los perros no somos perfectos. si lo fuéramos no necesitaríamos entrenamiento, ni seríamos castigados; pero de hecho lo necesitamos y lo somos. hoy, si hubiera dado el Gran Salto, posiblemente necesitaría las dos cosas porque el perro se ha limitado a estar tirado prácticamente todo el día. algunos lo llamarían descansar, y realmente el perro estaba cansado y necesitaba und ía de asueto, pero no puede evitar sentir la culpabilidad de la inactividad. no sabe si esto es por influencia de la mentalidad capitalista que obliga a todos a estar ocupados permanentemente o fruto de su naturaleza sumisa que le obliga a estar siempre buscando o haciendo algo. ¿tenía días de descanso los esclavos de la antigüedad? el perro no lo sabe pero sería interesante saberlo. en cualquier caso el perro sí que sabe que el Dueño quiere de él que saque y produzca ideas, trabajo intelectual, que escriba y lea. para ambas cosas es necesario no estar inserto ni involucrado en actividades. la contemplación es la base de la creación. tampoco sabe el perro si piensa y escribe esto como una forma de salir airoso de un día que parece perdido. en cualquier caso ahí está. lo bueno de ser esclavo es que, llegado a un punto como el que está, ya las cosas no dependen tanto de él como del Dueño.<br/>hoy el perro se ha rasurado los genitales. no hace una semana que lo había hecho pero es la única forma de poder llevar la jaula sin tirones ni pellizcos. siempre se siente el perro muy humillado cuando lo hace. forma parte de su vida como esclavo y, conociendo al Dueño, eso significa que tendrá que hacerlo lo que le queda de vida.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

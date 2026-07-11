@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5439 de esclavitud, castrado permanentemente"
+date: 2024-12-09 23:17:00 +0000
+permalink: /2024/12/dia-5439-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el objeto ha ido a trabajar y ha estado prácticamente toda la mañana solo, lo cual ha agradecido sinceramente. no es que tenga nada con sus nuevos compañeros de equipo sino que, debido a su naturaleza de objeto, prefiere estar en silencio, trabajando. se concentra más y sobre todo socializar muy poco. esta es la gran cuestión, la socialización.</p><p style="text-align: justify;">por la tarde no fue así. el objeto tuvo que ir a un encuentro familiar y puede afirmar, sin lugar a dudas, que  le hizo daño y afectó a su existencia. ya no es que le molestara o incomodara, es que salió de allí estando descentrado, habiendo perdido el norte. el objeto siempre ha tenido una relación problemática con su familia pero esto se ha agudizado últimamente . el objeto cree que en parte es porque los vínculos se han reducido, paralelamente al hecho de que el vínculo con mi Señor se ha intensificado. uno crece y el otro se reduce. es una ley universal, todo debe tener un equilibiro. y entonces nos encontramos con una circunstancias que les ocurre a todas las persona que tienen una sexualidad no normativa: a veces hay que elegir entre las amistades y las familias, y aquello que sientes y que te da la paz y la felicidad, en este caso la esclavitud. mi Señor lo tiene claro. Él es lo único importante, y por tanto el objeto lo tiene igual de claro. esto existe solo por y para Él y por eso todo debe estar bajo sus botas. nada ni nadie puede ni debe hacerle sobra. pertenecerle signfica eso, que todo, absolutamente todo, va después de mi Señor.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

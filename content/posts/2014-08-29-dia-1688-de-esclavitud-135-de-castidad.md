@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1688 de esclavitud, 135 de castidad"
+date: 2014-08-29 22:35:00 +0000
+permalink: /2014/08/dia-1688-de-esclavitud-135-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">repasando la entrada de ayer, podría parece que el perro abogaba por salir del armario del bdsm a ultranza, pase lo que pase. nada más lejos de la realidad. ser sincero con uno mismo y no autoengañarse es una cosa, ser idiota por hacer cosas sin calibrar las consecuencias es otra. quisiera el perro pensar que vivimos en un mundo donde se respetan todas las opiniones y a todas las personas, y nada más lejos de la realidad.<br/>muy pronto aprendió el perro que no vivimos en ese mundo. hay gente que ha perdido su familia, su trabajo y ha quedado en la calle por decir que es gay... cuando no ha perdido la vida, que también. las consecuencias por decir que te gusta ser atado, lamer botas u obedecer órdenes pueden ser exponencialmente peores que no decirle.<br/>ojalá todo fuera diferente, pero no lo es. el Dueño del perro dice que por eso tenemos que vivir en las mazmorras por ahora, no sólo porque nos guste o sea nuestro espacio natural, sino porque es necesaria una iniciación y nuestras prácticas no son para todo el mundo. en ese sentido el bdsm también se parece a un antiguo culto mistérico, exclusivamente para iniciados. hay que ser precavidos, no por vergüenza sino por que lo que hacemos es tan importante y valioso, que no todo el mundo merece conocerlo y, mucho menos, vivirlo.<br/>conseguir ese equilibrio entre la luz y la oscuridad, entre la autenticidad con nosotros mismos y el mantenimiento secreto de unas prácticas que no tienen nada de malo pero que la sociedad critica, es el primer paso para vivir plenamente tu sumisión.<br/>todo esto no invalida el hecho de que no debemos mentirnos a nosotros mismos, de que, previo a todo esto, debemos mirarnos en un espejo y decirnos lo que somos<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

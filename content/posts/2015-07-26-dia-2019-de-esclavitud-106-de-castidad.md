@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2019 de esclavitud, 106 de castidad"
+date: 2015-07-26 22:22:00 +0000
+permalink: /2015/07/dia-2019-de-esclavitud-106-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">desde hace casi una semana el perro no tiene clases en la universidad, aunque ha intentado terminar algunos trabajos que tenía pendientes. podría suponerse que eso significa que han comenzado las vacaciones, pero no es así, al menos no como al perro le gustarían. el problema es que está agotado. para eso son precisamente las vacaciones, para descansar, pero aún no puede hacerlo. de hecho los trabajos está provocando en el perro un auténtico problema porque se siente incapaz de terminarlos. es como si el cerebro ya no le respondiera y no fuera capaz de ninguna idea original.<br/>lo mismo le ocurre con el blog. es complicado tener material para hablar todos los días, para producir una entrada permanentemente, durante casi diez años. si uno se fija en los orígenes del blog, había una entrada cada muchos meses, cuando ocurría algo interesante que merereciera ser escrito. luego el perro se convirtió en propiedad, primero de un Amo y luego de un Dueño y las entradas se hicieron diarias. a veces duda el perro de poder mantener ese ritmo, y de ahí largos periodos de inactividad.<br/>sin embargo el perro seguirá adelante porque hay una motivación que ha sacado en alguna ocasión: está escribiendo el blog que le hubiera gustado haber encontrado cuando comenzó su andadura por el bdsm. tal vez si hubiera podido leer determinadas cosas hubiera podido evitar ciertos errores, aunque el perro no se arrepiente de nada de lo que ha hecho. si el trabajo que este blog lleva significa que alguien consigue introducirse en este mundo de manera segura, el perro se sentirá satisfecho.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1396 de esclavitud"
+date: 2013-11-11 22:31:00 +0000
+permalink: /2013/11/dia-1396-de-esclavitud.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">57 días de castidad, 1 desde el último ordeño<br/>el perro hoy dio un paso más, fue a la piscina a nada con la jaula puesta. es cierto que no llevaba el candado sino estaba cerrada con la brida. es extremadamente cómodo, mucho más que el candado.<br/>el perro pudo nada sin problemas y nadie se qeudó mirando al paquete. sni el candado no abulta demasiado, más bien parece parte de los genitales del perro. el bañador no de mucho margen de confusión pero si alguien se fijó, no lo manifestó.<br/>un problema fue la ducha posterior que el perro hizo sin quetarse el bañador. cuando salió de la ducha había dos personas en el vestuario. el perro no quería que vieran la jaula. era humillante así que tuvo que cambiarse el bañador por el calzoncillo debajo de una toalla, como si estuviera en la playa.<br/>el perro sebe confesar que fue fantástico porque el perro vislumbró que podía hacer cualquier cosa estando enjaulado. si puede llevar un bañador nada más, puede llevar cualquier cosa. d ehecho el perro estuvo más cómodo todo el día. el candado no estaba, pero el perro se sentía indefenso. de hecho si hubiera habido algún problema no había forma de quitarse la jaula sin cortar la brida. cortar es un acto mucho más violento que abrir el candado.<br/>llevar una jaula no exime de ciertos cuidados. hay que rasurarse regularmente y, al no estar circuncidado, el perro debe prestar especial atención a la limpieza del pene.<br/>el perro supon que el ordeño de ayer también ayudó, porque hoy estuvo más tranquilo en ese sentido, con ninguna tentación que pudiera influirle.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

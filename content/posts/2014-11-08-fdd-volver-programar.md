@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD volver a programar"
+date: 2014-11-08 07:24:00 +0000
+permalink: /2014/11/fdd-volver-programar.html
+tags:
+  - botas
+  - FdD
+  - sumision
+---
+
+<p style="text-align:center;"><img class="aligncenter" style="width:512px;height:370px;left:40px;top:21px;" alt="" src="/uploads/a8/b4/a8b402ee3988db5c276021f6911838b11789e1620b59c6c17756b80e177c6bc6.jpg" width="512" height="370" /></p><br/><p style="text-align:justify;">a menudo a un esclavo natural, no le basta con que le quiten la identidad poniéndole una capucha. ese gesto debe ir acompañados de otros que tienen como objetivo básico, destruir el ego del esclavo. se trata, como se ha dicho varias veces en este blog, de aplicar una nueva programación, de cambiar las ideas, conceptos y valores aprendidos durante tantos años. para ello la mejor forma es una vida organizada donde el esclavo repita, una y otra vez, frases, gestos y acciones que vayan minando las ideas equivocadas que tenía y sean éstas sustituidas por las nuevas que el Amo introduce. algunos Amos hacen a sus esclavos repetir mantras, hacer determinadas acciones sin sentido aparente, mantener en silencio permanente o suplicar permiso para las cosas más nimias. todo eso tiene un sentido, una finalidad: hacerle ver al esclavo, ya camino de ser objeto, que no es nada y que no tiene derecho a nada, por lo que no puede aspirar a nada más sino a servir.<br/>a algunos le puede parece radical e incluso ilegal, pero no debemos olvidar que eso es precisamente lo que el esclavo desea y añora, es lo que el esclavo ha pedido, ha suplicado a su Amo que haga con él. con el paso del tiempo, y a pesar de las crisis cíclicas, el esclavo se irá encontrando cada vez más cómodo consigo mismo, más integrado, en definitiva, más feliz y realizado. esa es la prueba definitiva de que efectivamente era un esclavo natural que había nacido para servir.<br/>de entre estas acciones que decía anteriormente, lamer las botas del Amo es una de las más efectivas, de las más directas, de las más útiles. convertido en ritual el perro debe lamer cada día las botas que el Amo se ponga antes de salir, y/o nada más llegar a casa, a veces cada vez que está en su presencia. algunos esclavos tienen que arrodillarse y lamer las botas de su Amo cada vez que Éste entra en la habitación. es como la gota que rompe la piedra, llega un momento en que el propio esclavo se rompe y se entrega completa y absolutamente. ese es el fin que buscan Amo y esclavo. ese es el objetivo.</p>

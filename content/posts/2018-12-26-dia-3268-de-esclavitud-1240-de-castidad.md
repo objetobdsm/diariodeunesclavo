@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3268 de esclavitud, 1240 de castidad"
+date: 2018-12-26 22:46:00 +0000
+permalink: /2018/12/dia-3268-de-esclavitud-1240-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el objeto vivió una situación aparentemente contradictoria. por un lado tuvo que imponerse en una conversación con alguien del trabajo en la que ha tenido que ser duro y estricto, todo lo más alejado de un objeto.<br/>por otro lado el Dueño profundizó mucho en la mente del objeto, recalcando que ya casi no queda nada humano en él. lo único que se mantiene es por las circunstancias y la distancia. el Dueño tiene que mantener cierto margen para que el objeto pueda sobrevivir en un mundo de humanos, pero sin ser uno de ellos. ante las preguntas del objeto el Dueño fue taxativo: esás castrado y esas mudo, no tienes sexo, ni voluntad, ni opinión y aún mantiene algunas de estas cosas porque tiene que seguri viviendo en la distancia. cuando esto ya no sea necesario ese margen desaparecerá.<br/>además hoy ocurrió algo extraño. un antiguo sumiso conocido envió al objeto una foto de unas botas sendras nuevas que había comprado. la verdad es que las botas y la foto eran muy bonitas. parte de su desorientación venía porque eran unas botas repujadas, más propias de un Dominante que de un inferior.<br/>cuando el Dueño las vio le dijo al objeto que se olvidara de quedar con él, y al objeto ni se le había pasado por la mente. no era esa su intención. la verdad es que no había pensado nada. su mente estaba en blanco, sólo quería obedecer. había quedado con él o no quedará nunca con él, hubiera hecho cauqluier cosa sólo proque el Dueñolo ordenara. El se ha convertido en el único criterio, en la única referencia. todo lo demás sobra.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

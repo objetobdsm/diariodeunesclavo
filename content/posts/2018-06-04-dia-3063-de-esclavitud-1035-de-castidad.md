@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3063 de esclavitud, 1035 de castidad"
+date: 2018-06-04 22:02:00 +0000
+permalink: /2018/06/dia-3063-de-esclavitud-1035-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">l objeto ha ido hoy a un examen en la escuela oficial de idiomas. se está preparando un cierto nivel de inglés con permiso del Dueño, por supuesto. trabajó por la mañana y a primera hora de la tarde se presentó en el lugar del examen. cuando se hizo la hora entró en la sala junto con otras personas, se sentó y el examinador comenzó a dar las instrucciones. era un hombre de cuarenta y tantos, con barba semicanosa, pelo bien cortado y gafas. tenía cierto aire intelectual. vestía camisa blanca, vaqueros y zapas marrones y cierta barriguita. la verdad que es alguien atractivo. antes de comenzar el examen dijo que dejáramos el carnet en la mesa, que él iría pasando para comprobar nuestra identidad y marcar la lista que tenía.<br/>el objeto comenzó el primer ejercicio y él fue pasando entre las mesas hasta llegar a la del objeto. entonces, después de comprobar la identidad, se acerca al oído del objeto y dice: "Hace años que no veía a alguien con botas camperas. Congrats"."thanks" contestó el objeto sin creer mucho lo que estaba pasando. cuando terminó esa parte del examen el objeto llamó al Dueño para contárselo. sólo pretendía contar la anécdota pero Él le dijo que tenía permiso, si se terciaba, para tomar café y quedar con él, porque le resultaba evidente que era un fetichista de las botas. eso sorprendió al objeto, la apertura de mente del Dueño. por supuesto prohibió cualquier tipo de contacto sexual, pero dijo que era bueno para un objeto tener conocidos, amigos con los que poder compartir, y que en caso de darse la oportunidad, le dijera que era sumiso y que pertenecía a un Amo, siempre con las debidas precauciones, claro.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

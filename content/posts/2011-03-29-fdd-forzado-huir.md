@@ -1,0 +1,10 @@
+---
+layout: post
+title: "FdD forzado a huir"
+date: 2011-03-29 04:23:00 +0000
+permalink: /2011/03/fdd-forzado-huir.html
+tags:
+  - FdD
+---
+
+<div class="separator" style="CLEAR: both; TEXT-ALIGN: center"></div><br /><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/6a/26/6a26f686a8f6d88c1bec80a36e15091737339e2f69820f0c1e2c8159c2044583.jpg" imageanchor="1"><img height="640" src="/uploads/40/a1/40a1363621ad895eaf67fd9a0ece4826f86faf7e635442d51d4dcff031d0c5da.jpg" width="480" border="0" /></a></div><br /><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"></div><br /><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify">no es , en sentido estricto, una camisa de fuerza, pero vale como tal. no hay duda de que el esclavo está intentando liberarse, trabajo inútil por otra parte. ¿hasta qué punto puede, o quiere un esclavo liberarse? una vez, en una conversación en un chat, un Amo preguntaba por que los esclavos, después de una sesión, siempre se marchaban jurando y perjurando que no volverían y sin embargo, siempre lo hacían, tarde o temprano. este esclavo le comentaba que era una reacción lógica. en una sesión se vislumbra un futuro alternativo, donde tu verdadera naturaleza sale a la luz, donde ves y experimentas la posibilidad de una realidad nueva y distinta, dura, pero donde sabes que está la felicidad. y una de las características humanas es nuestro reiterado intento de huir de la felicidad, a pesar de buscarla desesperadamente. huimos de ella porque para conseguirla tenemos que nacer de nuevo, tenemos que sufrir ciertos dolores de parto por los que no estamos dispuestos a pasar, debemos matar muchas cosas para poder disfrutarla, especialmente los esclavos, que debemos atacar nuestro ego. por eso huimos, pero al final la realidad nos alcanza y no podemos escapar de lo que somos. por eso siempre volvemos, en un ciclo que sólo nosotros, con ayuda de nuestros Amos, podemos romper.</div>

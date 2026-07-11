@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1418 de esclavitud"
+date: 2013-12-03 22:43:00 +0000
+permalink: /2013/12/dia-1418-de-esclavitud.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">79 días de castidad, 23 desde el último ordeño.<br/>el Dueño ha vuelto a dar otra vuelta de tuerca.hace algún tiempo ordenó al perro que buscara una manera de estar amordazado en público, de forma que pudiera llevar por la calle al perro sin que éste pudiera hablar pero que nadie se diera cuenta.tener al perro amordazado es una de las cosas que más le gustan al Dueño.<br/>el perro buscó y buscó, aunque no encontró nada.lo que se le ocurrió fue buscar una forma de llenar la boca de manera que no pudiera articular palabra.el perro fue a decatlon y encontró un protector bucal, como los que se usan el los deportes de contacto.con ella puesta el perro solo puede gruñir y gemir, y se puede llevar en público, siempre que no tengas que contestar ninguna pregunta ni hablar con nadie, claro. en el último viaje a madrid el perro lo llevo pero no hubo ocasión de usarlo.<br/>hoy el Dueño ha retomado esta idea y ha ordenado al perro que lleve esa "mordaza" puesta en casa para irse acostumbrando a ella.el perro sabe lo que esas palabras significan.hizo lo mismo con las botas primero, y con la jaula después.posiblemente se convierta en una constante en la vida del esclavo.ya había dicho el Dueño en alguna ocasión que querría a su perro amordazado la mayor parte del tiempo, y el perro cree que este es el primer paso. cuando ha ido a visitar al Dueño para servirle a Madrid, ha pasado gran parte del tiempo amordazado, incluso paseando en invierno con una mordaza debajo de la bufanda, como mostró en su tiempo en un video el perro, pero ahora es un paso más. el Dueño quiere tener a su perro en silencio mucho tiempo. las dos últimas veces incluso ha puesto un cuaderno para no tener que quitar la mordaza si el perro necesitaba decir algo. el perro intuye que esa será la vida del perro tras el Gran Salto. y debe prepararse desde ahora.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

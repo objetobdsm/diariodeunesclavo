@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2628 de esclavitud, 592 de castidad"
+date: 2017-03-19 22:29:00 +0000
+permalink: /2017/03/dia-2628-de-esclavitud-592-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">402 ha cometido hoy una falta, pero una falta muy especial. no ha incumplido ninguna de las normas u órdenes del Dueño. al contrario, 402 cada vez las tiene más interiorizadas y le cuesta menos obedecer. la falta fue contra su auténtica naturaleza. resulta que este objeto tuvo que salir con el coche. dos personas, en distintos momentos, cometieron sendas infracciones que casi provocan un accidente. y entonces 402 tuvo un arranque del tipo "¿pero qué se han creido?" y entonces el ego tomó el control y empezó a conducir de manera agresiva. esas personas hacía tiempo que habían desaparecido de la vista de 402, pero seguían estando presentes y, sobre todo, el ego. no fue hasta más adelante cuando 402 se dio cuenta de la estupidez que estaba haciendo porque se estaba comportando precisamente como esas personas, además de llevado por el ego. la clave fue pensar que tenía derecho a ser respetado, a ser tratado con consideración. la educación de cualquier sociedad puede que así lo marque,pero un objeto no puede enfadarse si unas personas no se comportan así. esto no invalida la orden del Dueño de no dejarse pisar, porque lo que ocurrió es que 402 se convirtió en uno de ellos aproximadamente durante media hora... y fue tan agotador, tan cansino pretender ser algo que no eres, además de que podría el propio 402 haber provocado un accidente de tráfico.<br/>el comportamiento reprochable fue de esas personas, si 402 se pone al mismo nivel, ¿como debería ser catalogado su comportamiento? además está el hecho de que las acciones de una propiedad revierten directamente en el Dueño, en su prestigio y en su consideración ante la comunidad. 402 ha aprendido la lección y hace firme propósito de vigilar para que algo así no vuelva a suceder.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

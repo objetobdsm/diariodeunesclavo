@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2263 de esclavitud, 235 de castidad"
+date: 2016-03-26 22:48:00 +0000
+permalink: /2016/03/dia-2263-de-esclavitud-235-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">aunque todavía hoy resuena en la mente de este objeto el fallo que cometió anteayer. hoy la conversación con el Dueño se centró en la posibilidad de que la castidad permanente llevara a una reducción del tamaño del pene. 402 había leído algo y se lo comunicó al Dueño. Éste se preocupó un poco, por si fuera un problema médico derivado de la castidad y ordenó al objeto que investigara. poco después encontró una página en español que lo explicaba muy bien y se la envió al Dueño.<br/>el efecto fue justo el contrario. el Dueño no sólo dejó de preocuparse sino que le gustó la idea de humillación qeu significa tener un pene cada vez más pequeño.<br/>en parte vino esto a la reflexión de hace unos días sobre las jaulas, sobre como 402 pidió una de silicona y otra de metal y esta era demasiado pequeña. hoy el Dueño quedó en decidir si, al haber cada vez más espacio en la jaula de silicona, en el holy trainer, debido al uso continuado, consigue una jaula más pequeña o empieza a usar la de metal que ya llevó permanentemente en su última visita a madrid. el único inconveniente para el día a dia, al menos en la no-vida, de la jaula de metal es que para ir al baño es un problema porque el orificio no evacua lo suficientemente rápido la orina y este objeto acaba con todos sus genitales mojados, por lo que tiene que lavárselos al finalizar. en cualquier caso el Dueño la prefiere así que es sólo cuestión de tiempo que 402 la lleve para siempre.<br/>una de las cosas que más le gustó, e impresionó, a 402 fue que en la conversación el Dueño dijo,, refiriéndose a la jaula "... porque no te la voy a quitar nunca".<br/>sumisión en silencio, castidad y obediencia ciega.</p>

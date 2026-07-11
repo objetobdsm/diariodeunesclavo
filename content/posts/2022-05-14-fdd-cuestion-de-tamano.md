@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD cuestión de tamaño"
+date: 2022-05-14 11:37:00 +0000
+permalink: /2022/05/fdd-cuestion-de-tamano.html
+tags:
+  - FdD
+  - leather
+---
+
+<div dir="ltr"><div></div><div></div><div style="text-align: center;"><a href="/uploads/66/53/6653c3a5a56556c75ae4e49532407b73110dff395a92492a99c454bb745f7371.jpg"><img alt="" border="0" height="640" id="BLOGGER_PHOTO_ID_7102007787816309842" src="/uploads/93/86/938639156ac8857cafc48e8df9648001fddc02a0991d9b1c3ce032f2244bb43b.jpg" width="439" /></a></div><div style="text-align: justify;">en el mundo occidental, en el oriental el objeto lo desconoce, hay una especie de obsesión con el tamaño. cuanto más grande mejor. el edificio más grande, el coche más grande, la polla más grande, los huevos más grandes, el tío más grande..... y así hasta el infinito, que es lo más grande que se puede concebir. sobra decir que evidentemente no es así, pero como en la mayoría de las cosas, el bdsm coge un estereotipo cultural y lo utiliza para Dominar y someter. la realidad se impone y un Amo puede ser alguien pequeño y una persona grande puede ser al inferior más sumiso que te puedes echar a la cara. sin embargo hay cosas que, utilizando este criterio cultural, ayudan a controlar y a someter. el objeto tiene ahora en mente su propio apéndice después de tanto tiempo en castidad. sus genitales han llegado a ser la mínima expresión de lo que eran. la jaula los tiene completamente constreñidos y aunque los foros dicen que no se reduce su tamaño, la experiencia del objeto es diferente. de hecho han llegado a un punto en que les cuesta mantener una mínima erección. supone el objeto que se han acostumbrado tanto a que la jaula lo controle cuando ocurre que el dolor ha hecho que deje de tenerlas. esto hace que el objeto caiga en un juego de palabras al afirmar que en el bdsm el tamaño no importa, no importa absolutamente nada porque de hecho podría el Dueño extirparle sus genitales, estaría en su derecho de hacerlo, y el objeto seguiría siendo tan sumiso, o incluso puede que más, que lo que es ahora.</div></div>  

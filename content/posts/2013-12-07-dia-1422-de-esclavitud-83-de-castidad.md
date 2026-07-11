@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1422 de esclavitud, 83 de castidad"
+date: 2013-12-07 22:25:00 +0000
+permalink: /2013/12/dia-1422-de-esclavitud-83-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">¿cuándo termina el entrenamiento de un esclavo? nunca. hoy lo ha vuelto a comprobar el perro. iba a ir, por fin, a comprar las botas que el Dueño desea que lleve permanentemente y antes dio permiso para quedar con un amigo. el hecho es que el perro no se comportó honorablemente, como el Dueño deseaba y se esperaba de él, y así se lo confesó el perro inmediatamente. nada garantiza que un esclavo no pueda falla, no haga lo que debe. más control, más condicionamiento ayuda, pero cuando el esclavo falla, sólo queda confesarlo humildemente y aceptar el castigo, el justo castigo impuesto.<br/>los fallos y las faltas pueden verse de distinta manera, como algo negativo, o como una manera de crecer, una oportunidad de evolucionar. lo importante para el perro es que fue incapaz de ocultarle nada al Dueño. por mucho que le avergonzara su comportamiento, lo puso en su conocimiento inmediatamente. el perro ha quedado en espera de la sentencia definitiva del DUeño. todo está en sus manos, y lo estará, como debía ser, es y será.<br/>nada de lo que ordene podrá hacer pensar que el perro está en el camino equivocado. el perro aceptará el castigo con honor y orgullo, con responsabilidad y aprenderá la lección para no volver a repetirla.<br/>y para colmo de males la tienda de las botas no abrió porque se cogieron el puente así que tampoco pudo el perro satisfacer al Dueño en ese sentido.también el Dueño ha ordenado que quite de la cuenta que realiza el hecho de sacarme la leche mediante masaje prostático, porque crea confusión y no rompe la castidad, que es la cuenta realmente importante, los días que el perro lleva siendo esclavo y los días que el perro somete su sexualidad a su Dueño.<br/>obediencia ciega para el esclavo, poder absoluto para el AMo.</p>

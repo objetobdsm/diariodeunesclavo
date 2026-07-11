@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2367 de esclavitud, 339 de castidad"
+date: 2016-07-09 22:31:00 +0000
+permalink: /2016/07/dia-2367-de-esclavitud-339-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">todo el día en casa, aislado, en silencio, trabajando en cuestiones intelectuales. el Dueño decidió que no habría entrenamiento hoy, que quería a 402 centrado en silencio, y así lo ha hecho este objeto. a media tarde hizo un parón para afeitarse los genitales. últimamente se ha descuidado un poco con este tema y es algo que no debería ocurrir. 402 hace firme propósito de corregir este error y afeitarse más sistemáticamente. en verdad tendría también que raparse la cabeza pero no quería dedicar demasiado tiempo a esto así que lo hará mañana. ambas cosas son muy humillantes para 402 porque aunque estéticamente le gusta porque es más cómodo y todo eso, la verdad es que lo hace como muestra de sumisión.<br/>precisamente estaba pensando en esto cuando recordó la última visita a servir al Dueño y cómo éste traía la comida a 402 a la celda. en otra ocasión hemos hablado de ello porque para la mayoría podría interpretarse como que el Dueño sirve a su propiedad, pero 402 se sentía profundamente humillado cuando ocurría ya que siempre le han enseñado a manejarse por él mismo, especialmente en las cuestiones físicas como la comida o el aseo. ser alimentado, o lavado por alguien, es algo que rechaza la interioridad de 402 y, por tanto, algo que produce humillación. pero precisamente de eso se trata, de controlar al ego mediante la humillación, y de que este objeto comprenda, aprenda y acepte que no merece nada y que todo es una concesión del Dueño. su apariencia física, qué puede comprar o qué no, que ponerse, todo depende del Dueño y, también, llegará el punto en el que decidirá lo que 402 debe pensar ¿o ha llegado ya?<br/>sumisión en silencio, castidad y obediencia ciega.</p>

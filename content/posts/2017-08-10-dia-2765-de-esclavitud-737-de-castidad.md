@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2765 de esclavitud, 737 de castidad"
+date: 2017-08-10 22:56:00 +0000
+permalink: /2017/08/dia-2765-de-esclavitud-737-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">está siendo un verano duro por muchas razones, no sólo porque se ha desencadenado este tema familiar que el objeto lleva arrastrando desde mayo y que es parte de la vida, ocurre y tienes que afrontarlo; sino por problemas laborales que han perseguido al objeto incluso en su tiempo de vacaciones. esto se ha producido porque algunas personas no hicieron bien su trabajo y eso les provocó un problema que han querido colgarle al objeto. esta es una práctica muy habitual. cuando alguien tiene un problema, en vez de afrontarlo y resolverlo, lo que intenta hacer es convertirlo en el problema de otra persona. así es como actúa el ego, porque el ego quiere siempre salir victorioso, nunca reconocer un error y hacerte pensar que todos los problemas son problemas ajenos, así no los resuelves y puede seguir haciendo de las suyas.<br/>por eso es tan liberador aceptar los errores, pedir disculpas e intentar resolverlos por ti mismo. el problema es que la sociedad considera esto humillante, disculparte y pedir perdón. para muchos es algo inconcebible y no entra dentro de su horizonte vital. aquí es donde el entrenamiento como objeto consigue sus mejores resultados y tiene mayores efectos en todos los aspectos de la vida. al ser un entrenamiento que va contra el ego ya no se considera humillante pedir perdón o reconocer los errores, y si se siente eso, es precisamente porque el ego sigue actuando, lo que indica que hay que profundizar más en el entrenamiento. la experiencia del objeto es que, cuando se hace esto, primero la gente se sorprende enormemente y, al contrario de lo que el ego quiere que pienses, la gente no se rie de ti, ni te humilla, ni se burla, más bien al contrario. se produce una reacción que suele ser de respeto y reconocimiento. el ego desea que pensemos que al pedir perdón perdemos, pero la realidad es que acabamos ganando.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

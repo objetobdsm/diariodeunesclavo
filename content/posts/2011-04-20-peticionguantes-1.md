@@ -1,0 +1,11 @@
+---
+layout: post
+title: "a petición...guantes 1"
+date: 2011-04-20 19:57:00 +0000
+permalink: /2011/04/peticionguantes-1.html
+tags:
+  - mordazas
+  - guantes
+---
+
+<div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/56/99/56994f43563a09b86692041c0021c48caeb2e88a832470baea5d7699ad6d6d44.jpg" imageanchor="1"><img src="/uploads/56/99/56994f43563a09b86692041c0021c48caeb2e88a832470baea5d7699ad6d6d44.jpg" border="0" /></a></div><br /><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"></div><br /><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify">en un comentario a una entrada, un lector anónimo hizo una petición, una serie de fotos con guantes sobre la boca y la cara. no sé si será por mi naturaleza sumisa o por mi deseo de agradar, pero me cuesta resistirme a una petición de un seguidor del blog, así que aquí comienza esta serie. espero que les guste.</div><br /><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"></div><br /><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/56/99/56994f43563a09b86692041c0021c48caeb2e88a832470baea5d7699ad6d6d44.jpg" imageanchor="1"></a><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/2e/db/2edb066d3fb6db902a4ec99f8816d56d8ad67eb0905651013ac30c6debc5c6e7.jpg" imageanchor="1"><img src="/uploads/2e/db/2edb066d3fb6db902a4ec99f8816d56d8ad67eb0905651013ac30c6debc5c6e7.jpg" border="0" /></a></div><br /><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/b7/81/b7819ab984295535c9179b14338ae0995ee061ade810602ac1cc258187ba74ce.jpg" imageanchor="1"><img src="/uploads/b7/81/b7819ab984295535c9179b14338ae0995ee061ade810602ac1cc258187ba74ce.jpg" border="0" /></a></div><br /><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/ae/be/aebe3ff660f877da0851f4cd5319c0844e240150a0fa0b80768d4d68945370f9.jpg" imageanchor="1"><img src="/uploads/ae/be/aebe3ff660f877da0851f4cd5319c0844e240150a0fa0b80768d4d68945370f9.jpg" border="0" /></a></div>

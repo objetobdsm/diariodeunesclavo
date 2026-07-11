@@ -1,0 +1,10 @@
+---
+layout: post
+title: "573 días de esclavitud"
+date: 2011-08-11 22:49:00 +0000
+permalink: /2011/08/573-dias-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">mi Dueño me ha ordenado ordeñarme y así lo he hecho. siguiendo sus órdenes me he mostrado impasible y no he hecho ningún ruido ni muestra de placer. a este perro le ha costado porque llevaba muchos días sin ordeñarme y ha sido bastante intenso, pero he cumplido las órdenes tal y como mi Dueño me había dicho. pensar que El controla el cuerpo de este esclavo de esa manera, da sentido a la sumisión de este perro. el proceso de esclavitud tiene varios niveles, y cada relación establece sus límites y sus condiciones, por eso esta esclavitud es negociada, pero una vez ello, el esclavo pierde su libertad y la capacidad de re-negociar su contrato. por eso las primeras etapas de la relaciónson tan importantes. en este sentido mi Dueño y este perro saben que se trata de ir caminando hacia un control absoluto, total, de forma que no haya nada en al vida de este esclavo que esté bajo la supervisión del Amo. a muchos les parece  duro, pero a medida que se van dando pasos lo que ayer creías imposible, hoy no sólo se vuelve posible, sino normal. si hace dos años me hubieran dicho que iba a estar periodos de quince días sin masturbarme o que no tendría sexo sin la supervisión de otra persona, tal vez me hubiera reído.  sin embargo es así. y no deja de causarme admiración que mi Dueño no se enfade cuando le pido permiso para cosas como salir con alguien o ir a una cena, porque me parecen cosas poco importantes para molestarle. sin embargo El lo quiere así, lo ordena así, y así se hace. igualmente me admira su capacidad y decisión para asumir la responsabilidad de la vida de este esclavo, será porque a este perro mismo le parece complicado tomar decisiones constantemente para sí mismo, como hacerlo también para otro. pero ahí está el valor de cada uno, y el enorme valor que tiene ser Amo, por el enorme compromiso que asumen, la enorme responsabilidad que tienen sobre sus hombros.</div>

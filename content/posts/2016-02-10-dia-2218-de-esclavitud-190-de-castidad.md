@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2218 de esclavitud, 190 de castidad"
+date: 2016-02-10 22:22:00 +0000
+permalink: /2016/02/dia-2218-de-esclavitud-190-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">por fin 402 pudo quitarse de encima ese sentimiento de pesadez que tenía y ponerse a trabajar en el blog, enviando bastantes entradas atrasadas al Dueño. desde hace algún tiempo, prácticamente desde que empezaron las navidades, 402 ha tenido una mala racha. no se sentía con ánimos de ponerse a trabajar, a escribir. lo intentaba pero no lo conseguía. en su reflexión lo achacaba a su ciclotimia ya que 402 pasa por momentos en los que está muy bajo y otros en los que se siente capaz de cualquier cosa, de hecho es en esos momentos cuando consigue la mayoría de las metas que ha alcanzado.<br/>este año el período bajo ha sido mayor de lo esperado, tal vez porque se ha unido cierto trastorno afectivo estacional. no sabía que existía, pero al ponerse a investigar ha descubierto que es algo que no es descabellado. tal vez una cosa influya en la otra, 402 no lo sabe, pero sí siente que lo que sea está terminando, por ahora.<br/>esta cuestión psicológica es importante porque el Dueño tendrá que lidiar con ella cuando de el Gran Salto. es importante, fundamental, vital que el Amo, en este caso el Dueño, conozca todos los procesos y resquicios de la mente del sumiso-esclavo-objeto para poder gestionarlas de la mejor forma posible.<br/>el hecho es que el Dueño quedó complacido con las entradas, y así se lo hizo saber a 402, lo cual por supuesto produjo una enorme alegría a este objeto. ahora se trata de mantenerse así el mayor tiempo posible y recuperar el tiempo perdido, empezando por publicar las entradas y actualizar el blog.<br/>sumisión en silencio, castidad y obediencia ciega</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1023 dias de esclavitud, 2 de castidad"
+date: 2012-11-03 22:08:00 +0000
+permalink: /2012/11/1023-dias-de-esclavitud-2-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">hoy el perro ha vuelto a estar tentado de suplicarle al Amo que le permitiera ordeñarse, a pesar de que ya lo hizo apenas el jueves pasado. evidentemente era el ego quien lo deseaba, para así comenzar a apartar al perro del camino de sumisión en el que está inmerso. es costoso renunciar al hecho de que tu cuerpo no te pertenece y de que ya no tienes control sobre él. muchas veces, especialmente cuando el control se relaja, la fantasía de que sí puedes usarlo para darte placer produce esta confusión. un esclavo que es propiedad de un Amo no puede hacer esto, porque no le pertenece, sencillamente no es suyo.</div><div style="text-align: justify;">un paso importante es no dejar que esta idea se asiente en la mente. para eso hay que llenarla de sumisión y obediencia, de control del Amo. así, el ego, no tiene posibilidad de hacerse un hueco e introducir ideas extrañas. de hecho la humillación es el mejor antídoto contra estas ideas y sentimientos. con la humillación el esclavo sabe que depende del Amo y que sin su Dueño no podría hacer nada. la humillación ayuda a centrarlo y a focalizarlo en lo realmente importante.</div><div style="text-align: justify;">otro remedio es el de los rituales, acciones repetitivas. hoy este perro ha realizado uno de ellos afeitándose los genitales. siempre que lo hace, el perro tiene una erección, sobre todo porque resulta humillante. cuando lo hace recuerda que tendrá que ducharse en el gimnasio y que todos verán que no tiene pelos ahí debajo, y algunos harán bromas al respecto. pero eso será más tarde. hoy el perro se ha afeitado y eso ha sido suficiente para que el ego salgo huyendo, haya desaparecido y el perro vuelva a estar tranquilo.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

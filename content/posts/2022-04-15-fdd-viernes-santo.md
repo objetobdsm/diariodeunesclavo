@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD viernes santo"
+date: 2022-04-15 08:27:00 +0000
+permalink: /2022/04/fdd-viernes-santo.html
+tags:
+  - botas
+  - FdD
+  - leather
+---
+
+<div dir="ltr"><div style="text-align: center;"><a href="/uploads/7c/59/7c5948308ad32e420d7334db73aeca183812e78b2d33729b0a0ebe3b69c5512a.png"><img alt="" border="0" height="534" id="BLOGGER_PHOTO_ID_7090981024143287442" src="/uploads/0a/2b/0a2bb8c814f2114af6aa80fb3fc7a452ae8ce305d1aabcf0fd69e507776191e3.png" width="640" /></a> </div><div style="text-align: justify;">casi sin pretenderlo el objeto está haciendo su propia semana santa a través de las fotos del día. ayer fue el día de la entrega y hoy es el del sufrimiento. siempre se ha acusado a los cristianos de adorar a la muerte, de darle demasiada importancia, demasiado valor. pero es que la muerte es muy importante ya que sin ella la vida no tiene sentido. son los opuestos los que se definen mutuamente. y además el bdsm tiene una larga experiencia es lo que a la muerte simbólica se refiere y que se manifiesta en infinidad de ocasiones: el cambio de nombre cuando entras a servir a un Amo, prácticas extremas como el breath control o el bondage extremo en cajas o momificaciones (que no olvidemos que es una forma de preparar para la muerte), los estados alterados de conciencia, etc. hay infinidad de paralelismos. sin embargo el mas evidente es el más profundo. cuando uno entra en el camino del bdsm empieza a morir, tiene que empezar a morir, a dejar atrás ideas, creencias, pensamientos, valores y actitudes que les han enseñado desde pequeño. tiene, con la ayuda del entrenamiento del Amo que volver a construirse, a ver todo desde una nueva perspectiva. en definitiva tiene que morir para volver a nacer. ese nacimiento está simbolizado por ese cambio de nombre, que a menudo es sencillamente un número. pero también es un cambio radical de perspectiva. un inferior bien entrenado no puede ver el mundo como lo ven el resto de los humanos. esas pequeñas muertes lo han puesto en el lugar más bajo, al nivel del suelo. a partir de ahora sólo puede ver el mundo desde esa perspectiva. las botas del Amo son lo que está a su nivel, todo lo demás está por encima de él. cuanto antes aprenda esta leción antes nacerá a su auténtica vida.<br /></div></div>  

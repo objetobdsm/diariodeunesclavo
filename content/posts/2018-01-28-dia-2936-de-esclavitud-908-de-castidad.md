@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2936 de esclavitud, 908 de castidad"
+date: 2018-01-28 22:35:00 +0000
+permalink: /2018/01/dia-2936-de-esclavitud-908-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hay algo que olvida a veces el objeto, que todo lo que vive lo vive porque así lo desea el Dueño. desde que terminó aquella separación entre vida y no-vida, todo está bajo las órdenes del Dueño y todo ocurre porque El así lo desea y permite. en ocasiones el objeto no lo tiene tan presente como debería, y eso puede llevarlo a situaciones de malestar, infelicidad y desconcierto. siempre hay que estar recordando que los que rodean al objeto no lo conocen lo suficiente como para saber y aceptar que es un objeto y tratarlo en consecuencia. por eso lo tratan como humano, porque lo parece, pero no lo es.<br/>es algo muy difícil de explicar pero es que la humanidad es una forma de alienación en el objeto. la deshumanización y la despersonalización no son procesos negativos en referencia al objeto, sino más bien necesarios, porque el objeto sabe que quedan restos de la creencia de la humanidad. es como una estatua a la que le han dado muchas capas que han llegado a ocultar su auténtica belleza. es necesario limpiarla hasta llegar a su origen, y a veces quedan manchas, restos, resquicios de algo que fue, pero que no era ella misma. algo así ocurre con el objeto. por eso nadie debería preocuparse, molestarse o entristecerse por un trato que aparentemente es vejatorio o negativo. lo es si se tratara de un humano, pero no es así. solo cayendo en lo más bajo se siente el objeto feliz, sólo siendo tratado como lo que es puede realizarse. el ego debe desaparecer completamente, cueste lo que cueste, o el objeto nunca llegará a la felicidad.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

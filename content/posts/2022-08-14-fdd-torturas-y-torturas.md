@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD torturas y torturas"
+date: 2022-08-14 10:27:00 +0000
+permalink: /2022/08/fdd-torturas-y-torturas.html
+tags:
+  - bondage
+  - FdD
+---
+
+<div dir="ltr"><div style="text-align: center;"><a href="/uploads/c7/32/c732e3a451a91083d41fd4ac0935ea7c88bace1163cfd055a2e9ff41dac1643f.jpg"><img alt="" border="0" height="640" id="BLOGGER_PHOTO_ID_7136871854866713250" src="/uploads/a0/07/a007ed5f798ad1f552f1c6394af2c7d20cbeba05c8c45be6e861c5ba928118dc.jpg" width="427" /></a><br /></div><div style="text-align: justify;">las torturas pueden ser muchas y variadas. existen aquellas fruto del impacto de látigos, palas, fustas, etc. también están las producidas activamente por electricidad, pinzas, agujas. las hay ocasionadas por poner al sumiso en posturas estresante que tensan los límites del cuerpo. incluso hay torturas psicológicas, fruto de las palabras que van martilleando la mente del inferior hasta provocarle una reacción. el Dueño es experto en este último tipo. y luego hay una tortura que pocos considerarían como tal pero que sin duda debemos catalogar de esa manera: la tortura por el placer. una estimulación física continuada, mantenida en el tiempo, potenciada, reducida y luego vuelta a potenciar, sin ser satisfecha.... puede ser de lo más dolorosa. no estamos hablando de mantener la excitación sexual mediante la castidad, por ejemplo, algo que podría ser catalogado como tortura psicológica. nos referimos a algo físico como lo que están haciendo en la FdD de hoy. comer el culo pudiera parecer una práctica degradante, aunque un Amo que hace lo que le place no se está degradando a sí mismo, pero si el inferior siente placer con ello puede llegar a un punto en que se convierte en una auténtica tortura. posiblemente su polla se engordaría hasta que empezara a dolor, un dolor, por cierto, que se confundiría con el placer que estuviera sintiendo en ese momento. la situación puede llegar a un punto en que incluso haya desmayo o pérdida de conciencia, justo igual que cuando mediante los latigazos, las endorfinas hacen que entres en estados alterados de conciencia. desde luego con imaginación, las posibilidades parecen infinitas.</div></div>  

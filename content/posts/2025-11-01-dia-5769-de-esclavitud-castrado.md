@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5769 de esclavitud, castrado permanentemente"
+date: 2025-11-01 23:40:00 +0000
+permalink: /2025/11/dia-5769-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> día de fiesta, aunque para un objeto se nota en prácticamente nada. estuvo todo el día intentando trabajar aunque la pierna estuvo molestando más de lo normal y no pudo hacer mucho. de hecho tuvo que suspender la tutoría con el esclavo, la que tiene todos los sábados, porque no se encontraba demasiado bien y estaba incómodo.</p><p style="text-align: justify;">por la tarde estuvo trabajando en el blog pero tumbado de una forma especial para que no molestara. la verdad es que es un gran inconveniente y se está prolongando más de la cuenta, aunque ya le dijo el fisio que era una cuestión de mucha paciencia. lo peor que lleva el objeto es no poder usar botas. es como si le faltara algo. no puede presentarse ante mi Señor de esta forma. habrá que tener paciencia, que es lo más importante ahora. </p><p style="text-align: justify;">un nuevo canal ha sido censurado en telegram, de un clásico de las redes: cagedjocks. cuando el objeto intenta entrar desde el móvil pone "No disponible: Este grupo no puede ser mostrado porque fue usado para difundir contenido pornográfico". sin embargo desde la aplicación web si que el objeto puede verlo. el hecho es que la censura sigue a la orden del día y no descartaría que algo así le pasara al diario de un objeto en algún momento. nuevamente, si eso ocurriera y no quisieran perder el contacto, podría escribir a diariodeunesclavo@gmail.com o ir  www.diariodeunesclavo.com o www.diariodeunobjeto.com que allí hay forma de contactar. sin embargo la forma más sencilla es apuntarse al boletín, así también recibirían las entradas de forma más actualizada.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

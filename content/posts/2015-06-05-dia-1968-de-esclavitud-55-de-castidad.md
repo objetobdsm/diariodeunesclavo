@@ -1,0 +1,10 @@
+---
+layout: post
+title: "dia 1968 de esclavitud, 55 de castidad"
+date: 2015-06-05 22:19:00 +0000
+permalink: /2015/06/dia-1968-de-esclavitud-55-de-castidad.html
+tags:
+  - personal
+---
+
+por fin comenzó el perro a ver cincuenta sombras de grey, la famosa película basada en el libro, y dice comenzó porque no pudo terminarla. se supone que era de bdsm pero, hasta donde ha llegado el perro a ver, sólo es una película romántica con algo de picante. pero una especia no hace un guis, aunque esté jeremy donam sin camisa o desnudo.<br/>es interesante escuchar, en una película de gran público, expresiones como sumisa, contrato, o frases como "cuando seas mía". sin embargo el cuerpo del perro no reaccionó ante ninguna de ellas, como se esperaba.<br/>en otras partes de este blog el perro ha hablado de las ventajas, y los inconvenientes de popularizar el bdsm. y esta película es un claro ejemplo de esto. para el perro el bdsm es demasiado importante, poner demasiado en marcha, para ser considerado un juego. es cierto que este movimiento puede servir para que aquellos que tienen estos deseos y fantasías y no se hayan atrevido a explorarlo, lo hagan. sin embargo lo que el perro teme es que empiecen a proliferar. como cree que ya ocurre, gente que, con ver la película o leer el libro se consideran Amos consumados.<br/>la ventaja del perro es que no se siente identificado con el Amo de la novela-película, pero tampoco con la "sumisa" que se entrega, con condiciones, al multimillonario cachas. al final la relación D/s se edulcora y acaba siendo lo que decía al principio, una relación romántica con algún punto fuerte.<br/>el bdsm no es una relación romántica, sino de poder. hay amor, pero es más el amor que sientes por tus mascotas que el que sientes por tu pareja, si se confunden corres el riesgo, el Amo de no coger el poder que toma del sumiso y ejercerlo, y el sumiso de creer que merece más de lo que recibe. es es el fin de la relación.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.

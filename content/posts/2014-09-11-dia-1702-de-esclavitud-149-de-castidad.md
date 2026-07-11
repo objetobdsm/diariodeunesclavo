@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1702 de esclavitud, 149 de castidad"
+date: 2014-09-11 22:27:00 +0000
+permalink: /2014/09/dia-1702-de-esclavitud-149-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">ha sido uno de los días más duros desde que empezó el trabajo después de las vacaciones, casi 13 horas sin parar, comiendo un bocadillo y mucho café. ya lleva el perro dos semanas trabajando mañana y tarde sin descanso. además hoy se ha levantado temprano para terminar un trabajo del master. son demasiadas cosas, pero hay que sacarlas todas.<br/>lo curioso es lo tranquilo que está el perro. en otros momentos viviría cda coasa como un examen e intentaría quedar bien con todo el mundo, complacerlas. supone que es lo que ocurre cuando una naturaleza sumisa se encuentra con un ego incontrolado, que intentas que todo el mundo piense bien de tí.<br/>¿qué ocurre cuando ese ego empieza a controlarse pero la naturaleza sumisa sigue ahí? eso sólo puede pasar si un Amo toma las riendas y focaliza en El la sumisión, controlando el ego. entonces no te importa nada lo que otros piensen, lo que los demás crean o no crean de ti. lo único importante es lo que piense tu Amo, tu Dueño. por eso el perro se siente tranquilo: pertenecer a un Dueño.<br/>por eso el bdsm no es sólo algo sexual para el perro. la vida influye directamente en la no-vida. pertenecer a un Amo, ser propiedad del Dueño, hace que sus relaciones mejoren ostensiblemente. no es sólo llevar botas, o cuero, o la jaula, o la cadena al cuello, que sí... sino sentir que el Dueño guía al perro con mano dura. algunos necesitamos y, auqnue a veces nos rebelemos o nos resistamos, nos gusta y es lo que deseamos profundamente, porque nos damos cuenta de que nos hace mejores.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

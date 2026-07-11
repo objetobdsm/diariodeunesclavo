@@ -1,0 +1,10 @@
+---
+layout: post
+title: "el dueño elige"
+date: 2015-04-18 16:34:00 +0000
+permalink: /2015/04/el-dueno-elige_18.html
+tags:
+  - Dueño elige
+---
+
+<a href="http://diariodeunesclavo.net/wp-content/uploads/2015/05/18.jpg"><img class="aligncenter size-full wp-image-8039" src="http://diariodeunesclavo.net/wp-content/uploads/2015/05/18.jpg" alt="18" width="577" height="768" /></a><br/><p style="text-align:justify;">en esta nueva sección el Dueño decide una imagen, y pone a prueba al perro porque este tiene que decir por qué ha elegido esa y no otra. de esta forma el Dueño participa más en el blog y el perro se siente presionado. si falla, un castigo recaerá sobre el perro.<br/>nunca hay que confiarse en estas cosas, pero el perro cree que esta es fácil porque tiene dos elementos que le encantan al Dueño: el bondage y el breath control, aunque en este caso el perro cree que lo segundo prima sobre lo primero. aunque nunca lo ha hecho con el perro, el Dueño ha simulado ahorcamiento con alguno de sus sumisos, en alguna sesión y le ha relatado al perro la sensación de temor del sumiso y de control que esta práctica produce. es peligrosa, pero el Dueño siempre cuida extremadamente, por la seguridad. el control absoluto es cuando alguien controla la vida del esclavo. una práctica que puede acarrear la muerte es peligrosa, pero a la vez tremendamente excitante para el que la hace y el que la recibe. el bondage en este caso es casi un accesorio, puesto ahí para garantizar que el esclavo no se pueda quitar la cuerda que atenaza su cuello. el Dueño ha practicado otras formas de breath control con el perro y es algo que a ambos nos lleva directamente a nuestro estado mental correspondiente: al perro a un subspace profundo y al Dueño a un estado de control y dominación extremo. por eso ha decidido el Dueño que comente esta imagen.</p>

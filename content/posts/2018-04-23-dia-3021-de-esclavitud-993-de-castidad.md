@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3021 de esclavitud, 993 de castidad"
+date: 2018-04-23 22:25:00 +0000
+permalink: /2018/04/dia-3021-de-esclavitud-993-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el Dueño ordenó al objeto hace unas semanas que añadiera cada día con el blog un comentario de los videos que ha hecho cada vez que esto ha ido a madrid. ayer visionó los videos de hace ocho años, del mes de julio. en ellos esto aparece momificado y sometido lamiendo las botas del Dueño, pero hay un par de ellos que muestran al objeto atado a una silla con cuerdas, llorando mientras el Dueño habla y le va diciendo cosas que lo van hundiendo cada vez más. la sorpresa vino cuando, escuchando, lo que el Dueño decía es justamente lo que le dice al objeto cada vez que hablan. en esos videos el Dueño trata al objeto como eso, como un objeto, cuando esto no tenía ni en mente llegar al estado en que se encuentra ahora. sí que recuerda el llanto y sí que recuerda que ese fue el momento en que se rompió, y un único pensamiento ocupaba su mente: "había llegado a casa". recuerda que fue entonces cuando se convirtió en propiedad del Dueño y en que ya no tendría que buscar más. el llanto no era tanto de dolor cuando de liberación, de todo el sufrimiento acumulado pensando que nunca llegaría a realizarse como esclavo y que nunca sería encontrado por ningún Amo que lo conociera hasta el punto de romperlo y obligarlo a destruir ese caparazón que se había construido para poder sobrevivir en un mundo al que ahora sabe que no pertenece.<br/>viendo el video el objeto descubrió que el Dueño siempre ha estado donde ha estado ahora, que El no se ha movido sino que ha llevado al objeto magistralmente hasta ponerlo en la posición en la que está. poco a poco, pacientemente, ha ido venciendo sus resistencias y ha hecho que se enfrente con su auténtica naturaleza, con lo que es realmente. ya entonces sabía lo que esto era, antes incluso de que el objeto pudiera llegar a formularlo o a imaginarlos. por eso El es Superior, y por eso El lo merece todo.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

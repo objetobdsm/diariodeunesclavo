@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1951 de esclavitud, 38 de castidad"
+date: 2015-05-19 22:59:00 +0000
+permalink: /2015/05/dia-1951-de-esclavitud-38-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hoy han venido a hacer una investigación externa en el trabajo. el perro no estaba involucrado salvo porque era quien tenía que proveer a las dos investigadoras de todo lo necesario y eso significaba estar pendientes de ellas durante todo el día, concretamente desde las nueve de la mañana a las cuatro de la tarde. para cualquiera esta tarea hubiera sido algo muy desagradable, extremadamente desagradable. sin embargo el perro recurrió a su naturaleza sumisa y lo vivió como un guiño a su verdadera naturaleza. en ningún caso esto significa que las dos que vinieron hoy sustituyeran al Dueño o que me mostrara sumiso con ellas, pero no le resultó al perro extraño ser "servicial". de hecho esta práctica es propiciada por sumisos que aún no han sido encontrados por sus Amos y que necesitan vivir la sumisión. su recurso es ser serviciales en los distintos entornos en los que se mueven. ser siempre el que traiga el café a los compañeros, el que se ofrezca voluntario para quedarse más tiempo, el que nunca dice que no cuanto un macho alfa quiere que le haga un trabajo.... son ejemplos de esta "sumisión encubierta" que muchos considerarían de "pringado", pero que a un auténtico sumiso le dan sentido mientras espera que llegue el Amo que lo entrene.<br/>el caso del Dueño es diferente. El no quiere que nadie pise a su perro, salvo El y aquellos a los que El de permiso. eso abre la puerta a que otros usen al perro, para lo que sea, y lo humillen. no es el caso de lo que ha pasado hoy. contrariamente el perro ha usado un recurso que tenía para hacer más llevadero un trabajo que le costaba realizar, pero que al fin está hecho.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

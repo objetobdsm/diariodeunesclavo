@@ -1,0 +1,10 @@
+---
+layout: post
+title: "minirelato"
+date: 2025-04-09 15:34:00 +0000
+permalink: /2025/04/minirelato_9.html
+tags:
+  - mini-relatos
+---
+
+<p style="text-align: justify;"> le había prometido una noche se sexo salvaje y lo creyó. lo siguió hasta el hotel y entraron en la habitación besándose y metiéndose mano. su mirada era cautivadora. le gustaba mucho y por eso, después de desnudarse, dejó que lo atara al cabecero de la cama con unas esposas. estaba tan empalmado que le dolía. tampoco le importó que le tapara los ojos. era algo que lo excitaba. notaba como las dos pollas se entrechocaron. la cosa empezó a torcerse cuando sintió la cinta americana en su boca y le dio varias vueltas alrededor de la cabeza. intentó gritar pero ya no pudo. entonces se le bajó todo y notó como manipulaba sus genitales. estaba metiendo su polla en algún sitio. supuso que era una jaula de castidad. empezó a agitarse. se había metido en un problema, lo sabía, pero desconocía hasta que punto.</p>

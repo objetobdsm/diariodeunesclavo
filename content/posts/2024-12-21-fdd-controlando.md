@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD controlando"
+date: 2024-12-21 10:55:00 +0000
+permalink: /2024/12/fdd-controlando.html
+tags:
+  - FdD
+  - sumision
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/1a/da/1adab25bd169da32d22d151e462c424072631899116a785b54fdc567f5e14bae.jpeg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="1257" data-original-width="898" height="640" src="/uploads/17/30/17307599a985f3197310f728b1859e21026da4265d15bf92aae60e00b44929ec.jpg" width="458" /></a></div><p style="text-align: justify;">utilizar el término "inferior" para referirse a un sumiso es más que acertado. realmente sería una especie de paraguas que incluiría a todas aquellas personas que, en una relación de intercambio de poder, de Dominación/sumisión, están en el polo de renunciar a ese "poder". un inferior cede la capacidad de controlarse a sí mismo, sustituyendo la elección por la obediencia y haciendo lo que el otro polo, el Dominante, le ordena hacer. esto, que resulta evidente, no lo es tanto, porque en muchas ocasiones el inferior obedece siempre y cuando el Superior le ordene aquellas cosas que le gustan o excitan. por lo tanto, en muchas ocasiones, su obediencia es una obediencia condicionada. esta es la razón por la que se dice que un esclavo es quien realmente lleva las riendas en una relación bdsm. y en cierta medida esto es así. podemos encontrarnos, por tanto, en una situación paradójica, en la que un esclavo se someta pero solo bajo determinadas condiciones. esto es comprensible en las primeras sesiones, en los primeros encuentros. el inferior está temeroso, se le abre un mundo completamente nuevo y no sabe muy bien a qué atenerse. los Dominantes deben ser conscientes de esto y hacer que el esclavo se sienta seguro, propiciando que la sesión se repita y que se pueda ir avanzando. en el fondo la sumisión, al igual que la Dominación, es un camino que se recorre, o un edificio que se construye, hasta llegar al punto en el que el esclavo ceda completamente el control y no exista nada que no obedeciera, incluso si no fuera de su agrado.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5754 de esclavitud, castrado permanentemente"
+date: 2025-10-17 22:33:00 +0000
+permalink: /2025/10/dia-5754-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> otro día de trabajo desde casa pero a media mañana tenía cita con el fisio y a la hora señalada fue. llegó e inmediatamente entró esperando que le diera un masaje en la pierna pero cuna el objeto le contó todo lo que había pasado, recomendó no tocar el nervio y los músculos: si no duele, mejor no toques, dijo. a continuación estuvo explicando al objeto algunas formas de relajar los músculos y de hacer algunos estiramientos no dañinos. le explicó que ni siquiera hiciera ejercicio por lo menos hasta final de mes y le dio cita al objeto para el 15 de diciembre. la idea principal es que, a pesar de no sentir dolor, por lo cual el objeto debe estar agradecido, el nervio está inflamado y su recuperación es bastante larga y costosa. y hay que tener mucho cuidado. la paciencia, dijo, es el primer problema de esta cuestión porque la gente acelera la recuperación y lo estropea.</p><p style="text-align: justify;">por la tarde el objeto se puso la cadena al cuello y entre las manos. hacía tiempo que no se las ponía y le envió una foto al Amo cometiendo el erres de no ponerse la mordaza y el Amo respondió: "No quiero volver a ver tu boca si no es para darme placer". las cadenas, tanto en las manos como el cuello, la jaula y la mordaza no son opcionales, ni son accesorios, forman parte de lo que es el objeto y debe tenerlas puestas siempre que sea posible. mi Señor se ha puesto aún más estricto y hay una razón para ello. La llamada a capítulo, las dos llamadas de la semana realmente, fueron muy intensas y han significado un punto de inflexión, un nuevo marcador que ha hecho al Amo más Dominante y al objeto más sumiso.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega</p>

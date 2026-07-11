@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2438 de esclavitud, 410 de castidad"
+date: 2016-09-18 22:07:00 +0000
+permalink: /2016/09/dia-2438-de-esclavitud-410-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">resulta completamente distinto ver el mundo, tu entorno, desde una perspectiva de una relación de Dominación/sumisión, a verla desde otro punto de vista. 402 a veces cambia de una a otra y encuentra diferencias entre ambas. a menudo ocurre que algo que no tiene solución aparente, o que afecta mucho a 402 en la no-vida, se arregla y deja de afectar cuando lo mira desde la perspectiva de un objeto. eso ocurre mucho con las relaciones, que en su mayoría, están basadas en relaciones de poder. cuando dos compañeros de trabajo discuten o cuando una pareja hace lo propio todo adquiere nuevo sentido cuando quien ve esto lo hace desde la perspectiva de un objeto que intenta renunciar al poder.<br/>la mayoría de los conflictos se producen por eso, por gente que quiere imponerse sobre otros. todo es una lucha de poder. siendo un objeto no tienes poder, no lo necesitas, no lo quieres. 402 tiene muy reciente y cercana una situación parecida. una pareja que se ha roto y que han decidido, o están decidiendo separarse. es una increíble, y dañina, lucha de poder. de hecho casi no los reconozco, son dos egos enormes en lucha y ellos se están perdiendo en el proceso. van desapareciendo poco a poco y se vuelven cada vez peores. al menos 402 ha querido estar en esa situación, desaparecer, pero sin ego. ellos desaparecen porque el ego ocupa su lugar.<br/>los esclavos y sumisos, en general todos los inferiores, somos entrenados por nuestros Amos para vivir con un ego disminuido o sin él. esa es nuestra ventaja a la hora de relacionarnos, de interactuar. eso es lo que nos permite ser más felices.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

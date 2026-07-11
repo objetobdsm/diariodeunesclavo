@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1499 de esclavitud, 70 de castidad"
+date: 2014-02-22 22:47:00 +0000
+permalink: /2014/02/dia-1499-de-esclavitud-70-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">11:00 el perro obedeció al Dueño esta mañana. las órdenes eran media sesión de reprogramación y sacarse la leche, y el perro suplicó permiso para sacarse la leche hoy y dejar la reprogramación para mañana. el Dueño dio permiso y así lo hizo el perro. siguiendo órdenes se puso las botas sendra, el collar de bondage y se amordazó con cinta americana. a continuación el perro se introdujo el estimulador y empezó a masajearse hasta que consiguió sacarse la leche. le costó bastante, y no fue una experiencia placentera. no tiene que serlo. se trata de una mera función biológica. la leche salió espesa, pastosa casi. cuando terminó el perro se limpió y se puso la jaula de metal.<br/>23:00 la sumisión del perro ha dado un paso más. hoy el perro ha empezado a usar la jaula de metal por orden del Dueño. es mucho más pesada, y sólo se puede usar con un candado, no con la brida de plástico. la sensación que produce es de una mayor presión y control. el Dueño lo ha dicho claramente, se trata de hacer la transición del plástico al metal, que será el material en el que vivirán encerrado los genitales del perro. desde luego aquí no hay peligro de rutura. no hay forma de que esta jaula se rompa. como en otras ocasiones donde se da un paso, donde el Dueño lleva al perro más allá, el perro se siente menos dueño de lo que le rodea. es como si cada vez pudiera controlar menos cosas. cada vez el Dueño tiene más poder, más control, más autoridad.<br/>de nuevo el perro está completo: botas y jaula, los signos internos y externos de su sumisión, de su esclavitud, de que es propiedad del Dueño y de que el único Dueño de este perro.<br/>al mediodía el perro tuvo que salir y la verdad es que era bastante cómodo, salvo algún que otro pinchazo, por otro lado algo normal. el resto del día el perro estuvo en casa, intentando trabajar.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

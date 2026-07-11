@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1957 de esclavitud, 44 de castidad"
+date: 2015-05-25 22:14:00 +0000
+permalink: /2015/05/dia-1957-de-esclavitud-44-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hay gente que incluso vestido de cuero negro resultan brillantes, y no se refiere el perro a su capacidad intelectual o al tema de resolver problemas. el perro se refiere a ese brillo que desprenden algunas personas y que iluminan el lugar en el que están. algunos lo llaman atracción, otros encanto, para el perro es sencillamente el brillo. muchos Amos lo tienen. tal vez sea una habilidad natural como el que tienen algunos depredadores para atraer a sus presas y seducirlas de formas que puedan "cazarlas" más fácilmente. tal vez.<br/>el hecho es que el perro se ha acordado de esto justamente por lo contrario, por una compañera "oscura" y que desprende oscuridad con la que ha tenido que tratar hoy. ya no es sólo un problema del ego, que si, sino también un problema de volver negro cualquier cosa que toque, como una especie de rey midas a la inversa. siempre va seria, apagada y amargada.<br/>contrasta a menudo con el perro que, todo hay que decirlo, a menudo va por ahí saltando y riéndose. el motivo de que vaya así es que sabe lo que es y cual es su lugar. cuando el perro escribe esta frase en el blog, no es una frase vacía o sin sentido, sino que la siente y tiene sus efectos exteriormente, en su forma de afrontar la vida.<br/>es cierto que no muchos pueden hacer eso, especialmente la compañera de trabajo del perro, que parece un agujero negro que absorbe todo, incluso la luz.<br/>alguno puede pensar que el bdsm es algo oscuro: cuero, latex, mazmorras... no puede decirse que abunde la luz en ninguna de estas palabras. sin embargo, cuando el perro está atado, y el Dueño empieza a usarlo, en cueros, latex y/o la oscuridad de la mazmorra, la vida del perro se ilumina y brilla todo su interior en todo su esplendor. este brillo es tan intenso que duda incluso cuando la experiencia ha finalizado y se mantiene en el tiempo. ¿cuántos pueden decir lo mismo?.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

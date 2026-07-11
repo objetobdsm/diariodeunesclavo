@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1199 de esclavitud"
+date: 2013-04-28 21:41:00 +0000
+permalink: /2013/04/dia-1199-de-esclavitud.html
+tags:
+  - personal
+---
+
+<br />32 días de castidad, 32 días desde el último ordeño<br /><div style="text-align: justify;">ya ha pasado un mes de castidad y el perro sigue fiel al Dueño, cumpliendo obedientemente su orden de no correrse ni ordeñarse. no tiene aún excesivos deseos, no está caliente ni se despierta cachondo ni nada. el entrenamiento previo a llevar la jaula parece surtir efecto y parece como si el fallo y la falta de ayer le hubiera centrado aún más. hoy el perro ha estado así, centrado y sumiso, obediencia al Amo. estuvo preparando cosas de la no-vida. el perro parece que necesita un par de días después de mucha sociabilidad, para volver a sentirse bien. el Amo ya se lo ha dicho, que no le sienta bien al perro tanta actividad exterior,t anto estar volcado hacia afuera. así poco a poco, el pero va aprendiendo y descubriendo que está en su naturaleza el aislamiento y el encierro, que nació para vivir enjaulado y esclavizado por su Amo.</div><div style="text-align: justify;">el diario de un esclavo parece haberse convertido en un diario de castidad, pero en estos momentos estos dos conceptos de identifican profundamente. de hecho uno de los castigos que sopesó el Amo para la falta de ayer hubiera sido dejar la castidad, pero consideró que eso sería un retroceso, una marcha atrás en el proceso de esclavización del perro, así que no lo hizo. para el perro hubiera sido una profunda humillación, un golpe durísismo. se supone que debería estar ansioso por poder correrme, por poder ordeñarrme y sacar la leche, pero el perro no lo está, más bien al contrario, lo viviría como un profundo fracaso. el control del Amo es estricto, pero aún el perro puede fallar, como se comprobó ayer, el perro puede desobedecer, si no existiera esa posibilidad al menos, el sacrifico no merecería tanto la pena ni valdría tanto. y para este perro, la obediencia al Amo tiene un gran valor.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

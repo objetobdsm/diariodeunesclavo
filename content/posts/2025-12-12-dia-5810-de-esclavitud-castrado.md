@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5810 de esclavitud, castrado permanentemente"
+date: 2025-12-12 23:11:00 +0000
+permalink: /2025/12/dia-5810-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> un día intenso pero ambivalente en cuarto a sentirlo provechoso. por la mañana el objeto fue a la oficina pensando que podría dedicar todo el tiempo concentrado trabajando. al final una reunión demasiado larga lo despistó y el objeto no pudo volver a concentrarse, así que el objeto se fue pronto a casa con permiso de mi Señor. </p><p style="text-align: justify;">por la tarde estuvo conectado todo el tiempo en un seminario online de los estudio que está haciendo. mi Señor tenía en mente la posibilidad de hacer la llamada a capítulo pero lo dejó para el domingo porque prefirió que su objeto se formara y aprendiera. durante la tarde empezaron a sentirse los efectos de la borrasca que ha afectado a las islas: lluvias intensas, vientos muy fuertes, truenos y relámpagos, algo a lo que no estamos acostumbrados por aquí.</p><p style="text-align: justify;">el seminario estuvo interesante y al terminar el objeto fue al fisio. tenía hora para el lunes por la mañana pero le han puesto una reunión en tenerife así que el fisio, muy amablemente, le dio cita para hoy. fue y efectivamente le estuvo manipulando la zona con un masaje de descarga. es la primera vez que la toca alguien desde que tuvo el último ataque que lo llevó al hospital. afortunadamente desde que salió de allí no le ha vuelto a doler y el masaje de hoy tampoco, aunque le dijo al objeto que mañana tal vez no, pero el domingo empezaría a molestarle un poco, pero que era normal. el objeto regresó a casa en medio de una fuerte lluvia y se acostó pronto.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega. </p>

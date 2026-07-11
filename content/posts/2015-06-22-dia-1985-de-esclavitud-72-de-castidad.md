@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1985 de esclavitud, 72 de castidad"
+date: 2015-06-22 22:49:00 +0000
+permalink: /2015/06/dia-1985-de-esclavitud-72-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">esta semana es una de esas semanas de intensidad: reuniones, plazos, etc. todo, o casi todo, debería estar terminado para el viernes, o a más tardar el martes de la semana que viene, es decir, a final de mes. por eso la mañana del perro fue de locos. estuvo corriendo todo el tiempo intentando, y consiguiendo por cierto, llegar a lo que tenía que hacer. como no era para menos, algunas compañeras del trabajo se pasaron el tiempo criticando gratuitamente y cotilleando. gracias al Dueño el perro está por encima de eso.<br/>por la tarde tenía curso en la universidad del master. el perro tiene unas ganas enormes de terminar con esto. tal vez no pueda conseguir terminar todos los créditos este año, pero espera que el que viene sólo tenga que hacer alguna cosa esporádica.<br/>el perro llegó a casa cansado pero contento porque había cumplido todo lo propuesto para el día. se da cuenta que no está llevando el diario como debiera, que vuelve a retrasarse, pero es que a este ritmo es prácticamente imposible, por eso el cambio. supone que tras el verano la cosa será más llevadera y tranquila, o que al menos tendrá más tiempo para ponerse a escribir y llevar el blog al día. este blog es exigente. no es lo mismo escribir una o dos entradas a la semana que dos o tres al día. no sólo es una cuestión de tiempo, sino también de creatividad. no siempre se tienen ideas originales y muchas veces las cosas se repiten, pero cualquiera que haya llevado un diario sabe que eso es así porque eres el mismo siempre y no vives tantas cosas diferentes sino que son las mismas que vas madurando poco a poco. si lo escribes y alguien lo lee es fácil que se pueda hacer una imagen de como eres. es como estar desnudo ante los lectores y el perro intenta hacerlo lo mejor posible.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

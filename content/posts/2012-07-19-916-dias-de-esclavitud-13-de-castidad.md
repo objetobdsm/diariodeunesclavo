@@ -1,0 +1,10 @@
+---
+layout: post
+title: "916 días de esclavitud, 13 de castidad"
+date: 2012-07-19 22:00:00 +0000
+permalink: /2012/07/916-dias-de-esclavitud-13-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">nada más despertar ese perro obedeció a su Dueño. empezó a ordeñarse, pero primero se puso el cockring de cuero que sujeta polla y huevos por separado, luego la mordaza y las pinzas en los pezones. no había orden explícita al respecto, pero es la costumbre, es como si no pudiera hacerlo así.  desde que estuvo con su Dueño este perro no se había puesto las pinzas y el dolor fue muy intenso, tanto que este perro estuvo tentado de quitárselas durante un momento. pero resistió y pudo seguir. para excitarse puso un video de boundgods. no costó mucho, la verdad, que este perro se excitara. pronto este esclavo se ordeñó, sin  mostrar ningún sigo de placer, ni emitir ningún gemido. era la priemra vez que este perro se ordeñaba desde que estuvo por útlima vez ocn su Amo, y la verdad es que no puede decir que disfrutara. sencillamente obedeció. no fue ni agradable ni desagradable, sencillamente obedecí. la mezcla de dolor y placer es tal que casi se anulan mutuamente. es parte del entrenamiento. mi Dueño ha dihco ya que ese es su objetivo cno su perro: el placer y el dolor deben supeditarse a la obediencia porque la obediencia es lo único importante, lo único que se le permite a este perro.</div><div style="text-align: justify;">tras ordeñarse este perro estuvo trabajando un poco en algunas cosas y tuvo que salir para hacer algunas gestioes. por latarde este perro fue a la manifestación de las palmas en protesta por los últimos recortes. por supuesto mi Dueño dio su permiso para asistir a esa manifestación. cualquier actividad de este perro está autoridaza por su amo. la herramienta de control de su Dueño es la necesidad de permiso para cualquier actividad. pero llegará un día en que El tendrá la llave de la celda dodne vivirá este esclavo y sólo abrirá la puerta cuando El quiera, para lo que El quiera.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

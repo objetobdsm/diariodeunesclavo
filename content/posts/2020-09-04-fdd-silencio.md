@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD silencio"
+date: 2020-09-04 18:00:00 +0000
+permalink: /2020/09/fdd-silencio.html
+tags:
+  - mordazas
+  - bondage
+  - FdD
+---
+
+<p></p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/58/da/58daa6a27e47980557b7a41f24de1eec6d5d73c28b4eb19281332d7435690932.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="812" data-original-width="540" height="640" src="/uploads/d8/6c/d86cef3cfe8e4d3760e4ced4847e53462ef921e2f018d2a1518729419e59e6b5.jpg" width="426" /> </a></div><div class="separator" style="clear: both; text-align: justify;">el Dueño ha hecho muchos regalos al objeto: la sumisión, vivir en obediencia, la castidad.... pero un regalo inesperado ha sido el silencio. el objeto no sabía lo importante que era hasta que el Dueño lo convirtió en norma. es cierto que las mordazas siempre estaban presentes. es cierto que había señales, como una frase dicha sin intención en medio de una conversación, pero que molestaba al Dueño, pero no fue hasta que el Dueño dijo que no quería volver a ver la boca del objeto salvo cuando fuera estrictamente imprescindible y que no volvería a hablar en Su presencia a menos que lo ordenara, cuando el objeto empezó a comprender la dimensión del silencio, y lo necesario que es para un inferior. no ha absolutamente nada que pueda decir un inferior que interese a un Superior: ni las opiniones, ni las ideas, ni los pensamientos, ni los juicios, ni los criterios, ni los discursos. y todo eso incluso, se puede escribir. la escritura usa un intermediario, el soporte y lo que se escribe en él, lo que produce un distanciamiento del inferior, y limita por tanto su responsabilidad. la palabra sale directamente de tu interior y eres responsable directo de todo lo que dices. es cierto que un sumiso no tiene derecho a la intimidad y que sus pensamientos, sentimientos y todo lo que tiene en su interior debe ponerlo a los pies del Amo, pero para eso está la escritura. el resto del tiempo debe estar en silencio, rumiando la sumisión, la obediencia, la entrega incondicional. al objeto eso le da paz y ha sido uno de los mayores regalos que el Dueño ha hecho al objeto. <br /></div><br /> <p></p>

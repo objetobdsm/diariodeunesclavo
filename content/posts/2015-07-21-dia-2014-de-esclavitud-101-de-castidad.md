@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2014 de esclavitud, 101 de castidad"
+date: 2015-07-21 22:26:00 +0000
+permalink: /2015/07/dia-2014-de-esclavitud-101-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el perro cree que está triste y despistado. lo primero porque está pasando por una de sus etapas ciclotímicas en las que se vuelve más taciturno y melancólico de lo normal. esto va acompañado de un sentimiento de impotencia y desgana generalizado. es importante ser consciente de ello porque puede influir mucho en una relación de Dominación/sumisión. si el esclavo, o el Amo, tienen esta tendencia y están pasando por ella, hay que ser extremadamente cuidadoso para no forzar los límites y llegar a cruzarlos.<br/>lo segundo es fruto de la lejanía. este año ha sido muy intenso, demasiado. el hecho de ocupar un puesto de responsabilidad ha sido positivo pero también ha pasado factura al perro. cuando terminó el 1 de julio, el perro creyó que comenzaría una nueva vida, que las cosas cambiarían de la noche a la mañana y no ha sido así, de hecho la inercia sigue y supone el perro que ahora tendrá que frenar y luego retomar lo del cambio de vida.<br/>eso se está notando mucho en el blog, que vuelve a estar retrasado. ahora el perro tiene tiempo, aunque no se siente interiormente con fuerza para enfrentarse a sus demonios. escribir este diario requiere energía porque desnudarse tan públicamente, aunque la identidad del perro permanezca oculta, no es sencillo. el perro no siempre tiene fuerzas para hacerlo. en la mayoría de las ocasiones la tardanza en la actualización no es por falta de ganas o vagancia, sino por falta de fuerzas para ser capaz de decir las cosas como el perro las vive o las siente. espera y desea que el Dueño y los lectores lo entiendan y sepan perdonarlo.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

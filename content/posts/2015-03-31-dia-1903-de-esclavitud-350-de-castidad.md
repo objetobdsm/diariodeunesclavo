@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1903 de esclavitud, 350 de castidad"
+date: 2015-03-31 22:35:00 +0000
+permalink: /2015/03/dia-1903-de-esclavitud-350-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el perro está durmiendo un montón en estas vacaciones, más de lo que suele hacer. supone que es un síntoma del cansancio y de la no vida que le hace mantener un ritmo endiablado.<br/>el familiar que hizo que el perro no pudiera ir a visitar y servir al Dueño está mejorando así que la semana después de semana santa irá el perro a madrid, a postrarse ante las botas de su Dueño.<br/>la espera forma parte de la vida del perro porque, aunque está lejos, el perro tiene Dueño, pertenece a alguien. últimamente el perro ha recibido mensajes de esclavos que están perdidos porque sienten unos profundos deseos, necesidad casi, de someterse, y sólo han encontrado Amos irresponsables o ningún Amo en absoluto. son lectores del blog, y el perro supone que ven lo que allí pone y buscan algo parecido.<br/>el perro manda al Dueño todos estos mensajes de estos esclavos y Él decide. normalmente le permite mantener el contacto con el perro, pero el tiempo, la distancia, las diferencias de comunicación, no permiten que ese contacto se prolongue en el tiempo.<br/>de lo que sirven esos mensajes es para que el perro se de cuenta de lo afortunado que es al poder llamar a su Amo, Dueño.<br/>pero también sirve para que se de cuenta de lo difícil y complicado que es que auténticos Amos y esclavos se encuentren. en su camino, encontrándose con unos y con otros, se ha dado cuenta de que existen de ambos tipos, gente sincera que buscan su opuesto complementario, pero conectar ambos, tener la fortuna de encontrarse, es algo excepcionalmente valioso.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

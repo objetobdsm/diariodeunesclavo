@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1443 de esclavitud, 14 de castidad"
+date: 2013-12-28 22:02:00 +0000
+permalink: /2013/12/dia-1443-de-esclavitud-14-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">si tu objetivo es más obedecer a tu Amo y servirle, que excitarte y conseguir tu autosatisfacción, la jaula de castidad se convierte entonces en tu aliado. no es una condena, no es un obstáculo. es una herramienta para desarrollar tu sumisión.<br/>hay un momento fundamental en la vida de todo esclavo: cuando descubre que ha nacido para servir y obedecer, que sólo así alcanzará su realización y, por tanto, su felicidad. cuando eso ocurre tu excitación, tu satisfacción se convierte en algo secundario o derivado. sólo te excitas cuando excitas a tu Amo y tu satisfacción viene de las suyas.<br/>la jaula es control para tu Amo y descontrol para ti, descontrol porque ya no puedes hacer nada sino someterte. pero no hay disposiciones que sea cien por cien seguro, porque no es tanto un impedimento para que accedas a tus genitales, cuanto una herramienta para conseguir tu obediencia. debe verse, por tanto, como algo positivo, no como algo negativo, no tanto impide cuanto posibilita. es la materialización de haber dad ese paso que hablaba previamente.<br/>es cierto que a veces el perro quiere quitárselas, sacársela, pero no es más que una tentación del ego, para apartarse del camino de la obediencia, porque una casa está clara y es evidente, es cuanto más te masturbas y más te autosatisfaces, menos obediente te vuelves.<br/>cuando aún no era un perro, cuando aún era humano, recuerda el esclavo cómo, tras masturbarse o correrse, la sumisión se reducía considerablemente. hay una relación directa entre el tiempo sin correrte y el nivel de obediencia y sumisión. eso ya se terminó. acabó cuando el Dueño puso el collar alrededor del cuello.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

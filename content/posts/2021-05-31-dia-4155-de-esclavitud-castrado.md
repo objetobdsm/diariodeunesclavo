@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 4155 de esclavitud, castrado permanentemente"
+date: 2021-05-31 21:27:00 +0000
+permalink: /2021/05/dia-4155-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> ha sido un día de muchas cosas. hoy el objeto salía del trabajo temprano, como a media mañana, y estuvo el resto haciendo cosas de humano que no pudo hacer el fin de semana pasado, que es el tiempo que el objeto dedica a esas cosas. una de ellas fue acompañara a un conocido a ikea porque este tenía que mirar algunas cosas y le pidió que lo llevara. algo tan nimio se convirtió en una experiencia de sumisión por una sencilla razón: el ruido de las botas del objeto al caminar por ese suelo. esto no sabe por qué pero sus pasos parecían resonar más de lo normal y eso comenzó a excitarlo, no en el sentido de tener una erección, algo imposible con la jaula, sino en una excitación interior. cada paso era como un golpe que resonaba y que iba machacando los últimos restos que quedaban en la mente del objeto. siempre ha pensado, y ha publicado en ese blog, que el Dueño tejió alrededor del objeto una red de normas, rituales, comportamientos, que poco a poco han ido rompiendo el ser que era antes de que el Dueño lo encontrara, y lo han ido convirtiendo en un objeto sometido a su voluntad. realmente no tenía que hacer nada, solo ordenar llevar botas, llevar la jaula, y eso, por si mismo, ha ido destruyendo al humano que era antes y ha ido creando al nuevo objeto. es como la tortura esa de la gota. algo insignificante aparentemente es capaz de destruir la roca más dura. y eso ha hecho el Dueño, y es algo que el objeto suplicó en su momento, tal vez creyendo que era imposible, pero aquí está, caminando por los pasillos de ikea oyendo el ruido de las botas que golpea su mente hundiéndolo aún más en la esclavitud y en la sumisión.<br />sumisión en silencio, castidad y obediencia ciega. <br /></p>

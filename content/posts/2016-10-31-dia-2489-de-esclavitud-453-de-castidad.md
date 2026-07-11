@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2489 de esclavitud, 453 de castidad"
+date: 2016-10-31 22:51:00 +0000
+permalink: /2016/10/dia-2489-de-esclavitud-453-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">parece una contradicción, y de hecho en parte lo es, pero físicamente 402 se siente muy cachondo y con ganas de sexo mientras anímicamente y a nivel psicológico se siente un poco triste y deprimido. se pueden sentir las dos cosas aunque en el caso de este objeto incluso ha llegado a pensar que es consecuencia de lo otro ¿puede alguien sentirse deprimido por sentirse cachondo? si vives en castidad forzada, es posible. la presencia del deseo frustrado puede ocasionar ese efecto anímico, pero ese es precisamente lo que se busca porque lo siguiente tras el decaimiento por la frustración es la aceptación de la situación.<br/>muchas veces en este blog con respecto al tema se ha usado la palabra "castrado", porque realmente 402 se siente así, con la jaula permanentemente en lugar de su pene y sus genitales. es como si se hubiera vuelto de plástico. después de más de un año en castidad, con algunos ordeños doloroso con la jaula puesta, lo que significa un orgasmo arruinado, 402 está aceptando que ese es su destino y que ese será su futuro, sin sexo y sin deseos, o al menos siendo su deseo controlado por el Dueño.<br/>el tema, como ha dicho en otras ocasiones lleva al punto de no sentirse bien cuando tiene que quitar la jaula por ir al médico o para lavarla. en esos casos quiere volver a ponérsela inmediatamente.<br/>el objetivo es que ahora, con una reprogramación, la erección o incluso la eyaculación, solo se produzcan cuando el Dueño lo ordene y desee, que 402 no tenga control sobre su cuerpo y que éste sea ejercido por el Dueño exclusivamente.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

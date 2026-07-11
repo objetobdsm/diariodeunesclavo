@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5539 de esclavitud, castrado permanentemente"
+date: 2025-03-15 23:09:00 +0000
+permalink: /2025/03/dia-5539-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el día del objeto ha estado marcado por el conflicto con una persona cercana, un humano con el que el objeto ha tenido un roce, no por ego sino porque ha aplicado el principio de mi Señor de que no debía dejarse pisar por nadie. inmediatamente el objeto se dio cuenta de que mi Señor iba a usar este hecho para medir el grado en que acontecimientos como este podrían afectar la existencia del objeto. durante todo el día estuvo pendiente de su propiedad, preguntando sobre todo cómo se sentía y si eso estaba afectando al objeto. extrañamente, porque en otros momentos de su vida no habría sido así, el objeto estuvo tranquilo, calmado, e incluso podría decir que en paz. tenía clases del master por la mañana así que se conectó y estuvo presente mientras el tiempo pasaba. la tarde fue parecida y durante todo el tiempo el objeto estuvo en calma, siempre pensando en mi Señor. cuando terminó el día la cosa pareció arreglarse un poco pero fue mi Señor quien dijo que había ido todo bien y que su entrenamiento estaba dando resultado. recordó al objeto situaciones parecidas del pasado y lo mal que lo había pasado el objeto en ellas. efectivamente esto se dio cuenta de lo que decía mi Señor, y de cómo su mano está en todo el entrenamiento al que ha sometido al objeto. el cambio es tan profundo y radical que casi podría decirse que no es una transformación sino una nueva creación. el próximo jueves el objeto estará ya bajo las botas de mi Señor y entonces podrá seguir el entrenamiento y renovar la devoción que siente por Él. todos los viajes son significativos pero no sabe por qué el objeto tiene la sensación de que este será diferente.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2799 de esclavitud, 771 de castidad"
+date: 2017-09-13 22:36:00 +0000
+permalink: /2017/09/dia-2799-de-esclavitud-771-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el poder consiste en conseguir que otro haga lo que uno quiere. esta es la definición básica. en el bdsm, sea cual sea su fetiche o su definición, todas las relaciones están basadas en el intercambio de poder, uno lo tiene en mayor o menor medida, y el otro no. según el grado los inferiores sentimos excitación, y necesitamos, renunciar a cualquier poder que tengamos, mientras que los Superiores funcionan con el criterio inverso. Ellos necesitan y se excitan con el mayor poder posible.<br/>esto parece simple y evidente. sin embargo también puede ser fácilmente pervertido, y no en el buen sentido de la palabra, porque hay muchos esclavos, supuestamente inferiores, que conservan y adquieren gran parte de poder en la relación, camuflándolo la mayoría de las veces de sumisión. por ejemplo, cuando un inferior dice "me convierto en su esclavo si...." ahí no hay ninguna renuncia ni cesión del poder, de hecho es una forma de conservarlo e incluso incrementarlo. parece que se está entregando o sometiendo pero la condición hace que se invalide esa entrega. es como cuando usamos un nexo adversativo. la mayoría de la gente no se da cuenta de que cuando eso ocurre se borra todo lo anterior: "eres una persona maravillosa y muy guapa pero.....". lo que realmente está diciendo es que NO eres una persona ni maravillosa ni guapa. eso vale también para los sin embargo, aún así, no obstante.... y un largo etcétera.<br/>este post puede parecer una clase de lengua, pero el lenguaje es el vehículo con el que expresamos a los Superiores nuestra disposición y nuestro interior, al que no tienen acceso porque no tienen que ser telépatas ni adivinos. hay una diferencia abismal entre "me convierto en su esclavo si...." y "suplico convertirme en su esclavo".<br/>sumisión en silencio, castidad y obediencia ciega.</p>

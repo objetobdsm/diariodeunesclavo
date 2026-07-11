@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5662 de esclavitud, castrado permanentemente"
+date: 2025-07-16 22:43:00 +0000
+permalink: /2025/07/dia-5662-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el objeto ha ido, siempre con permiso del Amo y Señor, a la universidad a trabajar. realmente va a acompañar a una conocida que necesita ir con alguien para ponerse a terminar cosas que tenía pendientes y el objeto puede trabajar casi en cualquier parte. es un acto de "compañerismo", aunque esta no sea la palabra adecuada. mi Señor lo permite básicamente porque Es es una buena persona que mira por los demás. en estos quince años de esclavitud lo ha visto el objeto realizar voluntariado social y muchas acciones que ya les gustaría a la gente bienpensante. es esa combinación lo que lo convierte en tan bien Amo. su dominación está guiada por el bien, no por el egoísmo por una necesidad de compensar alguna carencia. por ejemplo no para de repetir a menudo especialmente durante la última crisis del objeto, que Él solo quiere su mejor bien para esto y que eso pasa por un castigo si es necesario por el micro control. mi Señor sabe que eso es lo que el objeto necesita y solo El puede "dárselo".</p><p style="text-align: justify;">tal y como imaginaba el esclavo mexicano envió un mensaje hoy dando por terminada la tutoría. al menos se disculpó pero el objeto intuye que esa era su intención desde el principio. el objeto puede entender la dinámica de necesidad - búsqueda - realización - rechazo, que se produce en muchos esclavos, especialmente en aquellos que están comenzando. sin embargo él ya pertenecía a un Amo antes de ser tutorando. en cualquier caso el objeto ya tenía orden del Amo de no seguir con esto así que no ha contestado siquiera el mensaje.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

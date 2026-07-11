@@ -1,0 +1,10 @@
+---
+layout: post
+title: "cartas desde la mazmorra 67"
+date: 2012-12-11 10:41:00 +0000
+permalink: /2012/12/cartas-desde-la-mazmorra-67.html
+tags:
+  - cartas
+---
+
+<br /><div style="text-align: justify;">la idea original de estas cartas era mostrar la filosofía, el pensamiento y las ideas que conformaban la base de la relación de Dominación/sumisión que mantienen el Dueño y el perro. no es fácil escribir todas las semanas de una forma acertada y que despierte el interés, especialmente cuando hay otras actividades que hacer, tanto en la vida como en la no-vida.</div><div style="text-align: justify;">el pasado domingo el Amo mantuvo encerrado al esclavo en una habitación, vestido de cuero y amordazado mientras lo vigilaba por webcam. la idea del Amo era clara: "Así será toda tu vida". durante ese tiempo el esclavo estuvo trabajando, sentado en la mesa haciendo trabajo intelectual. estaba encerrado, estaba amordazado, pero seguía siendo productivo. el tema es que si tuviera que trabajar fuera de la mazmorra, lo haría gustosamente pero si tuviera que quedarse en ella también lo haría a gusto. el esclavo sabe que el Amo quiere un desarrollo integral y armónico del esclavo. cuidar al perro significa no sólo cuidar físicamente, sino también psicológicamente, de su propiedad.</div><div style="text-align: justify;">un esclavo que no produce es un esclavo inútil. un esclavo no realizado no hace bien su trabajo  ninguna de las dos cosas son aceptables para el Amo. la responsabilidad del Amo incluye este aspecto, esta dimensión. el esclavo debe producir, porque él existe para y por el Amo y no a la inversa.</div><div style="text-align: justify;">la cuestión es qué debe producir el esclavo. la respuesta es obvia: aquello que el Amo desee: bienes materiales, bienes intelectuales, o sencillamente placeres. lamer las botas está bien, muy bien, pero no puede ser lo único que aporte el esclavo. si al Amo le gusta comer, tendrá que volverse un cocinero, si es un lector deberá hacerse escritor, si el sexo, entonces el mejor amante.... todo gira alrededor del Amo para un esclavo.</div><div>feliz semana</div>

@@ -1,0 +1,8 @@
+---
+layout: post
+title: "nueva mudanza"
+date: 2023-02-10 20:12:00 +0000
+permalink: /2023/02/nueva-mudanza.html
+---
+
+<p style="text-align: justify;">el objeto confiaba en que, al volver a blogger hace algún tiempo, aquello se convertiría en su casa definitiva. las diferentes mudanzas habían hecho que muchas entradas del blog se desconfiguraran y esto pensó que no merecía la pena. sin embargo recientemente blogger ha endurecido las medidas para acceder al blog, obligando a confirmar la edad mediante el inicio de sesión. esto significa que no se podrá visitar el blog de manera anónima y que quedará fuera del alcance de los que no tengan una cuenta de gmail.<br /><br />puesto esto bajo las botas del Dueño lo mejor ha sido volverse a mudar a un sitio donde el Dueño, y el objeto como instrumento suyo, controlen quien accede así como los contenidos. esto requiere cierto desembolso económico y volver a reestructurar muchas entradas que han quedado descolocadas pero cree el Dueño que merece la pena.<br /></p><p style="text-align: justify;">y por eso nos hemos mudado y hemos comenzado a publicar todo lo nuevo en un espacio diferente. así que a partir de ahora para acceder se puede hacer desde las siguientes direcciones:<br /><br /><a href="http://www.diariodeunobjeto.home.blog" target="_blank">http://www.diariodeunobjeto.home.blog</a><br /><br /><a href="http://www.diariodeunesclavo.com" target="_blank">http://www.diariodeunesclavo.com</a><br /><br /><a href="http://www.diariodeunobjeto.com" target="_blank">http://www.diariodeunobjeto.com</a><br /><br />este proyecto sigue adelante pese a quien le pese.</p><p style="text-align: justify;">un saludo muy fuerte <br /></p>

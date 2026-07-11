@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1052 dias de esclavitud, 3 de castidad"
+date: 2012-12-02 20:58:00 +0000
+permalink: /2012/12/1052-dias-de-esclavitud-3-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;"> el día encerrado ha servido para algo, para que el perro se diera cuenta de lo perdido que estaba. hace dos semanas que este perro estaba muy descentrado, muy despistado, desorientado. uno de los indicadores más claros era el blog, que había dejado de ser una prioridad. este día en silencio en casa ha servido para darme cuenta de lo importante que es el encierro y la soledad para estar conectado con la naturaleza propia de uno y lo fácil que es dejarse seducir por el mundo del ego: apariencia, autonomía, ilusión de control... todo eso poco a poco va minando la auténtica sumisión. es cierto que este perro no ha tomado una decisión consciente ni ha faltado a las órdenes del Amo, pero sí señala un peligro más importante. se puede faltar por desobediencia, pero también se puede faltar por dejadez y omisión. no desobedecer no significa necesariamente obedecer. la obediencia es proactiva, en el sentido de que una vez dada una orden, debe cumplirse. hace lo contrario es desobedecer, pero no hacer nada también es desobedecer. un esclavo no es siempre alguien pasivo completamente, debe ser muy activo en cumplir la voluntad de su Dueño. hoy este perro ha hecho un profundo examen de conciencia sin interferencias y ha descubierto que en las dos últimas semanas se ha relajado un poco. el Amo quiere para él un estilo de vida, una forma de afrontar la realidad que el perro no ha llevado a cabo. tomar conciencia de ese hecho es importante porque es el primer paso para cambiar.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div><br />

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1005 dias de esclavitud, 5 de castidad"
+date: 2012-10-16 21:17:00 +0000
+permalink: /2012/10/1005-dias-de-esclavitud-5-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">19:12 el Dueño ha ordenado que me encierre. eso significa que estaré un tiempo, dos horas parece ser, en aislamiento, como si viviera en la mazmorra. siguiendo las órdenes del Dueño este perro se ha puesto unas botas altas negras, collar de cuero, muñequeras y el cockring que lleva puesto toda la tarde. además se ha amordazado con dos tiras de cinta americana y debe estar así al menos hasta las nueve de la noche o cuando el Dueño ordene. en ese tiempo debo buscarle al Dueño cosas que le gusten por internet, cosas que le hagan pasar un buen rato y lo relajen. a eso se pone este perro inmediatamente.</div><div style="text-align: justify;"><br /></div><div style="text-align: justify;">00:00 durante el tiempo que estuvo encerrado, este perro tenía que buscar cosas que le gustaran al Dueño, y así lo hizo. en un momento dado preguntó al Dueño si podía hablar con El, y comenzamos una conversación con videoconferencia, en la que el Amo ordenó al perro que se ordeñara. el esclavo obedeció la orden.</div><div style="text-align: justify;">fue todo muy intenso. el Amo hablaba y este perro tecleaba, aún con las manos manchadas con la leche. luego el Dueño le ordenó que se colocara las pinzas en los pezones y este perro obedeció sin rechistar. el Amo estuvo jugando con su perro hasta que l ordenó que se arrancara las pinzas de golpe, y así lo hizo con gran dolor. la conversación siguió algún tiempo más y el Amo ordenó al perro que continuara con el encierro hasta la hora.</div><div style="text-align: justify;">estos encuentros, en la distancia, pero encuentros al fin y al cabo, son los que marcan la diferencia entre un día normal y anodino y un día especial al servicio del Dueño. tras ellos la sumisión sale renovada y los deseos de servir al Amo se acrecientan de una forma brutal.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

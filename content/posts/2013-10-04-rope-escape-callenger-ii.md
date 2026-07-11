@@ -1,0 +1,10 @@
+---
+layout: post
+title: "rope escape callenger II"
+date: 2013-10-04 09:25:00 +0000
+permalink: /2013/10/rope-escape-callenger-ii.html
+tags:
+  - videos
+---
+
+<div class="separator" style="clear: both; text-align: center;"><object width="520" height="466" class="BLOG_video_class" id="BLOG_video-57117bba9076e06b" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=6,0,40,0"><param name="movie" value="//www.youtube.com/get_player"><param name="bgcolor" value="#FFFFFF"><param name="allowfullscreen" value="true"><param name="flashvars" value="flvurl=http://redirector.googlevideo.com/videoplayback?id%3D57117bba9076e06b%26itag%3D5%26source%3Dblogger%26app%3Dblogger%26cmo%3Dsensitive_content%253Dyes%26ip%3D0.0.0.0%26ipbits%3D0%26expire%3D1383223055%26sparams%3Did,itag,source,ip,ipbits,expire%26signature%3D15F414D2C3BB00B7B581A71862DBEA620D4DC1A5.DBED5E491AE105136A4CECFCAB51D0BEE229DC6%26key%3Dck2&iurl=http://video.google.com/ThumbnailServer2?app%3Dblogger%26contentid%3D57117bba9076e06b%26offsetms%3D5000%26itag%3Dw160%26sigh%3DfQRQczuygkn_5KR63PjlFWRwMv0&autoplay=0&ps=blogger"><embed src="//www.youtube.com/get_player" type="application/x-shockwave-flash" width="520" height="466" bgcolor="#FFFFFF" flashvars="flvurl=http://redirector.googlevideo.com/videoplayback?id%3D57117bba9076e06b%26itag%3D5%26source%3Dblogger%26app%3Dblogger%26cmo%3Dsensitive_content%253Dyes%26ip%3D0.0.0.0%26ipbits%3D0%26expire%3D1383223055%26sparams%3Did,itag,source,ip,ipbits,expire%26signature%3D15F414D2C3BB00B7B581A71862DBEA620D4DC1A5.DBED5E491AE105136A4CECFCAB51D0BEE229DC6%26key%3Dck2&iurl=http://video.google.com/ThumbnailServer2?app%3Dblogger%26contentid%3D57117bba9076e06b%26offsetms%3D5000%26itag%3Dw160%26sigh%3DfQRQczuygkn_5KR63PjlFWRwMv0&autoplay=0&ps=blogger" allowFullScreen="true" /></object></div>un video increíblemente bueno: un motero atado y amordazado. si quieres visitar el blog en tumblr donde está el video,<a href="http://jhardcastle1976.tumblr.com/" target="_blank"> pincha aquí.</a>

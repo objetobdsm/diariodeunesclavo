@@ -1,0 +1,10 @@
+---
+layout: post
+title: "dia 1969 de esclavitud, 56 de castidad"
+date: 2015-06-06 22:56:00 +0000
+permalink: /2015/06/dia-1969-de-esclavitud-56-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hay días en que el perro se siente extraño, más sumiso de lo normal, como si el deseo de someterse estuviera a flor de piel. hoy es uno de esos días. de hecho de lo que tiene ganas el perro, de lo que ha tenido ganas todo el día, es de arrodillarse delante de us Dueño, besar sus botas y luego permanecer quieto con la frente tocando el suelo delante suya.<br/>al perro no se le escapa que esa es una actitud propia de la adoración de un fiel ante una divinidad. no llega el perro a decir que su Dueño sea un dios, pero sí que puede llegar a venerarlo de alguna manera. lo que si afirma es que es un ser superior al perro y que está muy por encima de él.<br/>ha sido un deseo muy fuerte todo el día que se ha convertido en una necesidad casi. y tiene un punto de extrañeza porque el perro no acostumbra a albergar estos sentimientos ya que la sumisión se manifiesta de otros modos. el perro había leído que muchos Amos obligan a sus esclavos a un protocolo estricto consistente en que besan los pies arrodillados de sus Amos cada vez que entran en su presencia o que El entra en la habitación. al perro, al principio, le pareció algo excesivo, pero ha llegado a entenderlo ligeramente o está empezando a entenderlo. no es una forma de adulación gratuíta sino el reconocimiento de una situación de hecho, de una relación asimétrica que indica un orden determinado, que es natural entre los dos: uno domina y manda, el otro es dominado y obedece.<br/>por supuesto se lo comunicó el perro al Dueño y, por supuesto, el Dueño lo vio como algo evidente y natural. un esclavo llega a un punto que admira y venera a su Amo y esta veneración sirve de fundamento para los siguientes pasos de la relación.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3057 de esclavitud, 1029 de castidad"
+date: 2018-05-29 22:13:00 +0000
+permalink: /2018/05/dia-3057-de-esclavitud-1029-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">la disciplina lo es todo. sin disciplina no hay orden, ni organización, ni equilibrio. no se pueden conseguir los objetivos, ni establecer prioridades. sin disciplina no se puede conseguir nada. los inferiores tenemos una necesidad imperiosa de disciplina, de orden. cuando nos dejamos a nuestro criterio esta desaparece y empezamos a fallar, a caer, a perder cosas, a hundirnos. la disciplina nos da eso que necesitamos imperiosamente: orden, dirección. cuando esa disciplina no se lleva a rajatabla las cosas empiezan a desmoronarse y a fallar, como le ha ocurrido al objeto con el blog. cuando no es estricto, cuando no cumplo, empieza un proceso cuesta abajo que sólo puede ser compensado con una vuelta radical a la disciplina. los inferiores necesitamos una vida organizada, estructurada, y no por nosotros, y esta es la clave, sino por un Superior. Su autoridad es la que nos mantiene afinados, como un instrumento, y cuando esto falla, como todo instrumento, empiezas a desafinar a soltar notas discordantes, a perder el sentido de lo que hacemos.<br/>esta es la razón por la que, cuando un inferior se convierte en propiedad de un Superior, y Éste comienza a guiar su vida, ésta mejora considerablemente. empiezan a caer objetivos, límites, aquello que parecía imposible se vuelve posible y todo empieza a ir mejor. esa es la experiencia que ha tenido el objeto. desde que el Dueño controla su existencia las cosas han ido a mejor. vive más tranquilo, más seguro de sí mismo, consigue más cosas. Su Guía y Su Orientación son fundamentales, dice que proyectos comenzar y cuáles no abordar, y sobre todo prohibe aquello que hace daño al objeto. han sido años de bonanza, de ir avanzando, y todo se lo debe esto al Dueño.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

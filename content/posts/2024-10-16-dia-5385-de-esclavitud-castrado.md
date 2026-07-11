@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5385 de esclavitud, castrado permanentemente"
+date: 2024-10-16 22:08:00 +0000
+permalink: /2024/10/dia-5385-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el objeto ha estado todo el día en las jornadas, y la segunda mitad esperando a que saliera su avión de vuelta. para hacerse una idea el objeto se puso las botas, porque evidentemente fue con botas a las jornadas, a las siete de la mañana y no se las quitó hasta las doce de la noche. 17 horas ininterrumpidas. durante ese tiempo atendió a las jornadas, dio una ponencia y pasó cinco horas en el aeropuerto sin saber si su vuelo saldría definitivamente o tendría que hacer otra noche allí por causas climatológicas. ha sido toda una aventura pero muy interesante. ¿lo mejor de todo? que el ego no ha aparecido por ningún lado en ningún momento. y el primer sorprendido es el objeto. no debería porque el trabajo de mi Señor siempre es espectacular y cuando se propuso erradicar el ego de la existencia del objeto, esto sabía que el ego estaba condenado, pero hoy se ha dado cuenta del buen trabajo que ha realizado mi Señor. en otro momento, cuando el objeto aún se creía una persona, una experiencia como la de hoy hubiera sido demoledora física y psicológicamente. sin embargo no ha sido así. y todo gracias al trabajo de mi Señor. por supuesto tanto tiempo con tanta gente, y algunos de ellos intentando pinchar al objeto de alguna manera, era un caldo de cultivo ideal para que el ego saliera y de qué formas. pues nada, absolutamente nada. como dice mi Señor, pueden haber crisis pero el trabajo está hecho: el objeto es un objeto, con un ego muy reducido o inexistente y que vive en ataraxia. esta es la única realidad. todo lo demás son pequeños baches, pequeñas pruebas del camino y de esta existencia que mi Señor ha construido para su objeto.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

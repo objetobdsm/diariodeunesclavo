@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD conteniendo el aliento"
+date: 2011-08-25 06:19:00 +0000
+permalink: /2011/08/fdd-conteniendo-el-aliento.html
+tags:
+  - control respiración
+  - FdD
+---
+
+<br />
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/d0/7d/d07d1ad9ebc9cc73f89acd9bcd512a628d4f568cd4b6bb7548892009bea6c4fe.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="412" src="/uploads/13/db/13db627d5f6333ee70ab7f8fba04d961c9d7a7910bf2ef8edb6abb9821aea77f.jpg" width="640" /></a></div><div style="text-align: justify;">la semana pasada leí un artículo sobre la realidad de la esclavitud 24/7 y de lo distinto que es cuando nos imaginamos una cosa y la realidad de esa cosa vivida. una de las frases más repetidas del artículo es que, cuando aceptas ponerte el collar de tu Amo, en ese momento renuncias a cualquier derecho que tuvieras y cosas tan cotidianas como oir la música que te gusta, o sentarte en una silla, se convierten en un privilegio que tienes que pedir y que se te concede. la ropa, tu aspecto físico, tu comportamiento, todo eso está supeditado a la voluntad del Amo. sencillamente dejas de tener derechos, y por tanto no puedes afirmar que algo es injusto o que te mereces una recompensa por alguna cosa que has hecho.</div><div style="text-align: justify;">cuando te conviertes de verdad en esclavo de alguien te sometes a El de tal forma que dependes 100% de Su voluntad, y cuando digo 100% realmente me refiero a un 130%. llegas a depender de El de tal manera que sientes que hasta respirar es un privilegio. a mi Dueño le gusta manifestar este hecho con el breath-control. cada vez que nos hemos encontrado lo ha practicado con este perro. es una práctica muy arriesgada que ha provocado la muerte de algunos amantes del bdsm, pero nada expresa mejor la dependencia de un esclavo que sentir que hasta su respiración es un regalo de su Dueño, de que su vida entera está en Sus manos y la puede usar como quiera. la sensación de paz por el sometimiento y la rendición que se produce es profunda, total. la dependencia es lo único que existe, porque sabes que si El no te quita la capucha, dejarás de existir. entonces El te la quita, pero la sensación permanece, porque sabes que sin Amo no tienes rumbo, no sabes a donde ir, no eres nada. </div>

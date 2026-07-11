@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2538 de esclavitud, 502 de castidad"
+date: 2016-12-19 22:10:00 +0000
+permalink: /2016/12/dia-2538-de-esclavitud-502-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">esta semana es una semana de trabajo muy intensa. hay que terminar muchas cosas antes de fin de año así que 402 tiene que ir mañana y tarde pero las vacaciones comenzarán. la semana que viene así que es el último empujón.<br/>en estos días de tanto trabajo 402 no puede evitar comparar el trabajo en la no-vida con lo que se supone trabajo en la vida, y dice trabajo porque realmente todo lo que hace relacionado con eso no lo siente como trabajo.<br/>el trabajo de la no-vida puede llegar a ser alienante en muchos aspectos y aunque el sueldo que te pagan por él ayuda y permite vivir, lo cierto es que a veces te amarga hasta privarte del disfrute de la existencia.<br/>en la vida, sin embargo, hasta el trabajo más duro se hace llevadero porque es parte de tu entrenamiento y de tu realización como esclavo. hoy ha pasado algo así y, como en otras ocasiones, solo la jaula y el control permanente del Dueño, han hecho que 402 siga conectado con su ser más profundo. a veces 402 se "entretenía" imaginando lo que pensaría los compañeros de la reunión si supieran que llevaba un dispositivo de castidad y que, cuando sale por la puerta se convierte, o más bien se realiza, como un objeto propiedad de alguien a quien venera y obedece. recibiría muchos rechazos pero seguro que también habría alguien que se acercaría a preguntar porque hay que admitir que es algo que llama la atención y produce curiosidad. además el efecto grey, ese producido por esa novela que tanto ha gustado a la mayoría de las mujeres, ha allanado un poco el camino, aunque sea un camino erróneo, edulcorado, no auténtico, de ficción.<br/>el hecho es que al final del día 402 estaba muy cansado, agotado y apenas llegó a casa, se acostó.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "760 días de esclavitud, 3 de castidad"
+date: 2012-02-14 23:00:00 +0000
+permalink: /2012/02/760-dias-de-esclavitud-3-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">los días caen y se suceden, y supongo que debería aceptar que así sería una vida de un esclavo, una vida hasta cierto punto monótona. trabajar, servir, trabajar. el tema es que trabajo para otro, no para mi Amo, ¿sería trabajo servirle o tener un empleo donde El se quedara con el dinero porque éste le pertence? es algoq en loq ue no había pensado antes. si el escalvo es propiedad de su Amo y el esclavo tiene sueldo, el sueldo es propiedad del Amo. es lógica pura y básica. de hecho mi AMo permite a este esclavo tener cierta autonomía con su sueldo, porque sabe que lo gestiona bien. aún así este perro debe consultar cualquier gasto extraordinario, algo que no sea estrictamente necesario. este perro no es muy gastón ni consume demasiado, así que últimamente estas súplicas son pocas. </div><div style="text-align: justify;">para muchos la dependencia económica es tal vez lo más chocante y sorprendente pero es una consecuencia natural y lógica de la esclavitud. ¿alguien es capaz de concebir un esclavo con su propio dinero? la verdad es que históricamente se produjo este hecho, llegando algunos esclavos a comprar su propia libertad con el dinero ahorrado.</div><div style="text-align: justify;">en la esclavitud moderna, sin embargo, es algo menos concebible, sobre todo porque lo que se busca, lo qu ebusca al menos este esclavo, es la dependencia absoluta.</div><div style="text-align: justify;">aparte de esto ha sido un día raro. mi Dueño se sentía especialmente daddy hoy, y en una especie de reflejo, este perro se setía muy boy. los papeles en una relación D/s tambie´n son fluídos, móviles, dentro de un orden. van cambiando según las necesidades del Amo. El marca la pauta, el ritmo, y también la posición del esclavo.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el AMo.</div>

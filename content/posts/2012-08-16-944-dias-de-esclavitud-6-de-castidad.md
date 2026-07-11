@@ -1,0 +1,10 @@
+---
+layout: post
+title: "944 días de esclavitud, 6 de castidad"
+date: 2012-08-16 22:00:00 +0000
+permalink: /2012/08/944-dias-de-esclavitud-6-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">a punto de cumplir nuevamente una semana de castidad, de control del Amo sobre el esclavo, de obediencia. la verdad es que no lo ha sentido demasiado este perro. parece como si los deseos sexuales estuvieran también domesticados. a menudo no puede este esclavo evitar pensar en cómo era antes de que el Dueño controlara la sexualidad. se comportaba como un animal, marturbándose uno o dos veces al días, todos los días. ahora ya ha renunciado al placer. si aparece bienvenido sea, pero las últimas veces en que este perro se ha ordeñado no han sido precisamente placenteras. el único placer de un esclavo es dar placer a su Dueño. es algo que sabía, pero que se está haciendo carne en la vida de este perro poco a poco.</div><div style="text-align: justify;">por la tarde nueva conversación intensa con el Amo. lo de intensa es no porque fuera "caliente" o "excitante", que lo fue, sino porque Amo es inquisitivo y siempre suele ir a lo más profundo. toda las fibras más internas de manera radical, sin contemplaciones. cuando este perro dice conversación intensa es porque se siente indefenso, incapaz de moverse, sintiendo como las cosas que dice atraviesan capas de piel y llegan a lugares donde, por mi mismo, no puego llegar.</div><div style="text-align: justify;">por la noche Amo le permitió salir con unos compañeros de la facultad y este perro se distrajo y se divirtió un poco. sin embargo cada vez la sociabiliadad, el salir con gente, se le hace más pesado. quisiera estar en otro sitio, en otro lugar, cerrado con llave.</div>obediencia ciega para el esclavo, poder absoluto para el Amo.

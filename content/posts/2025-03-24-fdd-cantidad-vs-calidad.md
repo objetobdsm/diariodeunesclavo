@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD cantidad vs calidad"
+date: 2025-03-24 02:41:00 +0000
+permalink: /2025/03/fdd-cantidad-vs-calidad.html
+tags:
+  - FdD
+  - leather
+---
+
+<p> </p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/97/46/9746a637354cebb7f0b30fdf26843a53e09b76424fabb7fff41c9d620476bc02.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="800" data-original-width="640" height="640" src="/uploads/46/c7/46c7b2f7b82b1181685277f4b71320c322e6b816e9ed10036c00b412922516cd.jpg" width="512" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: justify;">un selfie no deja de ser una manifestación del ego, un intento de ser valorado y reconocido como merecedor de algunos, o muchos, likes y de reenvios masivos. no es raro que muchos influencers digan que han llegado a obsesionarse con la cantidad de "me gusta" que recibe una publicación, o de visitantes que recibe un post. es la expresión máxima de "cuantos más mejor". no es extraño, en el fondo su sueldo y sus beneficios dependen de eso, y parece que también su autoestima. después de más de 20 años de mantener el blog diariodeunesclavo primero y luego renombrado a diariodeunobjeto, este objeto debe confesar que en alguna ocasión pecó de lo mismo, cayendo en el mismo problema. quería que el blog tuviera más visitas, creó una comunidad para que hubiera más gente, a veces piensa que el grupo de telegram no es lo suficientemente grande. y sin embargo todo esto no era sino otra estrategia del ego para hacerte creer que cuanto más mejor. esto no es así en el bdsm. no por tener más Amos eres mejor esclavo, no por decir más veces "si Señor", eres más obediente. sin embargo visto lo visto últimamente parece que es mejor mantener un perfil bajo, prefiriendo calidad a cantidad. a más seguidores más posibilidad de llamar la atención y que alguno denuncia el contenido o acaben borrando el blog y el grupo. al final, con los selfies, los justos; y con los "me gusta" también</div><br /><p></p>

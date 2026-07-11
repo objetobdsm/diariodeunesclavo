@@ -1,0 +1,10 @@
+---
+layout: post
+title: "609 días de esclavitud, 33 de castidad"
+date: 2011-09-16 22:17:00 +0000
+permalink: /2011/09/609-dias-de-esclavitud-33-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">ha hecho mucho calor por aquí, demasiado, y claro, así no se puede usar ni cuero ni botas. el entorno influye, y tanto que influye. no es lo mismo trabajar sudando con una humedad horrible, que hacerlo con frio y tenerte que proteger con una hermosa chaqueta de cuero. eso tiene vivir en las islas, aparte de la lejanía física, que no mental o experiencial, porque hoy mi Dueño ha estado permanentemente a mi lado. este perro no se levantó precisamente bien. está pasando un momento bajo propio de los ciclos de va no-vida. últimamente ha tenido que tomar muchas decisiones en poco tiempo y eso provoca un efecto "perverso" en este esclavo, porque el ego aprovecha esas situaciones para hacerse notar, para hacerte creer que eres algo y alguien, que mereces cosas: títulos, cargos, honores, reconocimiento. estar atento a ese fenómeno es agotador, pero es la lucha constante de un perro. esclavo. nadie dijo que fuera fácil. sin embargo mi Dueño ha estado ahí en todo momento, pendiente de su perro y dándole ánimos para que no desfallezca y honre a su Señor.</div><div style="text-align: justify;">hoy he tenido varias erecciones y he supurado bastante, a veces de manera imprevista. teme este perro que la facilidad con la que ha llevado un mes de castidad no sea más que una fantasía y que ahora empiece a complicarse la cosa. es verdad que este perro es muy cíclico y tiene momentos de alta excitación y momentos de apatía sexual total, pero confiaba en que el entrenamiento en la castidad le ayudara a controlar eso y mantener cierto orden y equilibrio. en cualquier caso si no es así, si este mes ha sido un periodo de gracia y ahora comienza lo duro, no importa, estoy dispuesto a luchar por mi Dueño lo que haga falta; lo que sea necesario.</div>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "dia 1967 de esclavitud, 54 de castidad"
+date: 2015-06-04 22:18:00 +0000
+permalink: /2015/06/dia-1967-de-esclavitud-54-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el perro tenía una reunión toda la mañana, y fue con un colega que no paraba de hablas. al perro, tan amante de las mordazas y el silencio, le sorprende que le guste a la gente oirse a sí misma tanto porque la gente que empieza a hablar y no para suele tener ese efecto ¿o defecto?<br/>el silencio es un valor, especialmente para un esclavo, porque la única voz en su vida debe ser la voz de su Amo. el estado ideal de un esclavo es no hablar nunca y obedecer siempre, en todo momento.<br/>quien mucho habla, mucho se equivoca, dice una máxima popular que encierra mucha sabiduría, porque el perro la ha podido comprobar en sus propias carnes. en más de una ocasión ha querido trasmitir algo y el Dueño se ha molestado por las palabras del perro, porque, incluso teniendo buena intención, las palabras no conseguían expresar bien los sentimientos ni lo que quería decir.<br/>sin embargo, quien obedece, no se equivoca porque no es suya la responsabilidad, sino del Amo que ordena. pudiera parecer una actitud egoísta si no fuera porque obedecer muchas veces implica generosidad y porque hay seres que existen para mandar: los Amos. así todo está en su lugar, equilibrado. unos necesitan obedecer, y otros mandar. es la compenetración perfecta.<br/>los problemas aparecen cuando ese orden se altera y los que nacieron para servir quieren mandar, y los que existen para mandar no quieren hacerlo, o les obligan a vivir sometidos a otros. entonces es cuando el ego hace de las suyas y aparecen personas que intentan esconder entre muchas palabras su propia frustración.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

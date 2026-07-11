@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD proceso"
+date: 2017-03-09 07:25:00 +0000
+permalink: /2017/03/fdd-proceso.html
+tags:
+  - FdD
+  - castidad
+---
+
+<img class="aligncenter" src="/uploads/7f/96/7f965562c9b82b03bc1aae1f7f78fb1a1848048a9ec3575c46510dfa9b125270.jpg" alt="" width="701" height="935" /><br/><p style="text-align:justify;">402 tiene en mente muy a menudo a todos aquellos esclavos, perros y objetos que siente profundos deseos de someterse pero no lo hacen por miedo, por pudor, porque va en contra de todo lo que les han enseñado. los tiene en mente y los comprende porque este objeto pasó por esa misma experiencia. la pasó y la sufrió porque lo único que hace es producir eso, sufrimiento. no hay nada más terrible y destructivo que luchar contra lo que uno es y contra lo que uno siente. se gastan muchísimas energías y no se nota ningún cambio o progreso porque no se puede luchar contra lo que forma parte de tí. la alternativa es la aceptación y ser sincero contigo mismo. eso no significa que vayas al parque del barrio y lo pregones a los cuatro vientos, o que se lo confíes a tu gente cercana. el trabajo debe empezar contigo mismo y decirte lo que deseas. pronto descubrirás que no pasa nada por decirte "deseo ser propiedad de alguien", o que "alguien me domine", o "deseo ser atado o momificado", o "deseo vivir bajo el control permanente de otro", o "desearía estar arrodillado ante un macho lederón". ante ninguna de estas frases se abrirá el suelo bajo tus pies y te consumirán las llamas de ningún sitio, así como tampoco te caerá un rayo o se hundirá el cielo sobre tu cabeza. posiblemente lo que te pasará es que sientas una profunda sensación de paz. y a partir de ahí se trata de mejorar, y la paz será cada vez más duradera y profunda. hasta que tu Amo te encuentre. entonces te pondrá la jaula, unas esposas de cuero para que las lleves siempre en casa y poder atarte cuando quiera y lo que sentirás es un agradecimiento muy profundo y una felicidad como no recordarás en tu existencia de sumiso.</p>

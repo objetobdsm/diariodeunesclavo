@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1362 de esclavitud"
+date: 2013-10-08 22:04:00 +0000
+permalink: /2013/10/dia-1362-de-esclavitud.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;"><br/>23 días de castidad, 3 desde el último ordeño<br/>hoy es el cumpleaños del Dueño, un día significativo y no hay mejor día para comenzar algo nuevo, una nueva andadura. desde hace algún tiempo, el Dueño y el perro comparten su preocupación de que blogger cierre el blog por su contenido. muchas veces hemos pensado en migrar a un sitio que, aunque fuera de pago, nos ofreciera libertad para no tener que depender de lo que decidieran unos burócratas, al menos no más de lo necesario.<br/>hoy es ese día. el perro está desde principios de septiembre trabjando en la estructura y entradas de un blog con un dominio propio. el diseño recuerda a otros diseños previos del blog, así que se podría decir que pmieza a haber una estética "diariodeunesclavo".<br/>el principal temor son los fallos y errores que el perro puede cometer porque es una plataforma nueva, de blogger a wordpress y las entradas no se publican igual, así que es posible que haya equivocaciones, por lasa que este perro suplica perdón de antemano. además ahora comienza un trabajo poco a poco que es el de poner bien todas las entradas anteriores. se dintinguen las que han sido actualizadas de las que sólo han sido importadas del otro blog porque las primeras tienen el texto justificado.<br/>el perro también intentará, poco a poco, ir poniendo de neuvo las fotos que desaparecieron cuando google cerró la cuenta donde estaban.<br/>y todo esto el día en que el Dueño cumple años. es una especie de pequeño regalo hacia El, en agradecimiento a su benevolencia y al hecho de que no ha dejado que este perro fuera un perro callejero.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2711 de esclavitud, 683 de castidad"
+date: 2017-06-17 22:22:00 +0000
+permalink: /2017/06/dia-2711-de-esclavitud-683-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">Dueño y objeto están lejos, pero sólo físicamente. la presencia del Dueño es permanente. la forma de hacerlo es muy variada, desde rituales diarios de saludos, hasta llevar la ropa que ordena el Dueño cada noche para el día siguiente. otras formas de estar cerca es el blog. cuando escribe, el objeto desvela su alma, su interior, todo lo que tiene dentro y lo pone a los pies del Dueño. nadie de los que vive cerca del objeto tienen acceso a este tipo de información. con ellos funcionan siempre las barreras, con el Dueño, ninguna. este es un buen ejemplo de como estar lejos físicamente no significa estarlo de verdad, porque hay gente al lado del objeto que está muchísimo más apartado que el Dueño.<br/>es cierto que vivimos en un momento privilegiado y que las comunicaciones permiten mantener este tipo de relación que, hace sólo unos años, hubiera sido imposible. esos medios permiten al Dueño un control prácticamente total de la vida del objeto: donde está, qué hace, etc, y eso que no se ha dado el salto a situaciones que podrían ser más intensas. por ejemplo se podrían instalar unas cámaras estratégicamente en la casa del objeto de forma que el Dueño pudiera controlarlo remotamente por internet. o se podría introducir un chip subcutáneo al objeto de forma que estuviera controlado geográficamente en todo momento. las posibilidades son muchas, aunque la mayoría implicaría un desembolso económico que no es necesario, al menos por el momento. el tema aquí, como en cualquier relación de Dominación/sumisión, es el control, cuanto más mejor, cuanto más profundo e intenso, más satisfactorio para ambas partes.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

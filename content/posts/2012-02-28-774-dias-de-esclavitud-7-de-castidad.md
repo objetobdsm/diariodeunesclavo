@@ -1,0 +1,10 @@
+---
+layout: post
+title: "774 días de esclavitud, 7 de castidad."
+date: 2012-02-28 23:30:00 +0000
+permalink: /2012/02/774-dias-de-esclavitud-7-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">este perro está algo pachuco, una gripe de las que andan por ahí. aún así siguió con su actividad habitual, al menos mientras pueda. por la tarde fue a la facultad con el cockring en los genitales. es una sensación extraña, de ataduras, pero a la vez nadie se da cuenta y todos te tratan con normalidad, mientras tu sientes que estás limitado, sujeto, que no estás como normalmente. ahora supongo que de lo que se trata es de que eso sea lo normal. cuando este esclavo se lo puso tuvo ganas de ir al baño y tuvo que sentarse porque la orina salía sin poderla controlar. lo de después fue sorprendente, porque este perro volvió a supurar, y como ayer, en grandes cantidades, tanta que noté como salía por el pene y caía a goterones en el retrete. cuando me levanté había un chorro hecho de ese líquido espeso. supongo que ya toca, a la semana de no ordeñarme. inmediatamente me vino a la mente el hecho de que no volveré a hacerlo hasta que esté en presencia de mi Dueño, que espero sea pronto. esta es mi vida, la vida de esclavo que siempre he deseado. ahora sé que sólo así, sometido a mi Amo, podré ser feliz, cumpliendo sus deseos. obedeciendo sus órdenes. no hay nada más, o mejor dicho, todo lo demás no es más que apariencia sin sentido.</div><div style="text-align: justify;">esta semana la esclavitud está muy presente. es como si desde que mi Dueño me ordenara llevar el cockring, no pudiera olvidarme de ella. también es verdad que este perro ha priorizado y ha dejado muchas cosas fuera, abandonando actividades que no aportaban nada y que lo alejaban del verdadero camino. </div>

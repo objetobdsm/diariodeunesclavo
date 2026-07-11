@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5601 de esclavitud, castrado permanentemente"
+date: 2025-05-16 22:04:00 +0000
+permalink: /2025/05/dia-5601-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> ningún esclavo es perfecto y quien se lo cree o lo piense va por muy mal camino. siempre hay una posibilidad de fallar, de caer, de pecar, de no cumplir adecuadamente las órdenes. hoy lo ha experimentado el objeto. como tiene ahora que cumplir estrictamente el horario y el calendario semanal, el objeto fue a la oficina, esperando que podría aprovechar tanto como ayer pero no fue así.</p><p style="text-align: justify;">cuando salió le entró un profundo bajón físico y anímico que atribuye a todas las situaciones que ha estado viviendo últimamente: el cansancio por el fin del curso, el no saber qué pasaría con el proyecto en el que está, algunas situaciones familiares y relaciones, etc. el hecho es que llegó a casa y tenía una hora antes de la llamada a capítulo con mi Señor y tras comer se tumbó un rato pero no se acordó de activar de nuevo las notificaciones del móvil y cuando se despertó habían pasado tres horas y tenía un montón de mensajes de mi Señor preocupado porque no daba señales de vida. </p><p style="text-align: justify;">preocupar a mi Señor y darle estrés en vez de placer posiblemente sea una de las peores cosas que puede hacer un objeto, cualquier inferior de hecho. el objeto le explicó a mi Señor lo que había pasado y se dispuso a aceptar el castigo pero este no se produjo, supone el objeto porque mi Señor se sintió muy aliviado de que no hubiera pasado nada. con eso se dio por satisfecho, lo que demuestra su elevada categoría moral y ética. fueron una sucesión de errores por parte del objeto que un castigo no arreglaría y, además sabiendo que el objeto está pasando por una situación delicada pero lo dejó ahí. además sabe que el objeto es suficientemente uno consigo mismo después de lo que ha pasado.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

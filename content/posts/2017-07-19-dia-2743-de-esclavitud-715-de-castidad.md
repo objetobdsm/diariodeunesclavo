@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2743 de esclavitud, 715 de castidad"
+date: 2017-07-19 22:19:00 +0000
+permalink: /2017/07/dia-2743-de-esclavitud-715-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">cada vez más difícil concebirse separado, distinto. entre Dueño y objeto hay una conexión muy extraña, que ninguno de los dos consigue explicar bien pero que ha dado suficiente muestras de existir. hoy ha sido un nuevo ejemplo de ello. el objeto se levantó bien, tranquilo y relajado. sin embargo a medida que avanzaba la mañana esa sensación se disipó y el objeto empezó a sentirse enfadado, reaccionando molesto ante situaciones que no tenían por qué llevar a ese estado de ánimo. en varios momentos el objeto se preguntó qué podría estar pasando. y entonces se le ocurrió enviar un mensaje al Dueño. efectivamente la mañana del Dueño se había torcido y estaba de mal humor y molesto. ¿casualidad? podría ser pero esto ya ha ocurrido en varias ocasiones con lo que la casualidad empieza a convertirse en causalidad. ha ocurrido demasiadas veces esto mismo. en alguna ocasión el Dueño ha enviado un sencillo mensaje: "¿Estás bien?" y la respuesta ha sido "no, Dueño". el Dueño había sentido algo, se había dado cuenta de que algo pasaba y efectivamente así ha sido. a eso le llamamos "la conexión", y funciona. en el caso del objeto significa que el Dueño está aún más metido en su mente de lo que pudo imaginar nunca, así que no podrá eludir, ni engañar, ni modificar, ni cambiar, ni huir de la sumisión y la esclavitud en la que le ha sumido el Dueño... porque independientemente de las cadenas que lleve o las cuerdas con las que le ate, la mente del objeto está controlada por el Dueño y eso tal vez, sea la razón de este vínculo.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

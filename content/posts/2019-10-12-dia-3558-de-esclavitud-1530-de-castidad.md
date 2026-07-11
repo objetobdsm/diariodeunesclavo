@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3558 de esclavitud, 1530 de castidad"
+date: 2019-10-12 22:14:00 +0000
+permalink: /2019/10/dia-3558-de-esclavitud-1530-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hay algo que esto no ha nombrado y que sin duda debería haberlo hecho. esta semana es la maspalomas fetish week, el equivalente del folsom en sl sur de la isla. el objeto lleva dos semanas viendo perfiles de twitter de gente que venía, algunos lederones de renombre, muy populares en las redes, de alemania, francia e inglaterra.<br/>ayer esto habló con un contacto de instagram que estaba aqui y que había salido por el yumbo el miércoles y que había mucho ambiente. pensaba bajar hoy y esperaba que hubiera mucho más. dijo que se había sorprendido de la cantidad de rubber, mucho más que cuero.<br/>después de haber deseado estar en folsom en berlin hace unas semanas ¿por qué el objeto no está en maspalomas? la respuesta es sencilla: porque es un entorno para humanos, para Superiores e inferiores humanos, Amos y esclavos. un objeto no tiene cabida allí a menos que el Dueño lo llevase. es como si unas botas fueran solas a maspalomas fetish week. no tiene ningún sentido.<br/>por supuesto si el Dueño lo hubiera ordenado esto habría ido, pero las últimas órdenes han sido silencio y aislamiento así que tiene poco sentido ir a un encuentro de lederones y amantes del latex. las órdenes fueron claras, limitar las interacciones al mínimo. por eso ni siquiera se lo ha planteado al Dueño.<br/>esta es la vida de un objeto, de una propiedad.. ceder todo el control al Dueño significa eso, no servir a otro Amo, no ir a lugares a donde el humano que fue el objeto le habría gustado ir. esto ya no puede ir donde quiere ni hacer lo que quiere, lo único que puede hacer es obedecer y someterse.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

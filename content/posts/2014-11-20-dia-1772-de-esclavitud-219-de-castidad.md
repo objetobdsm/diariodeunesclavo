@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1772 de esclavitud, 219 de castidad"
+date: 2014-11-20 22:33:00 +0000
+permalink: /2014/11/dia-1772-de-esclavitud-219-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">si en algún momento, que no ocurre, el perro tuviera dudas sobre el camino comenzado, sabe que éstas desaparecerán con una simple llamada de atención del Dueño. un mensaje tan simple como "¿Dónde estás perro?" o "¿Qué haces?" son suficientes para que le recorra el cuerpo un sentimiento de terror, mezclado con excitación o sumisión. si no fuera por la jaula, el perro se empalmaría enseguida.<br/>las llamadas de atención son normales, si no fuera así el perro estaría plenamente entrenado y eso implicaría que el perro no tendría nada que aprender y eso no es así. los inferiores siempre estamos en camino, aprendiendo, guiados por los superiores. siempre se puede mejorar, se puede ser más sumiso, se puede servir más y mejor al Dueño.<br/>reconocer este hecho es lo que realmente da "libertar" al perro porque ya no depende de lo que otros piensen sino que lo único que importa es lo que piense el Dueño del perro. no es hasta que el Dueño te encadena, liberándote de las otras consideraciones sociales, que te das cuenta de lo mucho que dependes de lo que otros piensen de ti. es una nueva paradoja: hasta que no eres esclavizado, no te liberas totalmente. ¿Qué es mejor? ¿obedecer a un Amo solamente o ser esclavo de todos los demás que te rodean? es una cuestión de elección. otra ironía, porque la liberación, que pasa por la sumisión, surge de una elección.<br/>no puede ser de otra forma, porque no se puede obligar a nadie a entrar por este camino. la esclavitud voluntaria es eso, voluntaria, y nadie debe ser esclavizado contra su voluntad.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "533 días de esclavitud"
+date: 2011-07-02 22:32:00 +0000
+permalink: /2011/07/533-dias-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">todo el día descansando, pegado al ordenador navegando por internet, leyendo cosas de fetlife sobre todo y poniéndome al día con algunos blogs que hacía tiempo no visitaba. hasta un esclavo tiene algún tiempo de descanso. en una de esas discusiones de fetlife, una página que cada vez valoro más, se hablaba de los problemas que podría ocasionar una sesión de bondage prolongado. este perro inmediatamente se acordó de cuando estuvo momificado seis horas. las intervenciones fueron muy juiciosas, con lo cual demostraban que no estaban fantaseando. el hecho es que un esclavo habló de como se podía ir complicando el bondage y eso reducía el tiempo que podías estar ahí, no era lo mismo estar atado con las manos por delante o a la espalda, amordazado o pudiendo hablar, con capucha o sin ella, y tampoco era lo mismo en privación sensorial que viendo y oyendo. con respecto a eso me di cuanta de que estaba usando esto como un indicativo de mi estado de ansiedad. me explico. de vez en cuanto soposo como me encuentro en el camino de la sumisión, valoro hasta donde he llegado o más bien en qué estado me encuentro en cada momento. para saberlo uso una técnica sencilla. me imagino completamente inmovilizado en un saco de cuero o momificado con una capucha que me impida ver y oir. traigo esa imagen a mi mente y luego escucho a mi cuerpo, si se produce una ligera ansiesad, miedo, tal vez angustia, sé que me estoy desviando demasiado del camino, que estoy descentrado y que necesito retomar ciertas cosas. sentir que no podría estar en esa situación es darme cuenta de que mi no-vida tiene demasiado peso, demasiada influencia en este perro actualmente. he hecho este "test" varias veces en los últimos dos meses y siempre ha salido fallido en mayor o menor medida, y eso dice algo.</div>

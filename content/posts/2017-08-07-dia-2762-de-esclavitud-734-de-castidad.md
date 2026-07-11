@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2762 de esclavitud, 734 de castidad"
+date: 2017-08-07 22:56:00 +0000
+permalink: /2017/08/dia-2762-de-esclavitud-734-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">en alguna ocasión lo ha escrito el objeto en el blog pero ahora lo está experimentando: no hay forma de escapar de lo que eres, y a muchos niveles. incluso ahora, lejos del Dueño, después de haberle servido y sometido físicamente a su voluntad, el objeto no puede dejar de sentirse una propiedad del Dueño. Él es lo más importante, lo único, lo fundamental. todo gira alrededor suyo y el objeto no es más que algo que hace eso, girar alrededor del centro de su universo que es el Dueño.<br/>da igual que esté lejos, o que no lo vea físicamente. el Dueño ha colonizado la mente del objeto, la posee y controla, la domina y hace con ella lo que quiere. y una vez dominada la mente, no hay nada que se le escape.<br/>el objeto sabe que podría desobedecer una orden del Dueño, porque sigue teniendo algunos rasgos humanos, y porque si no fuera así, la obediencia tampoco tendría valor, pero también sabe que no podría ocultárselo sino que lo confesaría y asumiría las consecuencias.<br/>su control es total y pueden producirse crisis y altibajos, como en todo proceso donde hay seres vivos, pero esto ya es irreversible. utilizando una metáfora, es como si el objeto estuviera encadenado a una pared. la cadena, dependiendo de su tamaño, puede dar más margen. estar más cerca o más lejos de la pared, y hacer más o menos cosas pero siempre está ahí y siempre tiene un límite: la extensión de la propia cadena. basta poner algo fuera de esos límites para que sea inalcanzable para el objeto. el Dueño ya ha puesto el sexo, ahora su capacidad de hablar. ¿qué será lo próximo? el hecho es que esa es la vida del objeto, estar encadenado a la voluntad del Dueño.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

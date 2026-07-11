@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD fantasía"
+date: 2019-02-16 18:54:00 +0000
+permalink: /2019/02/fdd-fantasia.html
+tags:
+  - FdD
+  - leather
+---
+
+<img class="aligncenter size-full" src="/uploads/98/da/98da3328d89b9285ef842503c89df90beaa90a8f4891cafb206bfea31e5bfbd4.jpg" width="1280" height="853" /><br/><p style="text-align:justify;">para poder crear es necesario fantasear, imaginarse cosas. ahí está el origen de la creación y del pensamiento. y ante la imagen de hoy el objeto ha fantaseado cómo sería encontrarse con este grupo de lederones. para empezar saber que son reales, que no forman parte de una película o de un decorado de algo es un plus. son lederones reales, de carne y hueso, que además muestran su Superioridad. ya sólo por eso el objeto sabe que no es digno ni de mirarles fijamente, así que en un hipotético encuentro, bajaría la vista hasta el suelo. a lo más que se atrevería sería a mirarles las botas, pero incluso eso sería un atrevimiento. luego no se atrevería a acercarse, respetaría un amplio espacio entre Ellos y el objeto, que intentaría pasar desapercibido y que no se notara que le tiemblan las piernas, porque su impulso natural sería arrodillarse y adorarles con la cabeza tocando el suelo. si no fuera propiedad del Dueño y alguno de ellos se percatase de la mísera presencia del objeto, esto sabe que no podría evitar obedecer, cualquier orden, cualquier cosa que ordenasen sería inmediatamente obedecida. siendo propiedad del Dueño la cosa cambia y el objeto, educada y sumisamente, les explicaría su situación y que no puede obedecerles por ella. entonces tal vez, y sólo tal vez, fruto de la imaginación del objeto, cambiaría su forma de mirarlo, porque los Amos suelen mirar con respeto a los esclavo e inferiores que han sido tomados como propiedad por otro Amo. es una especie de regla de etiqueta no escrita fruto del respeto que guía las relaciones bdsm. todo terminaría con una respetuosa despedida del objeto y abandonaría el lugar con la boca seca y la sensación de que había presenciado una hierofanía.</p>

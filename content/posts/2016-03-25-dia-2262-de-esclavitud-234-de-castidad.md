@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2262 de esclavitud, 234 de castidad"
+date: 2016-03-25 22:48:00 +0000
+permalink: /2016/03/dia-2262-de-esclavitud-234-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">402 estuvo halando con el Dueño sobre la súplica de ayer de ir a la comida con zapas en vez de con botas. el Dueño confirmó que le había extrañado la petición y que por eso había pedido explicación a su objeto. 402 reconoció que se siente mal porque ha fallado al Dueño. lo hizo por comodidad y un objeto no tiene derecho a su comodidad. durante un tiempo el Dueño estuvo considerando castigar al objeto, pero al final se apiadó de esto y lo perdonó, también por el día que era.<br/>puede parecer que no es importante, pero son los pequeños detalles como estos lo que, si no se cortan a tiempo, pueden ir minando la relación hasta llegar a una desobediencia grave, muy grave. cualquiera puede decir que 402 no desobedeció y de hecho no lo hizo porque el Dueño le dio permiso, pero antepuso su comodidad, él mismo, a los deseos del Dueño. este objeto sabía que había hecho mal y por eso no pudo huir de su sentimiento de culpabilidad y tuvo que confesarlo al Dueño. tal vez esto haya sido lo más positivo de la experiencia, la certeza de que la sumisión está tan arraigada en 402 que incluso las cosas más pequeñas pero que vayan en cierta medida contra el Dueño, producirán un sentimiento de culpa. es el método que ha utilizado las religiones desde hace milenios, pero ahora aplicado a la sumisión, para conseguir la obediencia de este objeto.<br/>para 402 esta es la única forma de servir a al Dueño, al Propietario de este objeto. sabe que sólo así conseguirá la felicidad y esto no es una frase vacía, de hecho hoy estuvo con el corazón encogido, sintiéndose culpable, hasta que lo confesó al Dueño, lo hablaron y Éste, después de un tiempo de reflexión, perdono a su objeto. sólo en ese momento 402 volvió a la "normalidad". lo de conseguir la felicidad por medio de la sumisión no es una frase vacía, ni sin sentido, para este objeto es bastante concreta.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

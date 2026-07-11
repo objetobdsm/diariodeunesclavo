@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3114 de esclavitud, 1086 de castidad"
+date: 2018-07-25 22:38:00 +0000
+permalink: /2018/07/dia-3114-de-esclavitud-1086-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">"Y cada vez quiero que hables menos. Que sólo obedezcas y en silencio. con o sin mordaza (...) La mordaza debe darte paz. Seguridad por eso debes desearla y sentirte mal sin ella. Este es mi deseo. Tu boca solo para comer, beber y darme placer o lamer mis botas. No hay más (...) Ni un sonido. Ni siquiera si o no. Sólo asentimientos de cabeza. Y con las torturas igual. Ni un gemido. Solo admito lágrimas silenciosas. Solo sufrirás por mi. El resto tiene que desaparecer". estas son las palabras del Dueño, palabras que le ha enviado al objeto en una conversación que han mantenido. son suficientemente explícitas y clarificadoras de lo que quiere. no deja lugar a dudas, porque tampoco tiene que haberlo. además en un momento dice que es su deseo, lo que quiere y eso lo convierte en ley para el objeto. la conversación fue más larga y tratamos muchos más temas pero casi desde el principio el objeto sintió el dolor del apéndice luchando contra la jaula. fue inconsciente, involuntario, sin desearlo. sencillamente ocurrió porque las palabras del Dueño tienen ese efecto en el cuerpo del objeto. para el Dueño eso es una seña de que lo que se habla pasa directamente al interior más profundo del objeto. no hay intermediarios aquí. como dice El "El cuerpo no miente". durante toda la conversación el objeto se sintió desnudo, trasparente, indefenso en cuanto que no tenía barreras. fue una conversación en perfecta sintonía. Él hablaba y ordenaba y el objeto asentía y obedecía. a partir de ahora esto será ley para el objeto hablar menos, desear la mordaza como desea la jaula y sentirse mal cuando no la tiene por alguna razón. la experiencia demuestra que eso será así a partir de ahora. no hay escapatoria, resquicio ni interpretación. es el deseo del Dueño y eso es suficiente.<br/>sumisión en silencio, castidad yo obediencia ciega.</p>

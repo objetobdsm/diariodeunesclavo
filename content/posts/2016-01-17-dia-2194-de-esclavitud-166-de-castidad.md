@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2194 de esclavitud, 166 de castidad"
+date: 2016-01-17 22:15:00 +0000
+permalink: /2016/01/dia-2194-de-esclavitud-166-de-castidad.html
+tags:
+  - personal
+---
+
+el Dueño sabe cuál es la solución para el estado anímico del perro. lo ideal sería una buena sesión de bondage severo, o de reprogramación, pero al estar lejos es imposible, así que el Dueño ha ordenado que el perro se aisle lo más posible, sin hablar y con el menor contacto que sea posible. el Dueño piensa que demasiada sociabilidad ejerce una excesiva presión sobre el perro y eso le ha llevado al estado actual.<br/>por supuesto el perro obedeció las órdenes del Dueño y se mantuvo aislado y en silencio. uno de los síntomas de que el perro no está anímicamente bien es que tiene muchas ganas de dormir, muchas horas, demasiadas horas, tanto por la noche como en la hora de la siesta. tal vez sea agotamiento lo que tiene pero acaba de salir de unas vacaciones así que no cree que sea esto. sin duda influye más su carácter ciclotímico y el tae (transtorno afectivo estacional), que parece algo más común de lo que el perro podría imaginar.<br/>el Dueño envió al perro una foto de sus botas, de las que lleva hoy, de unas sendras brillantes y le dijo "Babea mirándolas, obsérvalas, adóralas". y el perro no pudo sino hacer lo que su Dueño le ordenaba. es una de esas cosas que hace el Dueño sencilla, simple hasta cierto punto, pero que llenan completamente al perro y que es justo lo que necesita en ese momento.<br/>alguien, incluso el propio perro, podría pensarse que esto es una debilidad, una deficiencia, pero ya ha quedado claro que es un ser inferior, y así lo tomó en propiedad el Dueño. eso no significa que el perro se desentienda de todo, pero sí que no tiene que aparentar, ni justificarse. sencillamente se arrodilla ante su Dueño y le dice: "así estoy, Dueño, así soy". y se entrega para que Este lo moldee a su gusto y conveniencia, para hacerlo mejor, más fuerte, o más débil, más dependiente si ese es su deseo.esa es la vida de un esclavo, al menos de este esclavo.<br/>sumisión en silencio, castidad y obediencia ciega.

@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD lugar en el mundo"
+date: 2020-12-05 11:07:00 +0000
+permalink: /2020/12/fdd-lugar-en-el-mundo.html
+tags:
+  - FdD
+  - sumision
+  - leather
+---
+
+<p></p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/21/1b/211ba5bd51bc8080cd81c9ff76495dc890ab5fcb005c8cd9427629321ce78b33.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="500" data-original-width="419" src="/uploads/5c/1a/5c1a1d3823272a42b38b50b96c26478f1097610877a8f12088917e171d59d39a.jpg" /> </a></div><div class="separator" style="clear: both; text-align: justify;">como en otras ocasiones, cuando ve determinadas imágenes, vuelve a temas recurrentes. en este caso viene acompañado de un profundo sentimiento de agradecimiento. los inferiores vivimos la mayor parte de nuestra vida en un estado de insatisfacción, como perdidos, como que no encajamos en ningún sitio, como que estamos fuera de lugar. es algo que a veces conseguimos acallar pero que siempre sale, tarde o temprano, a flote. algunos afortunados, sin embargo, en algún momento de nuestra existencia, somo encontrados por un Dominante, por un Superior, que nos acoge, nos recoge, nos convierte en su propiedad y nos da un lugar en el mundo. entonces ese sentimiento desaparece y todo cobra sentido. eso sintió el objeto la primera vez que se arrodilló para lamer las botas de un Amo. no fue el Dueño, en aquel entonces ni se planteaba el objeto servir a alguien que estaba en otra ciudad. fue una experiencia marcante, que cambió su existencia para siempre. era lo que había estado buscando. sin embargo era una sesión y el sentimiento regresó más tarde. esto volvió a tener sesiones con ese Amo pero era lo único que le interesaba al Dominante, las sesiones, o eso pensaba el objeto entonces. luego vino otro Amo y por fin el Dueño. con el Dueño esa situación momentánea se ha vuelto definitiva, el objeto sabe donde está, cuál es su sitio en el mundo y sabe que seguirá así porque el Dueño le ha dicho que nunca le dejará marchar, nunca le condenará a ser libre, que esto es una propiedad suya y lo será siempre y para siempre. por eso el objeto puede decir que sabe cuál es su lugar en el mundo. <br /></div><br /> <p></p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1752 de esclavitud, 199 de castidad"
+date: 2014-10-31 22:50:00 +0000
+permalink: /2014/10/dia-1752-de-esclavitud-199-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hoy, igual que ayer, el perro grabó y envió un video al Dueño donde aparecía amordazado, mostrando las botas y la jaula. fue del agrado del Dueño, porque, camino del trabajo envió varios mensajes de refuerzo. el perro llama así a los mensajes, cortos pero intensos con frases como "eres mio", "eres de mi propiedad", "no tienes derecho a decidir, ni a pensar". así comenzó el día el perro.<br/>pero lo mejor vino después, justo antes de entrar a trabajar: "A partir de hoy tu trabajo diario será una ofrenda a tu Dueño. Todos los esfuerzos desvelos y sinsabores serán ofrendas a tu Dueño. Tu trabajo diario será una ofrenda a tu Señor". de esta forma tan sutil el Dueño ha introducido la sumisión en cada acto de trabajo de la no-vida del perro. es cierto que hay muchos sinsabores y desvelos en la no-vida del perro últimamente, pero con este simple mensaje ha convertido eso en parte de la vida del perro.<br/>la verdad es que han sido unos días muy duros, con mucho ego por ahí suelto, y el perro se sentía bastante regular.<br/>después del trabajo y con permiso del Dueño, el perro fue a comer con dos compañeros del trabajo. fuimos a un restaurante que está en una cueva en un barranco llamado guayadeque. son cuevas excavadas en la roca y que tiene cierto aspecto de laberinto y, por supuesto, de mazmorra. no pudo el perro evitar pensar en cómo sería ser encerrado ahí. la comida estuvo muy bien y sirvió para relajar al perro. curiosamente lo que más recuerda el perro es el sonido de las botas del perro sobre el suelo de cemento de la cueva.<br/>cada día la vida se reduce y la vida va ocupando más y más espacio, tiempo y lugar. el Dueño lo va haciendo poco a poco, lentamente, pero de manera inexorable.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1249 de esclavitud"
+date: 2013-06-17 21:00:00 +0000
+permalink: /2013/06/dia-1249-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">82 días de castidad, 82 desde el último ordeño</div><div style="text-align: justify;">los días se suceden y las dinámicas se interiorizan. esta mañana el perro ha ido a trabajar, como siempre, enjaulado. para el resto de la gente el perro se presenta como una persona "normal". sin embargo bajo los pantalones, la jaula le recuerda lo que es y a quien pertenece. al contrario de lo que piensan eso es lo más fácil. hoy en el trabajo un compañero trajo una tarta, y a pesar de que no era saludable, el perro comió más de la cuenta. eso sí es difícil. curiosamente son las cosas cotidianas las más difíciles de llevar adelante. inmediatamente el perro envió un mensaje suplicando perdón por haber fallado. el perro no debe abusar de la comida porque necesita bajar un poco de peso. por eso esto fue un fallo, una falta. en otro momento, en otras circunstancias, la cuestión sería sencilla, el Dueño sellaría la boca con una mordaza y ya está, tras el Gran Salto el Dueño dirá cuando comer, qué comer y cómo hacerlo. es costumbre extendida que el perro coma en un bol en el suelo, a los pies del Amo, pero el Dueño no es muy partidario de eso y, hasta ahora ha sentado al perro a su mesa. El es quien dice qué hacer, cómo hacer y cuando hacerlo. el perro sólo tiene que obedecer, tan fácil como eso.</div><div style="text-align: justify;">¡qué contradicción es que te traten exteriormente de la manera más opuesta a lo que sientes en tu interior! incluso algunos muestran un respeto excesivo que desaparecería si supieran que soy un perro, un esclavo. por eso el ego debe ser controlado, para vitar que ese trato diferencial te confunda. el perro no es nada, no tiene derecho a nada y nunca debe olvidarlo.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

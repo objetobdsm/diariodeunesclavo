@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1511 de esclavitud, 82 de castidad"
+date: 2014-03-06 22:52:00 +0000
+permalink: /2014/03/dia-1511-de-esclavitud-82-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hoy ha pasado una cosa muy extraña. por la noche el perro se iba a acostar y de pronto se vio los genitales enjaulados en la jaula de plástico y cayó en la cuenta de una cosa. sabía que lo había escrito en el blog, que lo había repetido en más de una ocasión pero era algo puramente intelectual. hoy eso se ha convertido en una certeza existencial: llevar la jaula no es algo temporal o momentáneo... es algo permanente, es algo que llevará siempre. la jaula podrá cambiar, pero la vida en castidad, que se traduce en que la sexualidad del perro está controlada por el Dueño, es algo inmutable. para muchos es una práctica más, algo que posterga el orgasmo para darle más intensidad. en el caso del perro es una forma de existencia, de vivir, ya no hay otra fuera de esa. puede llevarla de metal o de plástico, incluso puede haber etapas en que no lleve jaula, pero ya no podrá vivir su sexualidad alejado de la mirada, la supervisión y el control del Dueño. incluso suponiendo que en algún momento el perro desobedeciera y se corriera o tuviera relaciones con alguien, lo haría sabiendo que está faltando a una orden y eso, en cierta medida, no es más que la confirmación de que vive sometido a la voluntad del Dueño.<br/>hoy esta reflexión intelectual se convirtió en una realidad vivencial y existencial. el perro se dio cuenta de que era así, y no pudo dejar de pensar en aquella época en la que se masturbaba a diario... varias veces, de forma compulsiva. ha sido un largo camino recorrido. lo irónico fue que, mientras sentía y caía en la cuenta de esto, tuvo una enorme erección y le entraron unas grandísimas ganas de correrse.... algo que por supuesto, no pasó.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

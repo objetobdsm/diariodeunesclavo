@@ -1,0 +1,10 @@
+---
+layout: post
+title: "514 días de esclavitud"
+date: 2011-06-13 22:43:00 +0000
+permalink: /2011/06/514-dias-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">hoy no he ido a trabajar porque era fiesta local y he aprovechado para estudiar un poco más. lo principal del día ha sido una conversación que mi Dueño ha mantenido con este perro. sus palabras me reafirman, diciéndome que tengo que dar carpetazo a las cosas que tengo pendientes para que El pueda hacerse cargo del resto, nada comenzará en mi vida a partir de ahora sin su permiso, nada que dará fuera de su control, absolutamente todo necesitará de su aprobación. así son las cosas y así deben ser. y no porque sea morboso, o excitante, sino porque es necesario ya que es la única forma de que este perro pueda sobrevivir. la experiencia ha demostrado que no se controlar mi tiempo, que me embarco en proyectos que saco adelante, pero a costa de mi salud y de mucho estres. además ahora tengo la ocupación de ser esclavo, porque aunque he dicho muchas veces que tiene una dimensión natural, hay que trabajársela. hay que leer, escribir, meditar, profundizar en la sumisión. hoy mi Dueño me ha dicho que mi no vida me estaba absorviendo y que eso no podía ser. ahí está la clave. la hiperactividad desenfrenada le da alas al ego. las cosas deben hacerse con sentido y eso no significa un esclavo inactivo, sino un esclavo que no pare de trabajar en la dirección correcta. el mismo hecho de mantener este blog es costoso, lleva horas y posiblemente sería mejor si le dedicara más tiempo, pero tengo el que tengo y mi Dueño considera que no es suficiente, que debo dedicarle más tiempo a ser esclavo. parece una contradicción pero no lo es. el hecho es que últimamente sólo me siento en calma precisamente cuando me dedico a ser esclavo: a escribie aquí, a pensar en lo que significa ser esclavo, a buscar fotos interesantes que publicar.... eso es lo único que me da paz, que me calma, que me relaja. y mi Dueño ha decidido que a partir de ahora El controlará que sea así y no de otra forma.</div>

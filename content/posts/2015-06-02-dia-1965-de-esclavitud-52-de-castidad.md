@@ -1,0 +1,10 @@
+---
+layout: post
+title: "dia 1965 de esclavitud, 52 de castidad"
+date: 2015-06-02 22:48:00 +0000
+permalink: /2015/06/dia-1965-de-esclavitud-52-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">a veces ocurren cosas en la vida que son regalos porque te ayudan a relativizarlo todo. el perro entiende que llamar regalo a una enfermedad puede parecer extraño, pero este blog no se caracteriza precisamente por ser políticamente muy correcto. ni lo pretende ni lo quiere ser, y el que no quiera leerlo pues que sencillamente cierre la pantalla y lo deje.<br/>todo esto viene a que el perro ha salido hoy con una amiga que está enferma, muy enferma, en estado terminal realmente. no parece un tema muy acorde con lo que aborda el blog, a pesar de que los psiquiatras, desde el siglo XIX, vincularon el sadomasoquismo con el tanatos, el impulso de muerte. decían que la necesidad de someterse y sentir dolor era una forma de acercase a la muerte.<br/>la realidad es bien distinta porque la relación D/s que mantienen Dueño y esclavo es una de las pocas cosas que hace que el perro se sienta realmente vivo. lo que realmente sorprendió al perro fue la entereza con la que esta amiga está llevando todo el tema, la tranquilidad con la que habla, la calma que desprende. el perro cayó en la cuenta de que todo lo que está pasando por la mañana en el trabajo, las luchas internas y las peleas de los egos por ocupar un lugar preeminente, todo eso, no es sino algo fútil, inútil, sin sentido, que la vida es mucho más amplia y que a veces perdemos la perspectiva porque nos centramos en cosas pequeñas, en pequeñas pinceladas sin ver el cuadro más grande, en toda su plenitud.<br/>lo de hoy fue una llamada a centrarse en cosas realmente importantes, que en caso del perro, es su relación con el Dueño y la obediencia que le debe. están siendo momentos de cambio, eso sin duda, y el perro desearía que no cambiara sólo su no-vida, sino que la vida también cambiara un poco, o bastante.<br/>hoy el perro aprendió una gran lección sobre la vida, espera que no se le olvide en mucho tiempo.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

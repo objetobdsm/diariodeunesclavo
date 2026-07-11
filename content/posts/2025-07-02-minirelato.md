@@ -1,0 +1,10 @@
+---
+layout: post
+title: "minirelato"
+date: 2025-07-02 11:37:00 +0000
+permalink: /2025/07/minirelato.html
+tags:
+  - mini-relatos
+---
+
+<p style="text-align: justify;"> la fiesta estaba en su máximo apogeo. los Amos y los esclavos encuerado estaban buscando algún rincón donde poder jugar. sin embargo el Amo estaba con dos compañeros sentados en un sofá mientras el esclavo estaba de rodillas a sus pies. </p><p style="text-align: justify;">-No puede ser- dijo uno- nunca he llegado hasta ese punto.</p><p style="text-align: justify;">- Te digo que es posible- dijo el Amo</p><p style="text-align: justify;">-No me lo puedo imaginar- contestó el tercero.</p><p style="text-align: justify;">-Lo demostraré</p><p style="text-align: justify;">y entonces el Amo le quitó al esclavo el bozal que tenía y con voz firme dij:</p><p style="text-align: justify;">-Orina</p><p style="text-align: justify;">inmediatamente el líquido fue extendiéndose por sus pantalones mostrando una mancha cada vez más grande.  a continuación puso una galleta delante del esclavo, la pisó con su bota hasta hacerla polvo y ordenó:</p><p style="text-align: justify;">-Come</p><p style="text-align: justify;">mientas aún salía orina del esclavo, ese se inclinó y empezó a lamer con la lengua los restos de la galleta del suelo. cuando hubo terminado el Amo levantó la barbilla del esclavo. el olor de la orina era apreciable y alrededor de su boca quedaban restos de la galleta.</p><p style="text-align: justify;">-Ahora habla. </p><p style="text-align: justify;">el esclavo movió la boca apero no pudo emitir ningún sonido. lo siguió intentando pero nada salió de su boca.</p><p style="text-align: justify;">el Amo le dio un bofetón tan fuerte que lo tiró al suelo. a duras penas puso ponerse de nuevo de rodillas. tenía toda una parte de la cara colorada. el Amo volvió a hablar con tono enfadado. </p><p style="text-align: justify;">-Te he dicho que hables.</p><p style="text-align: justify;">el esclavo lo volvió a intentar pero de nuevo solo el silencio o los otros Amos estaban admirados.</p><p style="text-align: justify;">-Os lo he dicho, ha olvidado como se habla.</p>

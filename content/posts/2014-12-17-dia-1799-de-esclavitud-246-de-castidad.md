@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1799 de esclavitud, 246 de castidad"
+date: 2014-12-17 22:37:00 +0000
+permalink: /2014/12/dia-1799-de-esclavitud-246-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el perro se ha afeitado hoy los genitales. normalmente suele hacerlo los fines de semana, sin embargo ya lo necesitaba. llevar la jaula se había vuelto molesto.<br/>ha sido un día muy intenso, con mucho trabajo, muchísimo. el perro sale el viernes de vacaciones y tiene que terminar muchas cosas antes de poder hacerlo.<br/>el Dueño está pasando por un mal momento por motivos familiares y el perro se intenta mostrar cercano y sumiso. "Hoy te tendría más que nunca de cuero y botas. Encadenado y amordazado". con estas palabras el Dueño comenzó el día y es un indicativo de lo que esperaría el perro en un día como este... y el perro que estaría gustoso de estar así por su Dueño.<br/>para ambos el bdsm es un refugio, una vía de escape, una salida, una manera de atenuar tensiones, pero también una forma de vida y de afrontar la existencia. para ambos es más que un juego o algo puramente sexual. el perro sabe que al Dueño le ayudaría tenerlo así, amordazado y encadenado, y que eso haría su vida más llevadera, igual que para él.<br/>el mensaje bastó para que el perro se centrara en su ser sumiso y, aunque por la tarde tuvo que ir a la universidad, estuvo pensando en su Dueño hasta el punto de ir al baño y grabar un video en un retrete mostrando las botas, la jaula y la mordaza que se había hecho el perro con un pañuelo. el video era tremendamente escandaloso porque justo cuando lo grababa alguien accionó la máquina para secarse las manos. fue una ironía interesante. poco podría imaginar el que se secaba que a menos de dos metros de donde estaba, un perro esclavo estaba mostrando su pene enjaulado a su Dueño, que estaba a 2000 kilómetros de distancia.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

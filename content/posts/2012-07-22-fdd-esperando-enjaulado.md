@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD esperando enjaulado"
+date: 2012-07-22 07:32:00 +0000
+permalink: /2012/07/fdd-esperando-enjaulado.html
+tags:
+  - FdD
+  - jaulas
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/55/9e/559e8603ed4b1ec192be9f2c81b5b16fe42db832de5625f10c20fee9f503907e.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/55/9e/559e8603ed4b1ec192be9f2c81b5b16fe42db832de5625f10c20fee9f503907e.jpg" width="457" /></a></div><div style="text-align: justify;">muchas veces en este blog hemos hablado de la "espera del esclavo". antes de ser propiedad de un Amo, fantaseamos con ser esclavo, con vivir como sumisos sometidos. esa fantasía alimenta nuestra búsqueda, hace que nos pongamos a tiro, que ansiemos un tipo de vida determinado. algunos afortunados somos encontrados por esos Amos que nos han estado buscando igualmente. y entonces nos damos de bruces con la realidad: la vida del esclavo no es una permanente película porno, ni vamos a estar siempre atendidos esperando que el Amo nos haga todo. gran parte de la vida del esclavo es una vida en soledad, esperando a que su Amo decida usarlo. es como el perro o el gato que pasa gran parte del tiempo en un rincón. mientras la vida del esclavo es su Amo, el Amo sí que tiene su vida: relaciones, trabajo, amistades. eso requiere tiempo y dedicación. un esclavo sólo tiene eso si su Amo se lo permite. puede ser que mientras el Amo esté haciendo esas cosas tu, como esclavo, sólo estés encerrado, almacenado hasta que decidan usarte. y eso es terriblemente aburrido, cansino, desesperante. muchos fantasean estar en una jaula, pero eso sólo es "divertido" la primera media hora, luego se convierte en un tormento de aburrimiento. entonces la mente empieza a jugarte malas pasadas, el ego empieza a hacer de las suyas y empiezas a dudar. estar encerrado requiere tanta fuerza mental como soportar el dolor, someterse a la voluntad de tu Amo, o ser momificado. no por tener libertad de movimientos la cosa es tan fácil. enjaulado, atado o torturado, tu mente se pone a prueba y debes entrenarla para poder soportar cualquiera de estas situaciones. ese es el entrenamiento de el esclavo, no algo puramente físico, sino y especialmente, algo mental.</div>

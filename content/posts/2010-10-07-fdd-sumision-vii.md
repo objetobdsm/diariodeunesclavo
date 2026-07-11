@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD sumisión VII"
+date: 2010-10-07 05:19:00 +0000
+permalink: /2010/10/fdd-sumision-vii.html
+tags:
+  - humillación
+  - imagenes
+  - sumision
+---
+
+<div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="CLEAR: left; FLOAT: left; MARGIN-BOTTOM: 1em; MARGIN-RIGHT: 1em" href="/uploads/5b/c1/5bc142bfe5bb1d2cdbf0e5f1776035a8a4d6cdd9b222b6029f94dcb54b56dd88.jpg).jpg" imageanchor="1"><img height="400" src="/uploads/02/b7/02b7ad42ecab294a3ae9c6121df406e4c2f8ab4ef83d3549275f82662fbb99ec.jpg" width="300" border="0" /></a></div><br /><div style="TEXT-ALIGN: justify">la manifestación pública de la sumisión es algo que siempre me ha llamado la atención por una razón muy sencilla, o por dos más bien. por un lado porque soy muy tímido y mostrarme tan sumiso entra dentro del ámbito de la timidez; pero por otro lado comprendo y entiendo que eso es fruto de mi ego, que toma las riendas y me hace creer que soy algo y que estar de rodillas delante de mi AMO mientras otros me ven, es bajar un escalón, es degradarte. por eso me llama tanto la atención cuando un esclavo muestra sumión a su AMo delante de otros, es un atentado contra el ego. no necesariamente tiene que ser como la foto, a veces basta mantener el silencio por una orden, como en la situación que contaba hace unos días cuando un amigo conoció a su primera pareja Amo/esclavo.</div><div style="TEXT-ALIGN: justify">mi AMO me ha dicho que vivo en unas catacumbas, manteniendo mi devoción y mi naturaleza en privado. y que así debe ser hasta el momento en el que deba manifestarme abiertamente como lo que soy. ¿cuándo ocurrirá? eso lo decidirá EL, cuando crea que estoy preparado supongo, o cuando EL lo desee por que sí. pero esto me plantea un problema porque no desearía ser quien soy que se ha convertido en quien soy sumiso. no deseo convertir mi no vida en vida. me gustaría matar la no vida, que desapareciera y nacer a una vida plena a los pies de mi AMO. no es una transformación, sino una muerte y un nuevo nacimiento. las transformaciones se pueden revertir, las muertes no. </div><div style="TEXT-ALIGN: justify">no deseo salir de las catacumbas, deseo morir en ellas y nacer como un ser nuevo viviendo a los pies de mi AMO. se me vuelve a ocurrir que algunos lo considerarán radical, extremista, exagerado, pero no escribo esto para ellos, sino para mi AMO, y para todos aquellos que entienden lo que estoy intentando expresar.</div>

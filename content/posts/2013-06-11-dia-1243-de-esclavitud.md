@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1243 de esclavitud"
+date: 2013-06-11 21:34:00 +0000
+permalink: /2013/06/dia-1243-de-esclavitud.html
+tags:
+  - personal
+---
+
+76 días de castidad, 76 desde el último ordeño<br /><div style="text-align: justify;">estos son días muy estresantes en el trabajo, o al menos solían serlo. sin embargo el perro se lo está tomando con mucha calma. la principal razón es que el Dueño ha ordenado al perro cuidarse. cuidar la propiedad del Dueño es una prioridad. partiendo de ahí todo lo demás viene por sí solo. convertirse en propiedad y que sea otro tu Dueño hace que las prioridades cambien. lo mejor de todo es que eso viene en beneficio del propio perro porque nadie duda que vivir menos estresado es mejor.</div><div style="text-align: justify;">volvió el perro a leer algunos post del blog del esclavo de Master Edwards y reencontró algunas cosas que en otro momento estaban rondando su alma de esclavo. entre ellas tal vez la más importante sea la objetificación, convertirse en apenas un objeto al servicio del Dueño. en ese blog el esclavo responde a los que criticaban al Amo por "deshumanizarlo", y usaba un argumento impactante: la liberación de todas las preocupaciones y ansiedades que producen las infinitas elecciones que tenemos que hacer a lo largo del día. el esclavo ya no tiene capacidad de elección. el Amo lo hace por él. </div><div style="text-align: justify;">en otro momento, en otra vida, a estar alturas del curso, el perro tendría la polla en la mano todo el día, masturbándose dos y hasta tres veces diarias. el Dueño decía que parecía un animal, y en cierta medida, así era. hoy hace 76 días que el perro no ve su leche, que no se masturba y que no se ordeña. son 76 días de castidad y no son un logro del perro, sino del Dueño que ha conseguido tal proeza. el objetivo es, en principio, no hacerlo salvo en presencia del Dueño y con su permiso, aunque más que con su permiso había que decir cuando El lo ordene. así, poco a poco, se va gestando un esclavo.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

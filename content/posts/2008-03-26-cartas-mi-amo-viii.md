@@ -1,0 +1,10 @@
+---
+layout: post
+title: "cartas a mi AMO VIII"
+date: 2008-03-26 05:05:00 +0000
+permalink: /2008/03/cartas-mi-amo-viii.html
+tags:
+  - cartas
+---
+
+<div align="justify">el día hoy está gris y hace frío, bastante frío. las calles están medio desiertas y se vive una especie de congoja general, o al menos así lo siento yo. es como si todo se paralizase un poco. siguen <span class="blsp-spelling-error" id="SPELLING_ERROR_0">inundándome</span> ideas referidas al dolor y la muerte, más concretamente sobre la muerte. en el juego <span class="blsp-spelling-error" id="SPELLING_ERROR_1">bdsm</span> muchas veces se ronda la misma muerte, o se vive de forma simbólica. la inmovilización extrema, por ejemplo. unido a la privación sensorial, puede ser vivida como una muerte simbólica. la oscuridad lo cubre todo y no hay contacto con el mundo exterior pero además es imposible controlar tu medio, es<span class="blsp-spelling-error" id="SPELLING_ERROR_2">tás</span> impotente, <span class="blsp-spelling-error" id="SPELLING_ERROR_3">indefenso</span> en relación con el exterior y, además, tampoco controlas tu propio cuerpo. la conciencia es lo único que te separa de la muerte. el control sobre la vida y la muerte es el control último. si lo entendemos como dos momentos puntuales no tenemos o podemos ejercer control sobre ellos a menos que <span class="blsp-spelling-corrected" id="SPELLING_ERROR_4">estemos</span> dispuestos a cometer un asesinato. pero si los entendemos como situaciones vitales constantes, entonces también sobre ellas puede ejercer control el AMO. a veces basta una palabra, un gesto, una acción, una frase, para que me sienta morir o me sienta lleno de vida. eso sí es control auténtico. yo lo vivo con Usted, Señor, aunque a veces creo que no es consciente de todo el poder que tiene sobre mi.</div>

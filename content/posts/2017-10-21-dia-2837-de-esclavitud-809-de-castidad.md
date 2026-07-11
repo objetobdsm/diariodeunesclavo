@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2837 de esclavitud, 809 de castidad"
+date: 2017-10-21 22:35:00 +0000
+permalink: /2017/10/dia-2837-de-esclavitud-809-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">a pesar de ser, supuestamente, día de descanso, el objeto fue a trabajar. su mentalidad no es la de cumplir horarios sino la de trabajar por objetivos. si hay que hacer una cosa, se hace aunque haya que ocupar tiempo fuera. supone que eso tiene que ver con su visión de la esclavitud y la sumisión. no es algo que sea temporal, con un horario sino algo que cubre toda su vida. porque, hasta donde puede recordar el objeto, casi nunca ha considerado un trabajo como un trabajo, tal vez porque ha sido lo suficientemente afortunado como para trabajar siempre en cosas que le gustan. por eso lo que para todo el mundo es, en su mayoría, una carga, para el objeto es un placer.<br/>como decía, aplicando esto al bdsm nunca entendió eso como una práctica esporádica sino que desde el principio lo vio como una forma de vida, aunque nunca pensó que podría realizarse realmente. el condicionante para llevarla a cabo era que un Amo te encontrara, no que fueran una sucesión de sesiones. entiende que haya gente que lo viva así pero ya a estas alturas y después de este camino recorrido, el objeto no cree que pueda haber marcha atrás. lo ha comentado muchas veces con el Dueño, o mejor dicho, el Dueño se lo ha dicho muchas veces, que ya no hay posibilidad de retroceso, de vuelta a la situación anterior. efectivamente la cosa se puede romper, porque pueden haber muchos condicionantes que escapan a la voluntad de Dueño y objeto, pero si eso ocurre para el objeto será el fin. no hay vida después de la esclavitud. puede haber supervivencia, pero eso no es vida. ya no hay marcha atrás. esto es definitivo. el Dueño lo sabe, y el objeto también.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

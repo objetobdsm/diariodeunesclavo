@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2817 de esclavitud, 789 de castidad"
+date: 2017-10-01 22:31:00 +0000
+permalink: /2017/10/dia-2817-de-esclavitud-789-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">según ha podido leer el objeto, la única forma de garantizar que el dispositivo de castidad sea cien por cien efectivo es con un príncipe alberto en el pene que esa unido al dispositivo. eso implica un piercing que puede producir problemas de higiene y de salud.<br/>si esto es así, ¿qué sentido tiene llevarlo? teniendo en cuenta que todo aquel que lleva un dispositivo de castidad es porque ha aceptado llevarlo ¿por qué lo llevarías si tu intención es quitártelo? su función es, primeramente, recordarte que has perdido el control sobre tus genitales. esa pérdida de control no es sino la expresión de una cesión a otra persona de aspectos de tu vida, que sometes a sus deseos. la jaula es un recordatorio y el símbolo físico de eso.<br/>pero además constituye la primera "barrera de defensa". si tu Amo ordena no correrte, sin jaula es relativamente saltarte la orden: "fue por accidente", "el roce de la ropa", "me estaba tocando y..". con una jaula no hay accidente. si te corres con ella lo has hecho intencionadamente. aunque el objeto debería expresarse mejor, es posible correrse pero no tener un orgasmo. los varones solemos vincular eyaculación con orgasmo pero no siempre van unidos, como ha podido comprobar el objeto que, desde que vive en castidad radial ha eyaculado varias veces pero no ha tenido un orgasmo desde hace 789 días.<br/>si el Amo te pone una jaula y tienes un orgasmo es porque consecuentemente te has quitado la jaula e intencionadamente te has masturbado hasta conseguir el orgasmo.<br/>otra función de la jaula es la de hacer que no te centres en tu placer sino en el del Amo y aquellos a los que el Amo quiere que sirvas. la jaula deja tu culo abierto y disponible para ser penetrado y usado por otros, haciendo ver cual es tu nueva condición y situación: un ser inferior sometido a la voluntad del Amo.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

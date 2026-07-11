@@ -1,0 +1,11 @@
+---
+layout: post
+title: "705 días de esclavitud, 11 de castidad"
+date: 2011-12-21 23:30:00 +0000
+permalink: /2011/12/705-dias-de-esclavitud-11-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">parece que la foto del día de hoy ha suscitado más comentarios de lo habitual. parece que amor, cariño y bdsm siguen siendo temas complicados en engarzar, de armonizar, de compartir, de entender. creo que será un tema para futuros días y reflexiones. </div><div style="text-align: justify;">hoy este perro ha tenido un mal día en su no-vida, pero que mejoró a media tarde. tuve que ir a telde a hacer algunas gestiones y, en medio de la calle principal, me encuentro a un motero con unas fantásticas botas vaqueras marrones repujadas. llevaba vaqueros y una chaqueta motera pero no de cuero, sino de fuerte tela. aparté la mirada, como ha ordenado mi Dueño, pero pude ver cómo entraba en una administración de lotería en san gregorio, supongo que para comprar un boleto para mañana. este perro llevaba 12 horas prácticamente con sus propias botas, y ver a otro tio con botas, aunque más llamativas que las suyas, fue una experiencia agradable.</div><div style="text-align: justify;">entonces este perro se dio cuenta de que estaba caliente, muy caliente, y comenzó a fijarse en los tios que pasaban. hacía frio, pero pocos llevaban cuero y muchos menos botas. aquí es muy raro que eso ocurra, y los que lo hacemos llamamos la atención. eso también facilita cierta comunicación. si alguien lleva botas, no es por una cuestión práctica o estética, que también, sino básicamente porque siente una cierta satisfacción ¿sexual? llevándolas.</div>al llegar a casa por la noche, siguiendo instrucciones de mi AMO, reservé un billete para la semana que viene. iré a servirle y me arrodillaré a sus pies, lameré sus botas y me atará, dejándome indefenso. ese mismo hecho bastó para ponerme nervioso, pero a la vez hacerme feliz.<br />
+obediencia ciega para el esclavo, poder absoluto para el Amo.

@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD chaps- eros"
+date: 2016-11-09 07:08:00 +0000
+permalink: /2016/11/fdd-chaps-eros.html
+tags:
+  - FdD
+  - leather
+---
+
+<p style="text-align:justify;"><img class="aligncenter" src="/uploads/96/88/968895ec2786ca051fde59e037fe8c46c987eea3b69d9525281c9a84248f7e4b.jpg" alt="" width="1280" height="720" />los chaps son una de las prendas más atractivas para 402. en el código de la Vieja Guardia eran propios de esclavos, porque cuanto menos cuero, menos compromiso con el grupo y con la sumisión. eran un paso previo antes de los pantalones de cuero que implicaba un compromiso y un ingreso completo en el grupo. era por tanto una prenda de sumisos o de Amos en entrenamiento. hoy en día es justo al contrario ya que los chaps han quedado relegados al mundo bdsmero mientras que los pantalones pueden ser llevados socialmente en mayor o menor medida.<br/>sin embargo lo que siempre ha llamado la atención de 402, y sigue haciéndolo, es el hecho de que en la Vieja Guardia el cuero había que ganárselo. no podías ir sencillamente a una tienda, comprarlos y ponértelos. si se te ocurría hacer eso el grupo mismo te censuraba y perdías capital simbólico. era tu entrenamiento, tu esfuerzo, tu dolor o tu placer el que te daba derecho a llevarlo. cuanto más servías, en el caso de los esclavos, más autoridad adquirías como esclavo y más derecho a vestirte de cuero. si siguiéramos con esta práctica evitaríamos muchos malentendidos y situaciones en las que un se quiere introducir en este mundo y se gasta una fortuna en una tienda especializada para vestirse completamente de cuero y luego, cuando llega el momento, empiezan las excusas y los "no" y los "yo quiero que..." y los "ah, que asco" y los "ay no tan fuerte".<br/>la Nueva Guardia se preocupa por la estética, por aparentar más que por ser. para ellos esto no es más que un mero juego sexual, lo cual está bien para ellos, pero como en todo puede llegarse al punto de pensarse que el bdsm es exclusivamente eso, apariencia. la mayoría aboga por la aceptación social de estas prácticas, sin embargo el precio a pagar es volver a rechazar a aquellos que lo vivimos con mayor profundidad, con mayor intensidad. para ellos seguimos siendo "enfermos", pero ellos siguen sin ponerse unos chaps.</p>

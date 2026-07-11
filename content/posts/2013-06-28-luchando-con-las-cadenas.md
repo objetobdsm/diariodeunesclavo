@@ -1,0 +1,11 @@
+---
+layout: post
+title: "luchando con las cadenas"
+date: 2013-06-28 17:35:00 +0000
+permalink: /2013/06/luchando-con-las-cadenas.html
+tags:
+  - cadenas
+  - videos
+---
+
+<div class="separator" style="clear: both; text-align: center;"><object width="420" height="366" class="BLOG_video_class" id="BLOG_video-b6cf03a51ce00ced" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=6,0,40,0"><param name="movie" value="//www.youtube.com/get_player"><param name="bgcolor" value="#FFFFFF"><param name="allowfullscreen" value="true"><param name="flashvars" value="flvurl=http://redirector.googlevideo.com/videoplayback?id%3Db6cf03a51ce00ced%26itag%3D5%26source%3Dblogger%26app%3Dblogger%26cmo%3Dsensitive_content%253Dyes%26ip%3D0.0.0.0%26ipbits%3D0%26expire%3D1374644913%26sparams%3Did,itag,source,ip,ipbits,expire%26signature%3D2BCE3A5929E423833AF9CA508DED2CD1F84E06F4.A51E1AE3B5504586AB03C8E68E9083DABC2BA253%26key%3Dck2&iurl=http://video.google.com/ThumbnailServer2?app%3Dblogger%26contentid%3Db6cf03a51ce00ced%26offsetms%3D5000%26itag%3Dw160%26sigh%3DnbdQ9yF6vnzkselNnxxKkrMFSkY&autoplay=0&ps=blogger"><embed src="//www.youtube.com/get_player" type="application/x-shockwave-flash" width="420" height="366" bgcolor="#FFFFFF" flashvars="flvurl=http://redirector.googlevideo.com/videoplayback?id%3Db6cf03a51ce00ced%26itag%3D5%26source%3Dblogger%26app%3Dblogger%26cmo%3Dsensitive_content%253Dyes%26ip%3D0.0.0.0%26ipbits%3D0%26expire%3D1374644913%26sparams%3Did,itag,source,ip,ipbits,expire%26signature%3D2BCE3A5929E423833AF9CA508DED2CD1F84E06F4.A51E1AE3B5504586AB03C8E68E9083DABC2BA253%26key%3Dck2&iurl=http://video.google.com/ThumbnailServer2?app%3Dblogger%26contentid%3Db6cf03a51ce00ced%26offsetms%3D5000%26itag%3Dw160%26sigh%3DnbdQ9yF6vnzkselNnxxKkrMFSkY&autoplay=0&ps=blogger" allowFullScreen="true" /></object></div><div class="separator" style="clear: both; text-align: center;">directo, sencillo, efectivo.....</div><br />

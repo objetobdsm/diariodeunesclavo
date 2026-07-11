@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2987 de esclavitud, 959 de castidad"
+date: 2018-03-20 22:27:00 +0000
+permalink: /2018/03/dia-2987-de-esclavitud-959-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">la jaula modelo holytrainer v3 nano ha llegado hoy a casa del Dueño. la razón es que no venden a canarias y no podía recibirla el objeto, así que se hace necesario un viaje próximamente para que el Dueño pueda ponérsela al objeto. es una actualización de la castidad, un reconocimiento de que no volverá a tener una "sexualidad libre" nunca más, que en un sentido el objeto está castrado y que permanecerá así mientras siga respirando. el Dueño lo dice a menudo: "No hay marcha atrás. No hay salido. Morirás así". tal vez la nueva jaula traiga nuevos problemas. es cierto que la actual normalmente deja mucho espacio, pero otras veces si que la lleva, o que significa que con la nueva versión pasará el objeto algunos momentos de dolor. no cree que eso importe al Dueño, más bien al contrario, espera que le agrade.<br/>además hoy el Dueño ha expresado un deseo, que el objeto suplique incluso las cosas más concretas, más pequeñas, aunque no pueda contestar a veces por la distancia y sus ocupaciones, al menos la súplica queda allí registrada. ir al baño, tomar un café, dormir una siesta, comer...son cosas cotidianas que estarían bajo el control del Dueño, y lo están de hecho, cuando el objeto va a servirle. el Dueño desea que en la distancia esas cosas también las suplique. ha especificado que, de no producirse, no implicaría un castigo, pero que le agrada que así sea, porque indica que el objeto está pensando en Él. por supuesto para el objeto este deseo se convierte en orden, incluso si su incumplimiento no conlleva castigo. el Dueño es consciente de lo difícil que es este microcontrol en la distancia, pero es un nuevo paso más hacia la objetificación total de este objeto.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

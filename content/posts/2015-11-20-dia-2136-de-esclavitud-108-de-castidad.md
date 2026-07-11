@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2136 de esclavitud, 108 de castidad"
+date: 2015-11-20 22:39:00 +0000
+permalink: /2015/11/dia-2136-de-esclavitud-108-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">un esclavo voluntario no se debe a sí mismo, sino a su Amo. sus preferencias, sus gustos, sus deseos y aspiraciones están en segundo, tercer, o cuarto plano, ya que lo que debe primar siempre es el Amo.<br/>esto es así cuando el Amo está presente y cuando no. hoy el perro lo ha puesto en práctica porque ha empezado a ir a un entrenador personal para ponerse en forma.<br/>mentiría si una de las razones no fuera por salud pero sin duda la principal es el Dueño. al ser una propiedad que le pertenece, la principal ocupación del perro ha de ser mantenerse en el mejor estado posible para ser usado por el Dueño.<br/>el perro no suele hacerlo pero beber, fumar, o cualquier actividad que peuda considerarse perjudicial debe ser aprobada por el DUeño, incluso si bebe moderadamente. dentro de esto el sobrepeso que tiene el perro, sin ser preocupante no es admisible y hay que ponerle remedio. hoy el perro ha dado el primer paso.<br/>ha sido fuerte e intenso pero al terminar se notaban las endorfinas haciendo de las suyas. es como cuando terminas una sesión de bdsm pero sin el desahogo sexual.<br/>la vida de un esclavo es un entrenamiento permanente y constante. debería tener un horario rígido, con tareas que le den seguridad y que cada vez realice mejor. tiene que haber tiempo par ael ejercició físico y para el mental, siempre mejorando para servir mejor. un esclavo qeu no aumenta su valor de alguna forma cada año. corre el riesgo de convertirse en una carga y ser vendido.<br/>el perro sabe esto y está poniendo los medios para que no ocurra. ahora viene lo más difícil: la constancia, pero saber que lo que está haciendo agrada al Dueño es motivación suficiente.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

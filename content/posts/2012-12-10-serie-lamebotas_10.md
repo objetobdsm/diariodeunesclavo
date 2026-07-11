@@ -1,0 +1,11 @@
+---
+layout: post
+title: "serie lamebotas"
+date: 2012-12-10 18:40:00 +0000
+permalink: /2012/12/serie-lamebotas_10.html
+tags:
+  - botas
+  - series
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/44/2f/442f70f9e15a4cf15c61c991e0f242abb88594a05f3fac3d32579454804bd08f.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/44/2f/442f70f9e15a4cf15c61c991e0f242abb88594a05f3fac3d32579454804bd08f.jpg" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/fb/f1/fbf10f415615a2abca16f00c4d78e5a2a3d06aae43d10f0ad330fb9993b20046.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="480" src="/uploads/9a/3b/9a3bb446e47b04a8bb58422f78fb98e00a584da0b2be644d634778cb35683145.jpg" width="640" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/49/05/4905236216511430803f98aa2e0c22eaafbbcc50d466c8720757ff56dbbd72b8.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/49/05/4905236216511430803f98aa2e0c22eaafbbcc50d466c8720757ff56dbbd72b8.jpg" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/49/4c/494cfdc9bdb1d972fb5949a32b58683c849984f51bd306a7a691f690ea7f1f8a.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/49/4c/494cfdc9bdb1d972fb5949a32b58683c849984f51bd306a7a691f690ea7f1f8a.jpg" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/21/8e/218e9832a8100ae3cb08936aeba8ed6623dba1b9979a00f5358973ebfed9a742.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="424" src="/uploads/d9/25/d925119a42c8c995c64105a62f6da3e700ec3633f2ab3da2e039d48fc14de8da.jpg" width="640" /></a></div>una vez terminada la serie sobre castidad, comienza una nueva con lamebotas como protagonistas. tal vez algunas fotos ya hayan sido publicadas, pero, ¿a alguien le importa?

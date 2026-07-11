@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1539 de esclavitud, 110 de castidad"
+date: 2014-04-03 22:32:00 +0000
+permalink: /2014/04/dia-1539-de-esclavitud-110-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hoy ha habido un reconocimiento, un encuentro sin encuentro. estaba el perro recorriendo las calles de telde cuando, en la terraza de una cafetería, percibe a un tio sentado con dos chicas. tenía las piernas estiradas hacia delante y, al final de ellas, dos flamantes y brillantes botas marrones, tipo motero, de las de hebilla a un lado. enseguida apartó el perro la vista pero pudo comprobar cómo el tío le hizo un recorrido al perro, desde sus sendras hasta la cabeza. hubo un instante en el que dos boteros reconocieron las botas del otro no como un simple calzado, sino como algo más, como la expresión de un fetichismo que sentían profundamente.<br/>en otra época, en otro mundo, posiblemente el perro hubiera flirteado con el tio. se hubiera detenido en un escaparate o se habría sentado a tomar un café para ver si hacía algún gesto de acercamiento. si hubiera establecido contacto, posiblemente habría habidos sexo, el sexo de dos boteros fetichistas.<br/>pero eso sería en otro mundo. incluso desobedeciendo al Dueño y manteniendo contacto sexual con el botero de las botas marrones, algo impensable; el perro seguía con la jaula por lo que cualquier erección se convierte en algo doloroso y el sexo es imposible. aunque quisiera, que no quisiera. es en situaciones así cuando se hace más evidente que el perro está sometido, controlado, anulado.<br/>frente a la frustración que debería haber sentido, el perro sintió cierto orgullo, alegría, satisfacción... el perro se sintió más perro aún y eso dio sentido a su existencia, un día más.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

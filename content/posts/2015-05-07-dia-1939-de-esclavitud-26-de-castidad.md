@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1939 de esclavitud, 26 de castidad"
+date: 2015-05-07 22:47:00 +0000
+permalink: /2015/05/dia-1939-de-esclavitud-26-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">tras el trabajo el perro fue a correos a recoger la jaula de metal. casi no tuvo que hacer cola y recogió el paquete. en cuanto la desempaquetó y la vio pensó que se había equivocado con las medidas, porque es considerablemente más pequeña que el holy trainer. el perro condujo hasta casa con ansiedad, porque no creyó que le cupiera el pene allí.<br/>cuando llegó, lo primero que hizo fue ponérsela, y sí que le cupo. sin embargo queda muy, muy ajustada. de hecho no queda espacio siquiera para una erección. se lo comuniqué al Dueño y la cosa quedó clara: sería una jaula de castigo. el Dueño ya comenzó porque empezó a hablar al perro y éste comenzó a excitarse. entonces apareció el dolor, un dolor fuerte e intenso en la entrepierna. es casi como cuando le salió la leche con la jaula puesta en la última visita del perro al Dueño. no hay espacio suficiente para que la polla del perro pueda maniobrar y eso hace que esté más constreñida que nunca.<br/>la sensación de que está castrado es más fuerte que nunca. ahora el pene del perro no es algo para el placer sino para el dolor. al Dueño le agradó que eso fuera así, que cada jaula tuviera una función determinada. ahora el perro se pondrá la de plástico a diario y la metal cuando el Dueño quiera torturar al perro. el perro sacó algunos videos y fotos que envió al Dueño. Este le dijo que ya llevaría jaula siempre, que el pene del perro nunca estará libre otra vez y que el perro vive castrado para su Dueño. lo más curiosos y sorprendente es que el perro se sintió infinitamente feliz con estas palabras del Dueño.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

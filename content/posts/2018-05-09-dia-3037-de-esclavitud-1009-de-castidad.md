@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3037 de esclavitud, 1009 de castidad"
+date: 2018-05-09 22:12:00 +0000
+permalink: /2018/05/dia-3037-de-esclavitud-1009-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">Dueño y objeto mantuvieron hoy una conversación de esa que sume a esto en subspace profundo. cada frase, cada palabra del Dueño iba bajando al objeto hasta un punto en el que dejó de ser él mismo. el subspace es un estado profundo, extraño para cualquiera que no lo haya experimentado. en el subspace no hay identidad, no hay voluntad, sólo obediencia. casi no recuerda el objeto la primera vez que lo sintió pero ahora sabe que basta oír, o estar en presencia del Dueño para que se active y el objeto se vuelva sumiso hasta el extremo. realmente puede decir ahora que ese, el subspace es su estado.<br/>esta conversación ha sido una de las más profundas que el objeto recuerda. desde el primer momento el objeto sintió como su boca se sellaba, incapaz de hablar. cada frase que decía el Dueño entraba directamente a la mente del objeto.<br/>no dejaba de sorprenderse de lo profundo que es el control que ejerce el Dueño. cada palabra es aplastante tanto en sentido positivo como negativo. basta una palabra para que esto se sienta el más feliz o el más desgraciado.<br/>por parte del objeto sólo desea someter a la voluntad del Dueño todas y cada una de las acciones de la vida del objeto. la obediencia se está imponiendo y se filtrando por cualquier rendija y es la norma del comportamiento del objeto con el Dueño. esto sólo aspira a ser un objeto obediente y sumiso.<br/>al terminar la conversación el objeto se encontraba en un profundo estado no sólo de sumisión sino de calma y tranquilidad. tras hablar con el Dueño el objeto estuvo en paz el resto de la tarde.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

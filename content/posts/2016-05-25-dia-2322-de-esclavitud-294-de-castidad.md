@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2322 de esclavitud, 294 de castidad"
+date: 2016-05-25 22:34:00 +0000
+permalink: /2016/05/dia-2322-de-esclavitud-294-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hoy podría ser uno de esos días en los que peligrara el comportamiento de 402 como objeto. el motivo es que, tras la larga mañana en el trabajo, tenía que ir a dar una conferencia. eso se traduce en un puesto preminente, una audiencia que te escucha y, si sale bien, valoraciones positivas y felicitaciones; todos ellos combustibles para el ego. sin embargo el entrenamiento al que el Dueño ha sometido a 402 ha dado sus frutos. 402 terminó la conferencia, que salió bastante bien, por cierto, y recibió varias felicitaciones, pero el ego no apareció. 402 no se sintió especial, diferente, mejor. más bien al contrario sintió humildad, sumisión y agradecimiento al Dueño por haberlo llevado hasta este punto. en ese sentido fue un día muy interesante. ahora 402 está muy cansado porque siempre, después de un acto así que implica mucha energía y trabajo, viene un momento de decaimiento, que no hace sino superponerse al estado previo en el que se encontraba.<br/>de camino a la conferencia, 402 habló con el Dueño y pusieron todo esto sobre la mesa. el Dueño dijo que sabía que 402 estaba mal y que eso no le gustaba, porque sólo le gustaba "el sufrimiento que le producía El y para Su placer". esa expresión encantó a 402 porque expresa muy bien la relación que mantienen. por el Dueño, cualquier sufrimiento, pero si no es producido por El, el Dueño no desea que 402 lo pase mal. más bien al contrario el Dueño sólo desea que esté bien. esto es algo que no pueden decir todos, de hecho es algo muy especial que habla de la calidad del Dueño.<br/>en definitiva un día intenso, muy intenso, que espera 402 lleve a días mejores.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

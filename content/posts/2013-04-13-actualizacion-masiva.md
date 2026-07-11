@@ -1,0 +1,10 @@
+---
+layout: post
+title: "actualización masiva."
+date: 2013-04-13 12:33:00 +0000
+permalink: /2013/04/actualizacion-masiva.html
+tags:
+  - comunicados
+---
+
+<br /><div style="text-align: justify;">una nueva actualización masiva del blog, casi 50 entradas. el perro desearía que fuera la última, pero tal y como anda su vida últimamente teme que no será así. en cualquier caso suplica perdón a los seguidores por el retraso y espera que pueda compensar, con la calidad de las entradas, la larga espera.</div><div style="text-align: justify;">algunas apreciaciones son necesarias. además de las entradas de las dos semanas de abril que llevamos, el perro también ha publicado las entradas correspondientes a su viaje a madrid para servir al Amo la última semana de marzo. hay que ir hacia atrás en las entradas para encontrarlas, porque aunque han sido publicadas hoy, están puestas en su fecha correspondiente. </div><div style="text-align: justify;">recordarles también que mucha de las fotos se pueden ver a un tamaño mayor que el que aparecen en el blog. para hacerlo basta colocarse encima y pinchar en ellas. </div><div style="text-align: justify;">el perro les anima a participar del blog mediante comentarios y sugerencias, son de agradecer y pueden enriquecer al perro y al propio blog. al Dueño también le gusta leer los comentarios porque indican que es un blog vivo y que hay gente que lo lee. </div><div style="text-align: justify;">como pueden comprobar el blog sigue en la dinámica de compaginar imágenes y videos con textos que pueden resultar interesante y que expresan el mundo interior del perro y la relación de sumisión/propiedad que mantiene con el Dueño. a pesar del retraso sigue vivo y el perro espera poder seguir publicando durante mucho tiempo más.</div><div style="text-align: justify;">el perro desea que disfruten de la lectura.</div>

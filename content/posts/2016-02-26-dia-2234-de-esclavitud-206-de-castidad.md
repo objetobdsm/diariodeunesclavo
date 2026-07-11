@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2234 de esclavitud, 206 de castidad"
+date: 2016-02-26 22:31:00 +0000
+permalink: /2016/02/dia-2234-de-esclavitud-206-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el día de hoy ha estado marcado, prescindiendo por supuesto de la no-vida, que no merece ser nombrada aquí; por una conversación que este objeto mantuvo con su Dueño. giró sobre cuándo se pierde la castidad y hay que poner el contador a cero. el Dueño fue bastante explícito, mientras no haya orgasmo no se rompe la castidad. esto surgió porque, en el último viaje, salió el tema de que el Dueño quiere progresar en el juego con objetos anales. 402 tiene un butt plug que no utiliza mucho y un supuesto estimulador de próstata que no hace muy bien su función. el martes pasado fue a un sex-shop y encontró un estimulador, que aún no ha probado y que espera sirva más. el motivo es que 402 se ordeñará siempre ya con la jaula puesta, y para eso necesita el masajeador prostático. el Dueño no rechaza el uso de butt plugs, pero antes debe 402 suplicarlo y, al contrario que en otras cuestiones, el silencio no es concesión sino rechazo. en algunas cosas el Dueño ha dicho que si no responde en un tiempo prudencial a una súplica, se da por concedida. con esto no es así. debe haber permiso explícito.<br/>en el supuesto de que, usando un butt plug, le saliera la leche involuntariamente a 402, el Dueño ha dicho que no se considera pérdida de la castidad pero que tendría que reconsiderar el uso de ese objeto de manera prudencial. el próximo martes se supone que es el siguiente ordeño de 402. el Dueño ha establecido unos momentos para hacerlo pensando en la salud de su objeto. por experiencias anteriores el uso del butt plug ayuda a relajar la calentura y la excitación de 402 pero no es algo de uso frecuente. parece que el Dueño quiere que eso cambie.<br/>incluso en el sexo vanilla, cuando era penetrado, 402 tenía algunas dificultades porque dilataba poco y mal. supongo que el entrenamiento consistirá en subsanar eso y que los objetos, seas cuales fueran, entren bien en 402.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

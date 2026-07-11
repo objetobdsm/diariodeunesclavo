@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3202 de esclavitud, 1174 de castidad"
+date: 2018-10-21 22:57:00 +0000
+permalink: /2018/10/dia-3202-de-esclavitud-1174-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">siempre consigue el Dueño sorprender al objeto. cuando parece que todo va bien, siempre da una vuelta de tuerca nueva. hoy lo ha hecho hablando de una confusión que se produjo esta semana y que no viene al caso. el hecho es que el objeto se ha dado cuenta, igual que el Dueño, que cada vez que el objeto suplica algo relacionado con el bdsm, en el fondo es un deseo, y los objetos no deben tener deseos, porque los deseos vienen del ego y producen sufrimiento si no se cumplen. así que el Dueño acaba de prohibir al objeto suplicar nada que no sea estrictamente necesario: trabajo, alimento y poco más. sigue en vigor la norma de cuando el objeto esté solo llevar el collar de cuero, la mordaza y las esposas de cuero.<br/>la lógica del proceso es perversa y aplastante. primero el Dueño ordenó que le comunicara cuando se masturbaba el objeto, luego el objeto tuvo que suplicar permiso para masturbarse. cuando lo enjauló y puso en castidad ordenó que suplicara cualquier cosa que hiciera en su tiempo libre. el objeto lo hizo. ahora el objeto ya no puede suplicar salvo casos excepcionales. eso significa que sólo obedece. el proceso de deshumanización casi está terminado, porque el objeto siente que ya no le queda nada bajo su control y además ha aprendido una serie de cosas: que el dolor y el castigos forman parte de su vida y que debe aceptarlos y abrazarlos; que nunca tiene razón ya que siempre la tiene el Dueño; que no tiene límites. el Dueño puede hacer con el objeto lo que quiera, y como dice El "Esta frase no es una metáfora". que la obediencia es total y absoluta y que cualquier falta, por pequeña que sea, merece un gran castigo, porque el Dueño se esfuerza y dedica mucho tiempo a entrenar al objeto y si el objeto no responde la falta es enorme. hoy ha sido un gran día porque el objeto ha aprendido una gran lección.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

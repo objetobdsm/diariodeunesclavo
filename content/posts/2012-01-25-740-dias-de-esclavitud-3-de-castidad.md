@@ -1,0 +1,10 @@
+---
+layout: post
+title: "740 días de esclavitud, 3 de castidad"
+date: 2012-01-25 23:10:00 +0000
+permalink: /2012/01/740-dias-de-esclavitud-3-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">sólo han pasado tres días desde la última vez que me ordeñé y hoy he tenido muchas ganas de volver a hacerlo. he estado en casa prácticamente todo el dia y sentí unos deseos de sentir placer, de autosatisfecerme, y la mejor forma era masturbarme, justo eso, masturbarme. pero mi mente de perro entró en funcionamiento y me dijo lo que ya sabía, que ya no puedo masturbarme, que ahora lo más es que me ordeño y no por propia voluntad, sino por orden de mi Dueño.</div><div style="text-align: justify;">hablando hoy con un perro hermano, salió el tema del encuentro y de la búsqueda. él, un perro de raza, esclavo por naturaleza, busca y desea vivir sometido a la voluntad de un Amo, pero al igual que muchos Amos se quejan de que los esclavo sólo quieren una sesión y no vivir sometidos, mi hermano se queja de que los Amos que conoce no tienen ni la habilidad ni la profundidad suficientes para poseer un esclavo. esta situación me cuestiona porque percibo quejas por ambos lados, quejas que desaparecerían si existiera la posibilidad de conectar ambos polos: que los esclavos por naturaleza pudieran estar disponibles para los Amos que desean poseer un esclavo. lo que ambos buscan existe, sólo que aún no se han encontrado para poder realizarlo.</div><div style="text-align: justify;">por la noche mantuvo este perro una conversación muy intensa porque este perro mantuvo una conversación con su Amo que terminó cuando le ordenó ordeñarse con la mordaza que había llevado por madrid. no tardé ni medio minuto en sacar la leche, manchando todo alrededor. durante el proceso este perro no hizo ruido alguno ni mostró ninguna señal de placer.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

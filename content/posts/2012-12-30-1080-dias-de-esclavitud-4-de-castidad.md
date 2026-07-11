@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1080 días de esclavitud, 4 de castidad"
+date: 2012-12-30 22:10:00 +0000
+permalink: /2012/12/1080-dias-de-esclavitud-4-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><br /><div style="text-align: justify;">realmente uno se pregunta qué hay que contar si viviera encerrado. la soledad del esclavo pone en evidencia la diferencia entre lo que imaginamos y la realidad. la fantasía de vivir encerrado está bien, son fantásticos, pero la realidad es que la vida se vuelve monótona, pero la realidad es que la vida se vuelve monótona en el sentido de pocas cosas que contar. vivir con un horario establecido, limitado a lo que puedes hacer entre cuatro paredes, no permite llenar un diario con cosas llamativas o fantásticas, acontecimientos exclusivamente morbosos sacados de una película pornográfica. la vida de un esclavo tiene mucho de monotonía, de normalidad. es irónico pero es así. la clave de todo eso es que sólo si es así se pueden vivir intensamente los momentos en los que el Amo te usa. es como un soldado, se prepara constantemente para entrar en batalla, algo que tal vez no haga nunca. en este caso si, el esclavo se prepara constantemente para el momento de servir a su Dueño.</div><div style="text-align: justify;">igual que la vida de los policías no se asemeja a lo de los telefilmes norteamericanos, ni la de los médicos a los que salen en hospital central, los esclavos no viven una película porno constante. eso es lo que diferencia a los auténticos esclavos de aquellos que se calientan. un esclavo auténtico seguirá siendo esclavo una vez el calentón haya pasado.</div><div style="text-align: justify;">esto es un paso más en la sumisión. no lo sabe a ciencia cierta porque el Amo no se lo ha dicho pero esto es una nueva fase del entrenamiento: aprender a quitar todo lo accesorio, estar encerrado y pasar días en el interior, para prepararse y servir al Amo cuando desee usarlo.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div><br />

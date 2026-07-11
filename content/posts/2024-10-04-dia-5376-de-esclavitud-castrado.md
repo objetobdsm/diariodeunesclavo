@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5376 de esclavitud, castrado permanentemente"
+date: 2024-10-04 22:27:00 +0000
+permalink: /2024/10/dia-5376-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> era demasiado bonito para ser verdad, demasiado ilusionante para que saliera bien. el nuevo destino del objeto peligra. las luchas entre los superiores, con minúscula, la gente que ostenta el poder, ponen en peligro el proyecto que comenzó apenas hace un mes y que estaba siendo un éxito. ese tal vez sea el motivo de la situación actual, que los egos se ponen demasiado celosos. la administración es un ente donde parece que cada uno tiene su chiringuito y donde las envidias y rencillas son el pan nuestro de cada día. el objeto pensó que podría sortearlo pero la cosa está difícil. no tener ego acaba siendo un problema, si estás en un mundo donde parece que triunfa el que lo tiene más grande, al ego me refiero. total que hoy se ha cruzado un límite que el objeto no sabe si es posible retrotraer y que, básicamente, cambia las condiciones del acuerdo por el que el objeto fue para allá. esto lo ha puesto bajo las botas de mi Señor y lo considera inadmisible así que el lunes el objeto tiene la orden de establecer los límites, ponerse en su sitio, y si no hay reacción, volver a donde estaba el año pasado haciendo lo que hacía el año pasado. no cobrará menos ni hará algo que no le motiva, al contrario. había dejado eso por un bien mayor, o al menos eso pensaba el objeto. cuando este bien mayor no es de la colectividad sino el del ego de unos pocos, el objeto no tiene nada que hacer ahí. hoy, mientras le daban las novedades, el objeto sentía que le estaban intentando pisar y, cuando por la tarde lo puso todo bajo las botas de mi Señor, Éste se puso muy serio y dijo que eso era inconcebible, que si dejaba que me pisaran estaba cometiendo el peor de los pecados y le estaba faltando el mayor de los respetos porque estaba haciendo inútil todos los años de entrenamiento. no hay más que decir.</p><p>sumisión en silencio, castidad y obediencia ciega.</p>

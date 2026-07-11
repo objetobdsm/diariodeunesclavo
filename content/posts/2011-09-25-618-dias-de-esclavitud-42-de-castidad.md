@@ -1,0 +1,10 @@
+---
+layout: post
+title: "618 días de esclavitud, 42 de castidad"
+date: 2011-09-25 22:30:00 +0000
+permalink: /2011/09/618-dias-de-esclavitud-42-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">las sensaciones y emociones de un esclavo no siempre son las mismas. como todo ser vivo, independientemente de la categoría en la que lo situemos, hay momentos altos y momentos bajos, épocas de mucha actividad y otras donde no realiza tanto. para de la habilidad de un Amo consiste en localizar y sentir esos momentos y aprovecharlos para ir más deprisa, o poner el freno, en el entrenamiento del esclavo.</div><div style="text-align: justify;">esto viene a cuento porque hoy este perro se ha sentido de una forma rara porque se ha combinado cierta tristeza con un profundo deseo de servir a mi Señor. la situación ideal para este perro hoy hubiera sido está encerrado en una mazmorra y no salir de alli de forma indefinida, sin voluntad, sin deseos, sencillamente siendo una propiedad y viviendo a los pies y la sombra de mi AMO. todos los sentimientos son, por definición, temporales y este no podría ser menos. además no deja de ser una fantasía pero no por eso deja de ser importante. cada vez este perro está más convencido de que las fantasías son los ladrillos con los que se acaba construyendo la realidad. hubo una época en que, aún siendo humano, empecé a soñar con convertirme en un esclavo y poder llegar a un grado de  sumisión tal que empezara a dejar de controlar aspectos de mi vida.entonces pensé que era una fantasía irrealizable y que estaba un poco loco, que aquello pertenecía a un rincón de la mente que no podría compartir con nadie y que nunca se realizaría. hoy llevo 42 días sin ninguna actividad sexual, tengo que suplicar permiso para cualquier interacción social fuera de los límites de mi trabajo y para comprar cualquier cosa fuera de lo normal. si, definitivamente debes tener cuidado con lo que deseas o imaginas, porque puede convertirse en realidad.</div>

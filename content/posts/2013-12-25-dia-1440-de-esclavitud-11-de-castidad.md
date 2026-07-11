@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1440 de esclavitud, 11 de castidad"
+date: 2013-12-25 22:04:00 +0000
+permalink: /2013/12/dia-1440-de-esclavitud-11-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hoy el perro ha actualizado el blog, después de más de dos semanas. es algo imperdonable, aunque el perro tiene la excusa del exceso de trabajo. nuevamente está la disyuntiva de escribir mal cansado, o intentar esperar el momento oportuno y escribir mejor. al final, esperando un momento que no llega, pasan los días y todo se retrasa.<br/>nuevamente el perro intentará de mantener la publicación de las entradas de una forma más sistemática, más actualizada. es época de propósitos, de intentar algo nuevo, de mejorar. el tiempo dirá si el perro lo consigue o no.<br/>a menudo nos gustaría que la vida fuera una sucesión de acontecimientos maravillosos y excitantes pero lo común es que no sea así. ir al trabajo, volver de él, hacer la comida, la colada... es algo que no sale en las series de televisión o en las películas. la vida de un esclavo también es así, tiene un alto nivel de elementos cotidianos, vulgares, comunes.<br/>ya en otros lugares del blog el perro ha dicho que su vida no es una película porno, aunque a veces le gustaría, y aunque a veces sí que lo parezca, especialmente cuando el perro está sirviendo al Dueño. la vida es más prosaica.<br/>a veces eso se refleja en el blog, donde hay cosas que se repiten y donde no hay tanta novedad como al perro le gustaría. de igual forma las ideas y el pensamiento no son tan variados, sino más comunes y, a veces, repetitivos. las ideas son pocas pero el perro va profundizando en ellas. se van perfilando y clarificando. sólo espera el perro que en este proceso no aburra a los lectores.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

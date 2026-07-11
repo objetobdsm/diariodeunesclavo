@@ -1,0 +1,11 @@
+---
+layout: post
+title: "serie castidad"
+date: 2012-08-06 17:26:00 +0000
+permalink: /2012/08/serie-castidad.html
+tags:
+  - series
+  - castidad
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/27/3f/273f13333003b7346a17fa7878fb7a474d9ea574e4e67de81a8e8e7b4aacdac6.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/64/dc/64dc8be760f7283128cd9435b4252d21d02a6198da2cec37228ac9fe94d0ab62.jpg" width="480" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/58/1b/581b205cafcb14122db02c84362b11e5465f99c37c45d7ea8ce1771002713c2b.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/58/1b/581b205cafcb14122db02c84362b11e5465f99c37c45d7ea8ce1771002713c2b.jpg" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/ff/10/ff10cb954d2076e3292fbbc18dde55fcc92a6c365311d87dff92287ad3b5918e.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/ff/10/ff10cb954d2076e3292fbbc18dde55fcc92a6c365311d87dff92287ad3b5918e.jpg" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/f4/be/f4be58209ac1a10907d020c897533cafb0d1bd8f545c268c191bdccf383845c8.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="400" src="/uploads/e3/ba/e3baecd1984f2426db38f5c7f3999a08f04c22a196fd0a0d97a3b906b916c2c1.jpg" width="395" /></a></div><div style="text-align: justify;">los lunes es día de serie y hoy comienza una nueva, dedicada a la castidad, o mejor dicho, a los dispositivos de castidad. es un fetiche relativamente nuevo y en bastante auge, casi diría que en explosión. útil para heteros o gays, un buen dispositivo siempre viene bien, aunque no garantiza necesariamente el mantenimiento de la castidad, como hemos demostrado con varios videos en este blog. sin embargo no deja de ser excitante y este perro espera que lo disfruten.</div>

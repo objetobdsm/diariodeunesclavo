@@ -1,0 +1,10 @@
+---
+layout: post
+title: "628 días de esclavitud, 4 de castidad"
+date: 2011-10-05 22:30:00 +0000
+permalink: /2011/10/628-dias-de-esclavitud-4-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">a veces uno no controla lo que ocurre y entonces todo se desmadra y hay que tomar decisiones para poder volver a la normalidad. son situaciones de crisis donde, además, se puede crecer, aprovechando esas cosas que ocurren para aprender. eso mismo le ha pasado hoy a este perro. se han sucedido algunos acontecimientos en su no-vida que le han desbordado un poco.mi Dueño ha estado informado permanentemente de lo que sucedía y ha considerado adecuado, al finalizar el día, que este perro se ordeñe de nuevo. no busca este esclavo los motivos de esta decisión, sencillamente obedece y punto. así que por la noche, antes de acostarse, este perro se ha ordeñado de nuevo. las instrucciones fueron claras: collar al cuello, amordazado y sin emitir ninguna muestra de placer o excitación. en este caso usé una mordaza de cuero que cubre la barbilla y el collar de esclavo. todo el proceso, que duró apenas unos minutos, fue grabado en video y enviado a mi AMO según sus órdenes. las circunstancias que motivaron esta acción deben quedar entre mi Dueño y su perro, porque incluyen a gente que no tiene por qué salir en este blog pero sirva de justificación que no son buenos momentos para este perro. la esclavitud no consiste en estar siempre bien, o mal; sino en saber que, estés como estés, le perteneces a tu AMO y que El es el que controla tu vida y tu existencia. te valora en momentos bajos y te controla en momento álgidos. si algo precisamente me está animando en estos momentos es el saber que estoy en sus manos y que El decide y me lleva por el mejor camino.</div>obediencia ciega para el esclavo, poder absoluto para el AMO

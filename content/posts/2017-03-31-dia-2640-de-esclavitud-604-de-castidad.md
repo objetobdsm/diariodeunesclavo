@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2640 de esclavitud, 604 de castidad"
+date: 2017-03-31 22:37:00 +0000
+permalink: /2017/03/dia-2640-de-esclavitud-604-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">no sabe este objeto si el Dueño lo prepara y programa, o sencillamente aprovecha las oportunidades que van surgiendo. estaba navegando y 402 pasó por un blog titulado "owned and locked". 402 envió al Dueño elenlace para un entrada que le gustó a este objeto y que el Dueño coincidió en que expresaba una naturaleza común. resulta que ese inferior autor del blog, vive una castidad absoluta y permanente.<br/>el Dueño le preguntó a 402 si le gustaría que fuera así. 402 respondió si no lo era ya. el Dueño se refería a cuando se sacaba la leche. el Dueño se lo ordena a 402 porque duda si no hacerlo es saludable. hasta ahora este objeto lo hacía sobre todo moviendo la jaula como si se masturbara hasta que saliera la leche con mucho dolor. 402 respondió que incluso esa forma le parecía demasiado humana y por tanto le produce sufrimiento psicológico. cuando ocurre 402 se siente mal, y sucio. el Dueño lo entendió y estuvo de acuerdo. El quiere que cada vez 402 sea y viva más acode con su naturaleza, es decir, un objeto.<br/>y entonces el Dueño dio una orden, que es otra vuelta de tuerca. 402 sólo se sacraá la leche mediante un masaje prostático, analmente. si no sale, pues no saldrá, pero la otra forma queda a voluntad del Dueño, por ejemplo, para un castigo.<br/>como todo es cosa de práctica, el Dueño quiere que 402 practique hasta que consiga que ese ordeño sea sin tocar la jaula, sólo con el estimulador anal. la humanidad se aleja cada vez más. el Dueño ya ha conseguido que repugne a 402 eyacular sin orgasmo, e incluso que se sienta culpable de tener una erección. de igual forma, cuando habla demasiado un día, en el trabajo, la culpa y la sensación de vacío se apoderan de 402. por eso la mejor forma de estar para 402 es castrado y mudo, pero ya más que una forma de estar es una forma de ser.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

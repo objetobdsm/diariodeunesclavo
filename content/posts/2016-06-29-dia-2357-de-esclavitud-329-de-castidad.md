@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2357 de esclavitud, 329 de castidad"
+date: 2016-06-29 22:30:00 +0000
+permalink: /2016/06/dia-2357-de-esclavitud-329-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">poco a poco, a lo largo de estos años de esclavitud, se ha ido gestando una realidad, que no por no decirla desaparece. esa realidad es que este objeto necesita al Dueño. el Dueño le da estabilidad, orden, equilibrio. cuando no lo siente cercano la vida de 402 se descompone. sin embargo cuando Él está más pendiente de su propiedad, la vida de 402 mejora. este es un aspecto que muchos Amos olvidan o no tienen presente, que su control, hace la vida de sus esclavos mejor. por tanto, cuanto más control, mejor es la vida. es como la humillación. muchos piensan que es duro ser humillado, y lo es, pero lo es por culpa del ego, que precisamente es el enemigo a vencer aquí. una vez vencido, cuanto más humillación, mejor se siente el esclavo, más feliz es el sumiso.<br/>haciendo revisión de lo caminado hasta ahora, 402 no puede sino afirmar que, cuando ha intentado volar solo o está más alejado del Dueño, su vida empieza a enturbiarse y a complicarse innecesariamente, porque entonces el ego está más fuerte y comienza a provocar situaciones que crean dolor y malestar. sin embargo, cuanto más tensa tiene la correa, mejor es la vida de 402, más feliz se encuentra y más tranquilo y cómodo. incluso estando en la lejanía, 402 nota este hecho. si es así ¿cómo no puede desear este objeto que aumente el control, que apriete la cadena, que el collar se cierre más alrededor del cuello? nadie en su sano juicio no lo haría. así que, eso es lo que suplica constantemente 402, la mayoría de las veces en silencio: que la correa sea cada vez más corta, porque cuanto más cerca está del Dueño, más feliz es.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "dia 1910 de esclavitud, 357 de castidad"
+date: 2015-04-07 22:19:00 +0000
+permalink: /2015/04/dia-1910-de-esclavitud-357-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">si hay algo que el perro debe agradecer infinitamente al Dueño es la "libertad" que le ha dado esclavizándolo. hoy, en el trabajo, se han reactivado las luchas por el poder, a las que el perro ha asistido como mero espectador porque no se sentía involucrado en ellas. no quiere poder, no desea poder, porque un esclavo ni quiere ni desea. irónicamente eso le ha permitido pasar por aquí sin "sufrimiento", de manera "libre" y sin temor. si gana el bando contrario el perro no pierde, si gana el bando donde se supone que está el perro, tampoco. ¿por qué? porque eso no es importante, porque forma parte de la no-vida. la vida del perro está más allá de todo eso, en otro lugar, a los pies de su Dueño. eso sí que es importante, y en ello se centra el perro cuando ve a todas estas personas, supuestamente libres, sujetos a sus pasiones y al ego, ese gran destructor y esclavizador humano. y así, mientras hoy casi todos han salido del trabajo cabreados y malhumorados, algunos heridos profundamente en sus egos, el perro ha salido tranquilo, incluso feliz diría. es la mejor forma de vencer, no luchando.<br/>eso no significa que el perro no deba imponerse y trazar límites cuando alguno de los dos bandos quiere imponerse. el perro sólo tienen un Dueño y cualquiera que pretenda dominarlo se va a enfrentar a la más dura de las respuestas, pero fruto de la obediencia, no del ego, por lo que no podrán, de hecho no han podido contestar nada.<br/>sólo aquellos que mediante la sumisión han conseguido empezar a controlar el ego saben a lo que el perro se refiere porque es algo omnipresente, y más en una sociedad como la nuestra dominada por la apariencia, el triunfo y el poder. hoy el perro ha aprendido que la única forma de mantener el control es, precisamente, perder el control.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

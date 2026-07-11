@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1295 de esclavitud."
+date: 2013-08-02 21:19:00 +0000
+permalink: /2013/08/dia-1295-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">128 días de castidad, 128 desde el último ordeño.</div><div style="text-align: justify;">el perro ha visto hoy al cachorro y, por orden del Dueño, lo ató y amordazó. fue algo rápido, circunstancial apresurado, pero quería saber hasta dónde podía llegar el cachorro, y no defraudó en el sentido de que en cuanto le puse las esposas, su cuerpo reaccionó y tomó el control. estuvo excitado hasta el extremo de forma que casi se corre en dos ocasiones con apenas unos movimientos. además lo amordacé, con lo cual su indefensión fue mayor.... y le gustó. le gustó mucho. es un cachorro ansioso y deseoso de servir. aún el Dueño no ha ordenado al perro que lo entrene formalmente pero el cachorro da muchos pasos y se muestra muy deseoso de servir, al menos de comenzar el camino, que ya es más d elo que muchos están dispuesto a hacer. eso hay que reconocérselo. a su edad el perro aún estaba dando palos de ciego, mientras él está dispuesto a empezar a caminar. sabe cuál es su lugar en caso de ser entrenado, y sabe que puede aprender y  experimentar cosas. como todo en la vida no hay garantías ni de que llegue a buen puerto, ni de que tenga éxito, pero al menos busca y da pasos. lo tiene más claro de lo que lo tenía el perro a su edad, y eso es bastante.</div><div style="text-align: justify;">en sus gustos coincide bastante con el Dueño y el perro: cuero, bondage, latex, sumisión... de hecho el Dueño ya ha pensado en que el perro sea su objeto de cuero y él sea su objeto de goma, de latex. cuando se lo he comentado, acepta y entiende que el latex es más de esclavos y que eso es lo que es, lo que por ahora aspira a ser.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

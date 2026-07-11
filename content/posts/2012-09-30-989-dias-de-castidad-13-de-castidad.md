@@ -1,0 +1,10 @@
+---
+layout: post
+title: "989 dias de castidad, 13 de castidad"
+date: 2012-09-30 22:00:00 +0000
+permalink: /2012/09/989-dias-de-castidad-13-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">este perro ha realizado hoy su ritual semanal de rasurarse los genitales. como en otras ocasiones ha sido humillante, pero obedientemente este perro se ha puesto a ello. no había mucho que afeitar y ha sido fácil. el efecto del ritual ha sido inmediato, igual que cuando este perro tiene que sentarse para orinar: le recuerda lo que es y a quien pertenece. puede haber mucho ruido alrededor, pero cuando hace esto parece como si una palanca o interruptor se le encendiera, inmediatamente se pone en subspace, se acuerda del Amo y añora estar a sus pies lamiendo sus botas. </div><div style="text-align: justify;">la otra cosa importante es que este esclavo realizará ante el Amo una confesión de sus faltas, de las faltas cometidas durante la semana, esa especie de microfaltas que no son atentados contra las normas escritas en las normas de esclavitud, pero que al final van comiendo terreno a la sumisión, concediéndoselo al ego. este esclavo imagina que a algunos les parecerá radical, incluso extremo, pero todo debe estar en función del Amo, porque así el Amo lo quiere. esta relación D/s no tiene fist, ni scat, ni prácticas con agujas o sangre, pero no por eso es menos dura, profunda, radical, e incluso apostaría que repulsivo para algunos de los lectores. esto demuestra que no es lo físico: las marcas de los azotes se van, las heridas cicatrizan, las señales que las cuerdas dejan en la piel desaparecen, pero la esclavitud permanece, y pocos están dispuestos a recorrer este camino, asumiendo sus consecuencias.</div>obediencia ciega para el esclavo, poder absoluto para el Amo.<br />

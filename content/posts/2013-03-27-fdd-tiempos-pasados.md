@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD tiempos pasados"
+date: 2013-03-27 08:11:00 +0000
+permalink: /2013/03/fdd-tiempos-pasados.html
+tags:
+  - old guard
+  - FdD
+---
+
+<br /><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/6a/46/6a46a9b396d5a32574d6ca50c9aef735eb126435eed60f5ca203f4a0c13b5be0.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/6a/46/6a46a9b396d5a32574d6ca50c9aef735eb126435eed60f5ca203f4a0c13b5be0.jpg" width="456" /></a></div><div style="text-align: justify;">a veces el perro se pregunta si los tiempos pasados no fueron mejores. a veces la falta de perspectiva histórica nos hace creer que nosotros vamos por delante cuando, tal vez, en el pasado era  más adelantados que nosotros. hoy hay toda una corriente que vincula y ve el fetichismo como una práctica más, como un juego para divertirse, y está bien porque tiene cierto carácter de eso, pero podrían dejar de practicarlo o bien porque se pasara de moda y se volviera socialmente censurable, o bien porque sencillamente les cansase. sin embargo hace no tantos años, eso no era así.</div><div style="text-align: justify;">en el tiempo que va de finales de la II guerra mundial, hasta mediados de los 90, ser leather y fetichista era vivir en la marginalidad, arriesgarte a la crítica y a la censura, a ser detenido y denunciado. si esto era así ¿por qué lo hacía la gente? tal vez porque , como le pasa a esta perro, no podían hacer otra cosa. en el caso de los esclavos arrodillarse y ser atado por su Amo era una necesidad existencial de la que no podían huir. muchos lo reprimieron y el resultado fueron la frustración y la infelicidad. otros, como el de la imagen  lo consiguieron y fueron sometidos y adiestrados y entrenados, y en ese proceso consiguieron y encontraron la felicidad. este post va dedicado a todos aquellos que siguen buscando un Amo, para que lo encuentren y, haciéndolo, encuentren igualmente, la realización como esclavos.</div>

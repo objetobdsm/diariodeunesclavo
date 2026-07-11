@@ -1,0 +1,10 @@
+---
+layout: post
+title: "Reflexiones personales lluvia"
+date: 2007-05-04 05:20:00 +0000
+permalink: /2007/05/reflexiones-personales-lluvia-ap.html
+tags:
+  - reflexiones
+---
+
+<div align="justify">la orina es una sustancia muy interesante. es algo que sobra, que estáde más y que hay que echarlo fuera. por eso mismo es algo que no necesitas. ya tienes todo el líquido que tu organismo precisa. además ha recorrido tu cuerpo, desde la boca por donde entra hasta la polla en el caso de los tíos, por donde sale. en este sentido es algo propio, muy personal, muy íntimo. cuando sale tiene el olor y el color de nuestro interior. la naturaleza sabiamente ha utilizado la orina como un marcado de propiedad: los machos la usan para marcar suterritorio, todo aquello que es rociado con ella es de ellos. teniendo todo esto en cuenta, el mejor lugar donde puedo estar es bajo la orina de mi Amo. es un regalo que me hace y una marca para dejar claro que soy de su propiedad. mi Amo actual me orinó en nuestro primer encuentro, cuyo relato está en este diario. más tarde hablando con Él,me dijo que había sido una prueba, que quería saber lo que estaba dispuesto a soportar. al parecer la pasé. con el tiempo, ese hecho,que al principio pareció intrascendente, fue ganando importancia. para mi se convirtió en un auténtico bautismo. en aquel momento no lo sabía, y más tarde lo dudé muchísimo, pero hoy pienso que en aquel momento me marcó indefectiblemente. pase lo que pase, incluso si mañana, y hoy, me despide y me echa, yo seguiré marcado por esta relación. he olvidado a muchos con quienes tuve sesiones y relaciones,pero creo imposible que olvide esta. en mi memoria quedará aquel rincón del cuarto del Block, en el Yumbo, cuando en cuclillas, comencé a notar aquel líquido caliente sobre mi mientras me sujetaba la cabeza para que no me levantara. la lluvia no es una cuestión de morbo, que si, es algo más profundo, es una cuestión de propiedad.</div>

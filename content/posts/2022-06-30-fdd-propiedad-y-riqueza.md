@@ -1,0 +1,13 @@
+---
+layout: post
+title: "FdD  propiedad y riqueza"
+date: 2022-06-30 08:50:00 +0000
+permalink: /2022/06/fdd-propiedad-y-riqueza.html
+tags:
+  - guantes
+  - FdD
+  - leather
+  - sumision
+---
+
+<div dir="ltr"><div style="text-align: center;"><a href="/uploads/e4/f4/e4f43141552bc3a48872a347b778dce1cec06a244632e15d31d6ad72820f310c.jpg"><img alt="" border="0" height="640" id="BLOGGER_PHOTO_ID_7132177360568683810" src="/uploads/bd/54/bd542f98f6f41245bdbab084edc90d4c505eead9f060c414d173b63973b9733a.jpg" width="626" /></a><br /></div><div style="text-align: justify;">los Amos lo merecen todos, pero no todos los que se hacen pasar por Amos lo son. esto es un matiz importante, una afirmación que tiene dos partes. los Amos lo merecen todos porque dan sentido a nuestra existencia como inferiores. un Amo que nos tome como una propiedad suya sabe que ha encontrado un tesoro, su bien más preciado. por eso mismo hará todo lo necesario para llevarnos a nuestro más completo desarrollo, según y acorde con la naturaleza de cada uno: boy, perro, esclavo, objeto, gimp. las palabras pueden cambiar, pero el sentido es el mismo: desarrollar todo tu potencial. los métodos a lo mejor no son comprendidos por la gente vanilla que nos rodea. pueden parecerles duros o extremos, pero siempre tienen esa finalidad. y eso requiere mucho tiempo y energía, tiempo y energía que el Amo invierte en nosotros, dedica a nosotros, vuelca en nosotros. no tendría por qué hacerlo, salvo tal vez porque también está en su naturaleza. y por eso lo merece todo. de hecho llega un punto en la relación en que el inferior, consciente de que es una propiedad, sabe que no puede poseer nada, y que todo lo que tiene pertenece al Amo. no es concebible, en las etapas más avanzadas de un entrenamiento que el esclavo mantenga su independencia económica, a menos que ese sea el deseo del Amo por alguna razón. aprovechando esta circunstancia algunas personas se hacen pasar por Amos y practican la dominación financiera. nada en contra de eso, siempre que el Amo sea un auténtico Amo. no sabe por qué pero el objeto siente que mucha de la gente que ve por internet, especialmente en twitter son aprovechados que han visto aquí un filón para mejorar su tren de vida. habría mucho que decir aquí, y tal vez el objeto dedique a esto un post más grande, pero debe advertir a los hermanos inferiores. cuidado porque no todos los que dicen ser Amos, lo son.</div></div>  

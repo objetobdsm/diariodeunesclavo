@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1944 de esclavitud, 31 de castidad"
+date: 2015-05-12 22:50:00 +0000
+permalink: /2015/05/dia-1944-de-esclavitud-31-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el perro ha sabido hoy dónde estará el año que viene trabajando. el perro ha dado un salto de 50 kilómetros, ida, y 50 kilómetros vuelta. eso significa aproximadamente ganar una hora y media de transporte llegando a casa apenas 5 o 10 minutos después de haber salido del trabajo. eso significa también que dejaré cualquier cargo y que me convertiré en un trabajador simple, de a pie, por lo que es una ganancia en todos los sentidos. muchos han dicho que echaran de menos al perro en el trabajo, porque estaban contentos con él. eso da sastifacción y alegría, no por otra cosa sino porque es la prueba de que, si trabajas en un cargo viviéndolo como un servicio, la gente responde y puede responder muy positivamente.<br/>el Dueño también se alegró por el perro. por supuesto ha estado pendiente e informado en todo momento, porque también controla la no-vida del perro y esto lo considera, igualmente, un avance. lo que espera el perro es que este cambio sea sencillamente un cambio de lugar, que nada más cambie, que siga viviendo el trabajo como lo que es, una muestra de su sumisión porque sigue pensando firmemente que vivir el trabajo como un servicio ayuda a sobrellevar todo lo demás.<br/>por otro lado hoy el perro ha ido con zapas al trabajo. la razón es que, al salir, el termómetro del coche del perro marcaba 38 grados. el Dueño es consciente de que, con esta temperatura, las botas pueden llegar a ser un tormento, lo cual no está mal, pero las llevaría sólo como castigo por alguna falta. parece que el verano ha llegado antes de tiempo, mucho antes de tiempo y el Dueño no desea torturar al perro más de lo estrictamente necesario.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

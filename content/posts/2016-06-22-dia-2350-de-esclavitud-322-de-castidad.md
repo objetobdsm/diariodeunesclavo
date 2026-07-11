@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2350 de esclavitud, 322 de castidad"
+date: 2016-06-22 22:29:00 +0000
+permalink: /2016/06/dia-2350-de-esclavitud-322-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">¿cómo es que 402 es capaz de decir abiertamente que es un ser inferior, un objeto, un ser subhumano? sencillamente porque muchos días, la mayoría, se siente así y centrándose en ese sentimiento encuentra la paz y la tranquilidad necesaria para seguir. y porque cuando se siente así lo único que desea es obedecer al Dueño, y cuando lo hace se siente realizado y feliz. a muchos puede parecer escandaloso, incluso reprobable, pero ¿cuántos pueden decir lo mismo, que se sienten felices y realizados en algún momento de su existencia? para muchos 402 tendría que renunciar a esto y vivir una vida infeliz, pero "sana" para la mayoría de la población. muchos de esos que llevan una vida tan "sana" y "funcional", necesitan pastillas para dormir, tienen pesadillas, se pasan horas en los psicólogos o buscan terapias alternativas para conseguir lo mismo que consigue 402 arrodillándose ante el Dueño. el caso de este objeto es más saludable, por usar menos pastillas, y más barato.<br/>la vida es dura, muy dura en muchos casos, y si algo no nos enseña esta sociedad en la que vivimos, es a mirarla de frente, de cara, asumiendo el dolor y el sufrimiento que significa vivir. el bdsm no esconde la cabeza ni vuelve el rostro hacia otro lado. el dolor, la obediencia, la disciplina, es como un yunque que va modelando al esclavo, y al Amo, a base de golpes y de fuerza. eso endurece, hace mejor, fortalece. el problema principal es que también vuelve innecesarias las pastillas, las diversiones inútiles que sólo pretenden hacerte olvidar, la mayor parte de la televisión. eso es lo que la mayoría no soportan. huir del dolor es no vivir. por eso los que recorremos este camino estamos auténticamente vivos.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

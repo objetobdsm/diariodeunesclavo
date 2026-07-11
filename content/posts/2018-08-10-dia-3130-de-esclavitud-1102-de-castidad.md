@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3130 de esclavitud, 1102 de castidad"
+date: 2018-08-10 22:43:00 +0000
+permalink: /2018/08/dia-3130-de-esclavitud-1102-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el objeto ha tenido que ir al hospital a acompañar a un familiar. para esto también ha suplicado permiso al Dueño,que lo dio. así que el objeto pasó la mañana yendo y volviendo, además de estar sentado un buen rato esperando, y leyendo.<br/>para pasar el rato leyó un libro de thom magister, slave journal and other old guard tales. el autor es un Amo que ha estado en la "escena" durante cerca de 60 años y vivió en primera persona esa etapa que se conoce como Old Guard. a pesar de ser ficción se reconoce que está basado en experiencias reales y en principios también reales<br/>aunque no llegó a terminarlo se sintió inmediatamente identificado. el primer relato está protagonizado por un esclavo natural que siente profundos deseos de servir y de ser posesión de un Amo.<br/>la acción está situada a principios de la década de los cincuenta, una época de moteros, clubes, locales y sexo anterior al sida, toda una época que parece irrepetible. habla del prestigio de los Amos y los esclavos de cómo los sumisos eran entrenados y de cómo los Amos llevaban el cuero que es caro y manufacturado casi a petición y encargo. por eso sólo los Amos podían permitírselo.<br/>las normas eran muy estrictas y los grupos muy cerrados. el servicio, la obediencia y la sumisión eran la base sobre la que se ganaban prestigio que era la moneda de cambio en ese mundo. al objeto le hubiera gustado vivir en ese mundo aunque eso significara que, a menos que viviera en estados unidos, en la costa oeste, no habría podido hacerlo, de hecho, así ni hubiera sabido que existía.<br/>ahora las cosas no son tan estrictas y todo parece haberse edulcorado un poco pero aún así puede vivir bajo las reglas de la sumisión, bajo las reglas de la obediencia, bajo las normas del Dueño.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

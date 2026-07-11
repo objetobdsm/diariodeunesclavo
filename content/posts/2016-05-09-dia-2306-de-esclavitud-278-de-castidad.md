@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2306 de esclavitud, 278 de castidad"
+date: 2016-05-09 22:00:00 +0000
+permalink: /2016/05/dia-2306-de-esclavitud-278-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">los lunes siempre son un día duro en el trabajo y el de hoy lo es un poco más. después de ese respiro de aire fresco que es ir a servir al Dueño, volver a la no-vida no siempre es fácil o agradable. sin embargo en esta ocasión ha sido llevadero, tal vez porque 402 viene lleno de energía y bastante calmado y tranquilo. eso siempre ayuda, desde luego. así se fue la mañana.<br/>por la tarde 402 habló con el Dueño y comentaron el viaje de vuelta.<br/>402 pasó la tarde trabajando y a media tarde el Dueño le ordenó que comenzara su entrenamiento con el buttplug de nuevo. tenía 402 que estar una hora con el butt puesto. por supuesto 402 obedeció y se introdujo el buttplug, que entró de una forma más rápida que en otras ocasiones. eso extrañó a 402. es cierto que mientras estrenaba el traje de latex el Dueño le puso un buttplug y estuvo bastante tiempo con él puesto, pero era mucho más pequeño del que usa 402 para sus entrenamientos. sin embargo la alegría de este objeto duró poco porque enseguida comenzó a sentir la presión del cuerpo para expulsar ese objeto que hacía fuerza para entrar más aún en el culo de 402. la ultima media hora fue especialmente dolorosa. 402 sudó mucho y tuvo que hacer un gran esfuerzo para que no saliera.<br/>a última hora fue a entrenar. el entrenamiento fue terriblemente duro, agotador, pero este objeto se lo tomó como una especie de tortura, como una forma de mejorar a la hora de llevar su nueva piel, que ahora está guardada en el armario, pero que pronto se pondrá de nuevo, o eso espera al menos.<br/>al llegar a casa estaba agotado por los dos entrenamientos, tanto estaba que hasta le costó dormir. aún así estaba contento y satisfecho por haber cumplido sus obligaciones. ojalá todos los días fueran como este.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

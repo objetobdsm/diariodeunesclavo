@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD cambios"
+date: 2012-12-04 08:31:00 +0000
+permalink: /2012/12/fdd-cambios.html
+tags:
+  - dolor
+  - leather
+  - FdD
+---
+
+<br /><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/b7/e5/b7e52138d52428de73440d653fee73327ba965fb7b30a05c1b9fcce32865c656.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/b7/e5/b7e52138d52428de73440d653fee73327ba965fb7b30a05c1b9fcce32865c656.jpg" width="480" /></a></div><div style="text-align: justify;">cuando uno entra y empieza una relación D/s al principio todo es una novedad, pero llega un momento en que se entra en una dinámica donde las novedades no son tan frecuentes. este esclavo lo agradece porque en el fondo la vida de un perro es una vida ordenada, con unas tareas que cumplir, unas órdenes que obedecer, y donde toda novedad se vuelve una situación nueva donde puedes tener que elegir cómo comportarte, y eso siempre crea ansiedad.</div><div style="text-align: justify;">en esa "cotidianeidad" el esclavo puede pensar que todo está detenido, que su entrenamiento se ha parado, y nada más lejos de la realidad. en determinados momentos y situaciones el esclavo puede caer en la cuenta de cómo ha cambiado, del efecto que la acción de su Amo está teniendo en él. esta reflexión viene a cuento y tiene relación con esta Foto del Dia, porque este esclavo es consciente de que comenzó esta relación siendo un sumiso fetichista que huía del dolor, y ha llegado a ser un perro masoca que desea dar placer a su Amo mediante el dolor. más que masoca debería decir pseudomasoca, porque el dolor sigue sin producirle placer a este perro, pero la satisfacción que le produce ver a su Amo disfrutar, incluso torturando a este perro, es inenarrable. el Dueño le ha dicho a este perro que su deseo de torturarme es proporcional al proceso de posesión, cuanto más Dueño se siente, cuando más partes de la vida de este perro toma posesión, más ganas tiene de usar lo que es suyo como El desee. este perro no sólo reconoce que es su derecho, sino que además se siente pleno al poder obedecer al Amo en este sentido. de hecho, la última vez que estuvo en su presencia, mientras lo torturaba hasta un punto que el perro no creyó posible soportar, repetía interiormente una especie de mantra :"para esto estás aquí, para esto has venido". la tortura hizo llorar al perro, pero al tiempo lo hizo el ser más feliz del mundo, y todo porque vió la cara se satisfacción de su Dueño.</div>

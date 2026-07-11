@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5811 de esclavitud, castrado permanentemente"
+date: 2025-12-14 23:42:00 +0000
+permalink: /2025/12/dia-5811-de-esclavitud-castrado_14.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> la tormenta sigue, al igual que la avería de internet. el objeto puede usar el teléfono para comunicarse y ver alguna cosa pero no tiene ni internet ni televisión. tampoco pasa nada. tiene películas y series suficientes para los pocos ratos de asueto que tiene. un objeto, un sumiso, no debería tener mucho tiempo libre, salvo para descansar lo suficiente para seguir sirviendo a su Amo. esto es un principio básico y no está el objeto diciendo nada nuevo. muchos no llegan a comprender totalmente el sentido de esta forma de sumisión o rechazan la posibilidad de mantenerla en el tiempo. ser un objeto podría funcionar para una sesión, pero no como forma de existir sometido, dicen sus retractores. sin embargo el objeto, pero sobre todo mi Señor, no piensa igual. ser un objeto tiene las mismas limitaciones que tiene en nuestra sociedad ser un esclavo o cualquier tipo de esclavitud voluntaria: limitaciones legales, relacionales, societales, etc. sin embargo no hay que plantear la cuestión como todo o nada. hay que plantearlo como lo que se pueda y hasta donde se pueda. ser un objeto es un hecho, pero también un proceso, como todo, al igual que la sumisión, que también es algo que eres, pero algo que recorres. mi Señor ha enseñando al objeto que cada momento, cada paso, cada etapa plantea un reto y pone el objetivo siempre más allá. es un reto para aprender, para profundizar en la sumisión, para hacerse más objeto. es cierto que en su vida cotidiana el objeto no puede estar tan callado como cuando está sirviendo a mi Señor, en el que no pronuncia ni una palabra. eso no significa que no sea parco y que solo hable lo estrictamente necesario. ya eso solo es toda una declaración de principios en un mundo que no para de hablar y de gritar.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

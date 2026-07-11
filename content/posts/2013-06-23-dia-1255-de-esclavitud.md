@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1255 de esclavitud"
+date: 2013-06-23 21:39:00 +0000
+permalink: /2013/06/dia-1255-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">88 días de castidad, 88 desde el último ordeño.</div><div style="text-align: justify;">el perro ha supurado un poco hoy, lo cual le extrañó porque hace mucho que no le pasaba. de hecho hace mucho que ni siquiera tiene una erección. no sabe el perro si es por el ritmo estresante de la no-vida últimamente, o un efecto colateral de la jaula. poco importa si es por una causa o por otra, el hecho es que es así. la vida sexual ha desaparecido de la existencia del perro, para, curiosamente, estar más presente que nunca. la jaula que lleva el perro hace que sea así. cada vez que va al baño, que se sienta, que se viste, que hace cualquier actividad cotidiana, la jaula le recuerda qué es, lo que es, a quien pertenece. es imposible olvidarse del Dueño llevándola, es imposible olvidarse que eres un perro. cuando parece que si, un movimiento, el más ligero, hace que tomes conciencia de que está ahí. ese es su poder, no hacerte olvidar nunca lo que eres, que vives para obedecer y que nada puede evitar ya que tu vida sea la esclavitud. no tienes escapatoria, como le gusta repetir muchas veces al Dueño. no hay salida.</div><div style="text-align: justify;">llega a formar tanto parte de tu vida que el perro ya se sentiría desnudo sin ella, como se demostró ayer. sus genitales ya no tienen derecho a estar libres, a colgar libres, sino sujetos por la jaula que los mantiene a buen recaudo. esa es la enseñanza y el aprendizaje que el perro debe ir realizando poco a poco, integrando, convirtiendo en algo cotidiano de forma que la vida no sea posible sin eso. en eso consiste el verdadero "lavado de cerebro", en que no puedas vivir sin la sumisión. el perro está en ese camino, dando ese paso, de forma que incluso no se concibe ya siendo otra cosa que un perro esclavo.</div>obediencia ciega para el esclavo, poder absoluto para el Amo.

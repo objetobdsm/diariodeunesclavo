@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD desigualdades igualitarias"
+date: 2022-05-29 16:58:00 +0000
+permalink: /2022/05/fdd-desigualdades-igualitarias.html
+tags:
+  - FdD
+  - leather
+  - sumision
+---
+
+<div dir="ltr"><div></div><div style="text-align: center;"><a href="/uploads/af/03/af0398b8d2173e7ec580df8fe02811ccb3afea5eabb95310d210a37e1f3c1219.jpg"><img alt="" border="0" height="640" id="BLOGGER_PHOTO_ID_7103575023080200450" src="/uploads/9c/20/9c2071b458d1740a522485a176657270c2082d2dbd08a74f999d3729eb4ec65c.jpg" width="426" /></a><br /></div><div style="text-align: justify;"></div><div style="text-align: justify;">tal vez el aspecto más costoso de aceptar y entender del bdsm sea precisamente el más central: que es una relación asimétrica. no existe igualdad en el bdsm. si un Amo y un esclavo pretenden estar al mismo nivel ahí hay algo que falla, o al menos no es una relación bdsm, será otra cosa pero no una relación de Dominación/sumisión. vivimos en una sociedad que pregona, aunque más adecuado sería decir que predica, la igualdad: la igualdad legal, la igualdad real, la igualdad de derechos, la igualdad de oportunidades. todo mentira. sigue habiendo ricos y pobre, y estos últimos son los que suelen estar en la cárcel normalmente. los inmigrantes no disfrutan de los mismo derechos humanos que el resto de los ciudadanos y esto significa o que no son humanos, algo cuestionable, o que esos derechos no son aplicables a toda la humanidad. y en cuanto a las oportunidades, pues dejemos a un lado a mujeres, gente con diversidad funcional, personas con sexualidades no normativas.... en fin. lo que hace el bdsm es desenmascarar esta falacia, sacarla a la luz, hacerla evidente y transformarla, convertirla en un elemento de crecimiento. es la dinámica de la apropiación del insulto. ¿cómo puedes decir que someterme a mi Amo es denigrante si es lo que me hace más feliz del mundo? es duro someterse, por supuesto, pero también es lo más gratificante, lo que me ayuda a crecer y a madurar, a ser mejor. por eso también el bdsm tiene un carácter revolucionario, cuestionador, subversivo. porque no todos están dispuesto a aceptar que les eches sus reproches, sus prejuicios y sus falsas creencias a la cara.<br /></div></div>  

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1879 de esclavitud, 326 de castidad"
+date: 2015-03-07 22:22:00 +0000
+permalink: /2015/03/dia-1879-de-esclavitud-326-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el perro ha estado hoy en contacto con un par de esclavos que están lejos, pero en proceso de descubrirse y empezar a vivir como sumisos. por supuesto el Dueño dio permiso para que así fuera y el perro estuvo hablando con ellos. es agradable comprobar que hay gente que se va iniciando, que aún hay gente que siente la llamada de la sumisión. definitivamente no estamos solos y formamos parte de un grupo más amplio, de una comunidad.<br/>de nuevo el perro se ha quedado rezagado con el blog. se siente incapaz de llevarlo al día. al menos sigue aprovechando cada minuto que tiene que escribir el blog.<br/>el perro pasó casi todo el día en casa, trabajando en cosas de la no-vida y en algunas entradas del blog. a ratitos hablaba con estos hermanos esclavos, sobre todo resolviendo dudas que tenían e inquietudes en el inicio de su proceso. porque la esclavitud voluntaria es un proceso, un camino que te va llevando hacia un lugar concreto, al que tu Amo quiere que llegues.<br/>el Dueño estuvo hoy muy presente en la vida del perro mediante mensajes de texto y llamadas. esta semana el perro pensó que ya debería haber dado el Gran Salto. eso ocurre cuando el perro está muy estresado, cuando está sin tiempo para parar y sentarse a escribir el blog.<br/>a veces le pasa algo y piensa que es algo para el blog, pero entonces un millón de cosas más salen a relucir y se olvida. así desaparecen cosas que podrían estar aquí. a veces el perro piensa que su no-vida le está privando de determinados aspectos de su vida.<br/>el Dueño mantiene al perro centrado y gracias a El el perro sigue caminando por la senda de la obediencia. ahí está la clave de la obediencia. el perro nació para obedecer y, cuando no lo hace, está perdido.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,11 @@
+---
+layout: post
+title: "el salvaje posmoderno"
+date: 2007-11-23 06:15:00 +0000
+permalink: /2007/11/el-salvaje-posmoderno.html
+tags:
+  - imagenes
+  - leather
+---
+
+<div align="justify"><a href="/uploads/65/ae/65aed18d9f2562b47704f2574dfcdbc6c8ccad88257ea23d9fd0a1cea443706c.jpg"><img id="BLOGGER_PHOTO_ID_5046506656561743602" style="FLOAT: left; MARGIN: 0px 10px 10px 0px; CURSOR: hand" alt="" src="/uploads/65/ae/65aed18d9f2562b47704f2574dfcdbc6c8ccad88257ea23d9fd0a1cea443706c.jpg" border="0" /></a> no, no pretendo hacer un paralelismo con el salvaje de rousseau ni con ningún otro salvaje de la literatura o la cultura moderna. este "salvaje" no es otro que marlon brando, o más concretamente, johnny, su personaje en the wild one. motero él, jefe de una banda que llega a un pueblo. fue el primer lederón mediático y aún hoy, a mi, viviendo en este siglo XXI, me siguen poniendo esa chupa, esas botas, y esos guantes ¡quien fuera acariciado por ellos!. fue mi primer icono bdsm, mi referencia de macho lederón. pero ahora los moteros son ligeramente diferentes, ni mejores ni peores, sólo diferentes. aquí un ejemplo. chaps, moto de gran cilindrada, pelo en pecho, cuerpo más que aceptable. las diferencias son apreciables, sin embargo, con esa pluralidad de gustos que me caracteriza, no puedo elegir entre uno u otro, me gustan los dos. a los dos lamería su cuero y sus botas, ante los dos me arrodillaría y me ofrecería, y a los dos dejaría que me pusieran un collar alrededor del cuello.</div><div align="justify">pero lo mejor de todo es que no cambiaría a mi AMO actual por ninguno de los dos. entre johnny y mi AMO, elijo a mi AMO; entre este motero posmoderno y mi AMO, elijo a mi AMO. no es que sea más guapo, que lo es; tampoco que sea más morboso, que lo es; ni que sea más mediático, que no lo es ni ganas de que lo sea.... es, sencillamente, que es mi Dueño y mi Señor; que una vez me marcó y desde entonces le sirvo y obedezco. proque cuando se pone sus guantes y me toca con ellos ni brandon, ni johnny, ni nadie. no.... definitivamente renuncio al <em>salvaje </em>y al posmoderno y me quedo con mi AMO.</div>

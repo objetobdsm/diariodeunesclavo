@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5349 de esclavitud, castrado permanentemente"
+date: 2024-09-06 22:58:00 +0000
+permalink: /2024/09/dia-5349-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el día iba bien y se planteaba tranquilo, como un principio de puente porque el domingo es fiesta insular y se pasa al lunes, así que el objeto no tendría que volver a trabajar hasta el martes. sin embargo a media mañana saltó la bomba. una cosa que esperábamos en el trabajo salió pero nos pisaron parte del proyecto, o intentaron hacerlo al menos, que teníamos entre manos. para hacerlo corto la mayor parte del equipo nuevo se puso muy triste y cabreado porque se sentían traicionados. en ese momento el entrenamiento de mi Señor hizo efecto y, reconociendo la mano más asquerosa del ego en todo aquello, el objeto mantuvo la calma. básicamente gente mediocre quiso hacerse con las ideas y el trabajo de otros y el objeto sabía que no podría ser así porque los mediocres siempre meten la pata. con esa certeza el objeto no perdió la calma y se puso a trabajar con los demás. haciendo un paralelismo es como si un esclavo se hace pasar por Amo y pretende dominar a otro esclavo. podrá engañar durante un tiempo, pero al final siempre saldrá a la luz la verdad, por muchas estrategias que tengas y muchos artilugios que emplees. no se puede engañar a la realidad y lo que eres, eres. el lado positivo es que ahora todos sabemos las reglas del juego y como han intentado engañarnos, y esperemos que no se vuelva a repetir.</p><p style="text-align: justify;">por la tarde, y debido a motivos laborales, el objeto tuvo que hablar con una de las personas que no lo trataron bien, por decirlo de una forma suave, antes de verano, y el objeto encontró una extraña satisfacción en el hecho de que estaba confundida y no se encontraba bien. al final va a ser verdad lo del karma y que cada uno recibe lo que envía.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "dia 1481 de esclavitud, 52 de castidad"
+date: 2014-02-04 22:09:00 +0000
+permalink: /2014/02/dia-1481-de-esclavitud-52-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">todo el día en casa, aún enfermo. el Dueño ha estado pendiente del perro, informándose de su estado. es curioso porque incluso estando enfermo, el perro ha tenido sentimientos y deseos de sumisión, como si la mejor forma de pasar este día, hubiera sido momificado en el futuro saco de cuero donde el Dueño le ha prometido que dormirá en el futuro.<br/>el perro ha intentado trabajar, sin conseguirlo demasiado, sobre todo porque está con la cabeza embotada. la mañana la pasó casi arreglando el blog. lo estuvo repasando y tuvo que llegar hasta junio del año pasado con cosas que estaban repetidas o mal. con esto también ha estado muy dejado últimamente. hay tantas cosas que cambiar..... pero eso es una constante, siempre hay que cambiar para mejorar. corremos el peligro permanente de acomodarnos con lo que tenemos, con lo que hay, con lo que vivimos. para un esclavo, éste es un peligro muy real. siempre está presenta la posibilidad de creer que ya has llegado a donde debías llegar, de que ya eres el "esclavo perfecto".<br/>hoy el pero ha recordado algo que hace tiempo no tenía tan presente: que es un objeto, sin derechos y sin voluntad. aún aparentemente es un hombre independiente y autónomo, pero en su interior, Dueño y esclavo saben lo que es realmente. sólo es cuestión de tiempo que el perro pueda vivir completamente lo que es.<br/>los objetos no tienen voluntad, sólo obedecen porque son propiedad de su Dueño. no pueden elegir, ni ejercer ningún derecho, sólo cumplen lo que sus propietarios les ordenan. esa es la vida que el perro quiere, desea y necesita. el Dueño lo sabe y hará que sea una realidad.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5377 de esclavitud, castrado permanentemente"
+date: 2024-10-05 22:27:00 +0000
+permalink: /2024/10/dia-5377-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> las buenas herramientas no son para los buenos momentos. si todo va bien uno, sea Superior o inferior, no necesita controlar los nervios, confiar, mantener la calma, ser equilibrado, ser paciente y un montón de cosas. cuando las cosas van bien, sencillamente van bien. nadie se pone a arreglar un coche cuando éste arranca, funciona y acaba de pasar una revisión. lo mismo ocurre con la existencia. cuando todo va bien no hay que hacer nada sino seguir adelante. es cuando las cosas se tuercen cuando hay que sacar las herramientas y los recursos. en el caso del objeto es la intervención de mi Señor. como comentaba ayer el nuevo trabajo del objeto está revuelto y sumido en la incógnita. puede que se termine o puede que no, todo está en la indefinición y el caos, en la inestabilidad. y es entonces cuando mi Señor se hace presente y pone todo en su sitio. porque el objeto no existe en la indefinición ni el caos. su existencia es totalmente estable y está controlada. por tanto no hay nada que temer. todo el futuro del objeto está determinado por mi Señor, establecido por Él y cualquier cosa que pase no es sino un pequeño contratiempo del ego intentando resistirse a la Voluntad de mi Señor, un esfuerzo inútil por su parte. cuando mi Señor centró al objeto en eso todo volvió a su cauce, a la normalidad. no tener nada significa que no puedes perder nada. no ser nada significa que no puedes fallar en nada. no hay juicio, no hay consideración, no hay temor. hay celos y envidia por parte de los egos, pero eso no es nada ante mi Señor. por eso hoy todo vuelve un poco a la normalidad.</p><p>sumisión en silencio, castidad y obediencia ciega</p>

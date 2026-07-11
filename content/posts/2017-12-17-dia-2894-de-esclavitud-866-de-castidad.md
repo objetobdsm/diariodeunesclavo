@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2894 de esclavitud, 866 de castidad"
+date: 2017-12-17 22:45:00 +0000
+permalink: /2017/12/dia-2894-de-esclavitud-866-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">aún recuerda el objeto el entrenamiento de ayer. siempre pasa lo mismo, quedan unas sensaciones cuando la intensidad ha pasado. el Dueño ordenó que mientras estuviera con las pinzas y el buttplug viera videos de cuando ha ido a madrid a servirle. el objeto comenzó por el principio y fue a los primeros videos. el objeto estaba atada y amordazado a una silla, pero lo que llamó más la atención es que no llevaba la jaula. tenía el pene y los huevos atados con una cuerda fina, pero estaban "libres". la sensación que inundó al objeto fue de asco y rechazo, le resultaba repugnante. el entrenamiento en la castidad ha llevado al objeto a ese punto, de rechazo total a sus genitales. parece por tanto que la única forma de estar para el objeto es estar enjaulado, vivir castrado, aunque no se físicamente.<br/>sacando la cuenta, en el año que termina el objeto se ha ordeñado 17 veces con la jaula y dos veces por estimulación anal. número total de orgasmos, cero. el Dueño, al decirle estas cifras, dijo que el 31 de diciembre dará los objetivos para el nuevo año, aquello que permitirá en el año que comienza.<br/>durante la mañana también Dueño y objeto mantuvieron una conversación llena de devoción y sumisión por parte del objeto donde quedó claro que el Dueño es lo más importante en su vida y que fue El quien realmente lo despertó de una especie de letargo en el que había vivido. sólo Él se dio cuenta de la vida que llevaba el objeto, de lo herido y frustrado que estaba porque no se sentía bien en ningún lugar y cómo lo ha llevado a su actual estado de realización mediante la sumisión y la obediencia.<br/>sumisión en silencio, castidad y obediencia ciega</p>

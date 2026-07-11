@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3260 de esclavitud, 1232 de castidad"
+date: 2018-12-18 22:31:00 +0000
+permalink: /2018/12/dia-3260-de-esclavitud-1232-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el camino, la puerta por la que todo el mundo entra en el bdsm son los fetiches, los objetos, aquello que nos excita sexualmente, y el objeto no fue una excepción. primero fue el bondage, luego el cuero, finalmente las botas. un fetichista es alguien que encuentra excitación fijándose en un determinado objeto o comportamiento, una especie de metonimia hecha carne. el objeto fue poco a poco profundizando y yendo cada vez más abajo, concentrando cada vez más en todos estos elementos.... hasta que apareció el Dueño. Él le hizo comprender que esos fetiches no eran más que la manifestación, la expresión exterior de una realidad más profunda. lo que realmente excitaba al objeto, lo que realmente buscaba era la sumisión, la obediencia a un Ser Superior. el cuero le excitaba porque expresaba autoridad, las botas porque mostraban personalidad y fuerza, y el bondage porque lo dejaba realmente infenso ante otros. durante este tiempo de esclavo del Dueño el objeto ha aprendido que lo que necesita para ser auténticamente feliz es renunciar a cualquier tipo de control y limitarse a obedecer, sin cuestionar, sin decidir, sin plantearse nada. una vez comprobado que el Dueño es un Amo, un Superior de verdad, natural; no queda otra opción sino rendirse y obedecer. desde ese momento la vida del objeto ha dado un giro radical en todos los sentidos. ahora el Dueño lleva las riendas, ordena, organiza y da permiso al objeto para aquello que es un bien para el objeto. lo castiga cuando peca no llevando sus órdenes hasta las últimas consecuencias y lo corrige y adoctrina para que aprenda cómo vivir como lo que es, un objeto.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

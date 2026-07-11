@@ -1,0 +1,23 @@
+{{ define "main" }}
+  <article class="post-single">
+    <p class="back-home"><a href="/">← Volver al inicio</a></p>
+
+    <h1>{{ .Title }}</h1>
+
+    <div class="post-meta">
+      {{ .Date.Format "02/01/2006 15:04" }}
+    </div>
+
+    {{ with .Params.tags }}
+      <ul class="tag-list">
+        {{ range . }}
+          <li>{{ . }}</li>
+        {{ end }}
+      </ul>
+    {{ end }}
+
+    <div class="post-content">
+      {{ .Content }}
+    </div>
+  </article>
+{{ end }}

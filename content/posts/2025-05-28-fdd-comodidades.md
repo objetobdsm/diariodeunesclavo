@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD comodidades"
+date: 2025-05-28 08:23:00 +0000
+permalink: /2025/05/fdd-comodidades.html
+tags:
+  - FdD
+  - bondage
+  - mordazas
+---
+
+<p> </p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/bb/e2/bbe25ed502b2ea9b5cc8cbf8720fe461dc4e890f01a7e166c1f3748e78ab9a5b.jpeg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="1280" data-original-width="960" height="640" src="/uploads/69/9c/699ce8a8f72d53f3459b28a6e44c88a773eaf940de1859c43f05b84bfc44d09a.jpg" width="480" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: justify;">no hay comodidades para un inferior. si alguien quiere vivir mejor, disfrutar de placeres, tener lujos, que no se meta a esclavo. puedes ser un sumiso mantenido, si tu Dominante te lo permite, o un pseudo esclavo que engaña a su pareja. pero un esclavo de raza, y de ahí todos hacia abajo en la escala de la sumisión solo hacia abajo en la escala de sumisión solo vivirá incomodidades, privaciones y experiencias que cualquier vanilla catalogaría como maltrato. la castidad, el bondage, las mordazas, las cadenas o el mero hecho de tener que pedir permiso para ir al baño, lo que significa que se lo pueden negar, podrían ser catalogadas como inhumanas. pues si, de hecho lo son. pero un esclavo, un inferior que quiere vivir como uno con todas las consecuencias, deja de ser humano. y este objeto lo repite y lo repetirá una y otra vez, no porque nadie se lo imponga sino porque lo desea y porque voluntariamente lo ha decidido. en el fondo un inferior en una relación de Dominación/sumisión, es un asceta posmoderno, alguien que renuncia a todo por un bien mayor, y en esta renuncia encuentra su felicidad. ese es su premio, su ganancia. por momentos puede que disfrute de cierta comodidad, como permitirle usar una manta, estar sobre una alfombra mullida o incluso decir alguna palabra. pero debe ser algo esporádico, algo excepcional. todo esclavo merece y debe ser tratado duramente, en función de su nivel de entrenamiento, y sin haber pasado sus límites negociados previamente hasta el punto de llegar a la frase que mi Señor dice a su objeto: "Tratarte como un humano es cruel".</div><br /><p></p>

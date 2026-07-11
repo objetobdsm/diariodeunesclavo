@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2355 de esclavitud, 327 de castidad"
+date: 2016-06-27 22:29:00 +0000
+permalink: /2016/06/dia-2355-de-esclavitud-327-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hoy 402 ha tenido que ir a un acto social del trabajo. no ha estado mal pero cada vez estas cosas le traen más sin cuidado a este objeto. es como si estuviera, que está, en otra onda, en otro mundo. desde luego forma parte de su no-vida. la cuestión es saber si lo echará de menos tras el Gran Salto. así, en frío, cree que no, al contrario, que será una de las muchas "liberaciones" que tendrá una vez su vida sea lo único. en su mente, cuando está agobiado de tanta formalidad y falsedad, 402 piensa cómo será la vida que le propone el Dueño: encerrado la mayor parte del tiempo, si no todo el tiempo, de manera indefinida, como un objeto de cuero y latex, siempre con botas, siempre disponible, y cuando no almacenado como cualquier otro objeto.<br/>sentado hoy en un gran salón de actos, este objeto no pudo evitar pensar en vivir en un espacio mucho más reducido, una celda, con una mesa, una silla, un colchón en el suelo porque ni siquiera necesita una cama. un baño en la celda sería conveniente, sobre todo para hacer sus necesidades sin tener que salir. podría ser una celda con barrotes en una mazmorra ligeramente más grande. podría tener un pequeño office por si 402 tiene que pasar días encerrado sin que el Dueño se moleste en llevarle de comer siquiera. 402 no tiene grandes pretensiones, de hecho con esto que describe sería suficiente. un ordenador sería necesario para trabajar y para cumplir los encargos que el Dueño hiciera, y no haría falta nada más. el aislamiento sería completo, definitivo y una bendición. desde los primeros días el Dueño ha repetido una frase que sólo últimamente va tomando forma y adquiriendo más sentido para 402:"Voy a sacarte del mundo".<br/>sumisión en silencio, castidad y obediencia ciega.</p>

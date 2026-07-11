@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1327 de esclavitud"
+date: 2013-09-03 21:53:00 +0000
+permalink: /2013/09/dia-1327-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">14 días de castidad, 14 desde el último ordeño.</div><div style="text-align: justify;">hipocresía, hipocresía e hipocresía. hoy el perro se ha encontrado en una situación de su no vida donde la hipocresía está en el centro de todo. la hipocresía es otra de las manifestaciones del ego. tanta gente haciéndose la importante y aplastando a los demás. el perro no pudo sino agradecerle al Dueño que mantenga al ego controlado con la humillación y la sumisión.</div><div style="text-align: justify;">en el fondo un hipócrita es una forma de llamar a un mentiroso, y las dos razones por las que alguien miente son para conseguir algo o para aparentar algo. un hipócrita es un mentiroso de la segunda categoría.</div><div style="text-align: justify;">por supuesto el perro se alejará de estos hipócritas, que en el fondo no son más que malas personas, personas tóxicas.</div><div style="text-align: justify;">cambiando radicalmente de tema, pero no tanto, el perro ha comenzado hoy a buscar un hosting, un lugar donde alojar el blog y no dejarlo en manos de criterios de otros que puedan considerarlo respetable o no. blogger, donde está alojado actualmente el blog, ha estado cerrando blogs de adultos y hace poco cerró una cuenta, de la que dependían las fotos del blog anteriores a 2010. el perro cree que es hora de una mudanza y el Dueño está de acuerdo. debido al tamaño del blog será un poco complicado y requerirá tiempo y trabajo, algo que el perro tiene poco del primero y mucho del segundo. en cualquier caso cualquier cosa antes de que un día quiera entrar en el blog y no pueda.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

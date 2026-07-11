@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1579 de esclavitud, 27 de castidad"
+date: 2014-05-12 23:22:00 +0000
+permalink: /2014/05/dia-1579-de-esclavitud-27-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">en un hipotético mundo perfecto, el perro se habría enfundado sus pantalones de cuero, cazados sus botas, puesto una camiseta y el chaleco, también de cuero, y hubiera ido a trabajar mostrando orgulloso la cadena y el candado al cuello, prueba y testimonio de su esclavitud.<br/>pero desgraciadamente no vivimos en un mundo ideal, y menos para un esclavo, así que el perro ha tenido que conformarse con la jaula y las botas, que tampoco es poco. lo bueno es que, independientemente de lo que lleve por fuera, en su interior, el perro es un ser sometido y esclavizado, obediente a la voluntad de su Dueño y se está preparando constantemente para el Gran Salto, se produzca cuando se produzca. vivir controlado y obedeciendo, ese es el fin, el objetivo, y todo debe ir encaminado a eso.<br/>hasta que llegue ese momento la no-vida sigue su curso: trabajo y más trabajo, sin parar. mañana ocupado en cientos de cosas y tardes en la universidad, intentando no dormirse en las clases del master. al menos la jaula y las botas estuvieron con el perro todo el tiempo. son un regalo, un recordatorio de lo que es. hoy el perro no se puso la brida y la jaula se movía, con lo que le pilló varias veces la piel. desde luego es más cómoda cuando se queda ajustada no se mueve por la brida, así que el perro cogerá la costumbre de ponerla. la jaula es parte de la vida del perro, y lo será de ahora en adelante. no es esporádica, ni temporal, sino permanente, constante. por eso el Dueño quiere que el perro esté lo más cómodo posible y así, se va ajustando. en los últimos días el perro la está usando con el anillo más pequeño, y ahora, con la brida quedará bien fijada y los pinchamientos serán mínimos.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo</p>

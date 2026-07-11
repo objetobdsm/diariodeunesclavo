@@ -1,0 +1,10 @@
+---
+layout: post
+title: "626 días de esclavitud, 2 de castidad"
+date: 2011-10-03 22:30:00 +0000
+permalink: /2011/10/626-dias-de-esclavitud-2-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">hoy tendría que haber estado a los pies de mi AMO, haber amanecido encadenado a su cama, amordazado, y haber estado a su disposición y servicio para lo que El quisiera. esa es la sensación que he tenido todo el día. ha sido como si estuviera en el sitio equivocado en el momento equivocado, como si no estuviera viviendo la vida que tendría que vivir. he compartido este pensamiento con mi Dueño y me ha dicho que no, que estoy haciendo exactamente lo que El quiere, que estoy obedeciendo. en otras palabras, desearía haber dado ya el Gran Salto, pero El piensa que no estoy preparado aún.y El es quien debe decidir eso, quien conoce a su perro lo suficiente para saber cuando hacerlo. la sumisión consiste sobre todo en confianza, en confiar en el criterio del AMO y por eso este perro asume su veredicto y lo vive con humildad. una cosa es lo que este perro desee, que no tiene importancia, y otra lo que mi AMO ordene que ocurra. el Gran Salto llegará, es inevitable, pero ocurrirá no cuando a este perro le apetezca o se sienta preparado, sino cuando su Dueño diga que lo está.</div><div style="text-align: justify;">por otra parte hoy ha sido un día de intensísimo trabajo, algo bastante complicado con el calor que ha hecho, que ha sido bochornoso. al mediodía ya le había afectado a este perro enormemente. sólo quería estar tumbado en un rincón a la sombra. no pudo ser y tuve que trabajar por la tarde también, aunque más relajado. echo de menos una mazmorra oscura, donde vivir encerrado y a merced de mi Señor. hoy me ha escrito "cada vez veo más claro la necesidad de que vivas conmigo, a mi servicio, trabajando y estudiando de forma relajada dentro de tu celda". esas son palabras celestiales para este perro.</div>

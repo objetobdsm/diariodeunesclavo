@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2900 de esclavitud, 872 de castidad"
+date: 2017-12-23 22:22:00 +0000
+permalink: /2017/12/dia-2900-de-esclavitud-872-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">se suponía que hoy era una prueba., si conseguía el objeto dormir toda la noche con la mordaza de cinta, sería la confirmación de lo de ayer y por tanto, la mordaza ya se integraría en su vida cotidiana. y así fue. el objeto despertó con la mordaza puesta. cuando se lo dijo al Dueño por la mañana se alegró mucho y esa fue la mejor recompensa del objeto. de hecho cuando lo consiguió no sintió alegría, ni euforia, ni siquiera la satisfacción de haberlo conseguido. no sintió nada. y eso estuvo bien porque es el objetivo de un objeto. sólo cuando el Dueño mostró su aprobación y agrado, el objeto lo sintió igualmente. el Dueño estaba muy satisfecho porque para El ha conseguido lo que siempre deseó: un objeto botero, castrado y amordazado. por supuesto ese "siempre" tiene un matiz. tal vez no desde siempre se formuló de esa manera, tanto por parte del objeto como del Dueño. en el proceso de descubrimiento se han ido dando nombre a las cosas, pero viendo los videos primeros que el Dueño hizo al objeto, cuando no tenía jaula y todo estaba comenzando, ya ha podido vislumbrar el objeto el camino que se estaba trazando y ahí habían botas, había castidad y habían mordazas, pero también objetificación y deshumanización. siete años han llevado al objeto a acercarse a ese ideal y el Dueño ha considerado que hoy se ha dado un gran paso, un punto de no retorno, otro más por cierto. el entrenamiento del objeto ha sido una sucesión continuada de estos puntos, momentos que se cruzan y que hacen que el objeto ya no sea el mismo. metafóricamente el objeto los compara con barrotes, cada uno de ellos. juntos van configurando la jaula donde vive el objeto permanentemente y cuya llave sólo tiene el Dueño.<br/>sumisión en silencio, castidad y obediencia ciega</p>

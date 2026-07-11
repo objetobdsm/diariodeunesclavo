@@ -1,0 +1,10 @@
+---
+layout: post
+title: "784 días de esclavitud, 17 de castidad"
+date: 2012-03-09 23:30:00 +0000
+permalink: /2012/03/784-dias-de-esclavitud-17-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">estaba comiendo en el comedor de la facultad, cuando este perro ha comenzado a recibir mensajes de su Amo, tipo "Ahora deberías estar en tu saco de cuero, bien atado y amordazado" o "Ahora te ataría fuertemente las manos, te pondría la mordaza metálica y te torturaría. (...) Te metería la punta de mis botas por la boca a través de la mordaza". por supuesto esto me puso a cien y, aunque estaba rodeado de estudiantes, mi cuerpo tomó las riendas y este perro comenzó a empalmarse, con el agravante, de que, como todas las tardes últimamente, tenía puesto el cockring y pronto empezó a dolerme bastante la entrepierna. por supuesto se lo comuniqué a mi Dueño, y le gustó, de manera que siguió torturándome con frases similares, durante casi un cuarto de hora, o más, porque pronto perdí la noción del tiempo.</div><div style="text-align: justify;">estuve toda la tarde con los genitales doloridos por la excitación del mediodía. una de las veces, cuando fuí al baño, tenía marcados los remaches del cockring en la piel. </div><div style="text-align: justify;">por la noche seguimos con la conversación y mi Dueño quiso que le ofreciera mi leche, así que me ordenó ordeñarme. este perro no es quien para cuestionar las decisiones de mi Señor y se ordeñó como le habían mandado. mi Amo me dió unas instrucciones muy precisas: con la mordaza de madrid, la de forma de pene, el cockring, el collar y las pinzas. no debía emitir ningún sonido, absolutamente ninguno. se hizo como El ordenó. fue muy rápido, extremadamente rápido.... y doloroso, lo cual agradó a mi Dueño muchísimo.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

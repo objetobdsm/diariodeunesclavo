@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5722 de esclavitud, castrado permanentemente"
+date: 2025-09-14 22:14:00 +0000
+permalink: /2025/09/dia-5722-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> nada más despertar se encontró el objeto con un mensaje agridulce. uno de sus tutorandos ya no los será mas porque su Amo quiere realizar el entrenamiento por sí mismo, algo normal y natural. al fin y al cabo la vocación de un tutor es desaparecer cuando el tutorando puede caminar por sí solo. el hecho de que sea el tutorando más avanzado del objeto y el que realmente no lo necesitaba, ha hecho que se sintiera tranquilo.</p><p style="text-align: justify;">a pesar de l o que pudiera parecer el objeto no lo vivió como algo negativo sino como un avance para su tutorando, otro objeto. así que el día comenzó muy bien pero no terminó tanto. mi Señor tuvo un mal día y la dependencia tiene eso. si al Amo le va bien es imposible que le vaya bien al objeto. y además no es un camino en dos direcciones porque no importa lo que le ocurra al objeto. aquí solo importa el Amo y hoy no tuvo su mejor día.</p><p style="text-align: justify;">Eso influyó en la llamada a capítulo que ateníamos por la tarde, que prefirió mi Señor cortar antes de tiempo porque no nos estábamos comunicando bien, por todo lo que había pasado y por las limitaciones de la comunicación por internet. lo curioso es que normalmente mi Señor parece leer la mente de su objeto pero en esta ocasión el objeto no podría hacerse entender en absoluto.</p><p style="text-align: justify;">sin embargo antes, a primera hora de la tarde, había tenido una tutoría y cree que salió bien pero no puede estar uno en su mejor momento permanentemente. hay que aceptar los momentos como vienen y no luchar contra ellos. aunque un objeto, esto está vivo y tiene esas limitaciones: se pone enfermo, tiene indigestión y cumple años, así que debe servir a mi Señor con todas esas limitaciones, incluso cuando en algún momento no puede estar bien.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega</p><div style="text-align: justify;"><br /></div>

@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD ¿público o privado?"
+date: 2011-10-05 05:18:00 +0000
+permalink: /2011/10/fdd-publico-o-privado.html
+tags:
+  - bondage
+  - FdD
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/72/fa/72fa360db41c22f7bc15f82fc99cfe08428671aa583722c4beddb17bb2478b0f.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/72/fa/72fa360db41c22f7bc15f82fc99cfe08428671aa583722c4beddb17bb2478b0f.jpg" width="426" /></a></div><div style="text-align: justify;">siempre me he imaginado qué pasaría si gente "bienpensante" y "normal" leyeran este diario lo que pensarían. supongo que lo más bonito que me dirían sería enfermo. la sorpresa es encontrar gente no tan "bienpensante" y no tan "normal", que les sorprende la forma de llevar adelante la sumisión de este perro. el hecho es que lo hacen justamente leyendo este diario, viendo estas fotos y videos y siendo asiduos visitantes del mismo. está bien, los comprendo y entiendo que cada uno debe vivir la sumisión como la dicte su naturaleza. en mi caso es como expreso aquí. justamente en un momento dado este perro la hizo pública para que otros, que pudieran sentir lo mismo y tener las mismas ideas, pudieran comprobar que no estaba solos, que había otros como ellos y que no debían considerarse en absoluto enfermos, ni depravados, ni nada de eso que los "normales bienpensantes" nos quieren hacer creer. </div><div style="text-align: justify;">es cierto que exteriormente este esclavo no va atado y desnudo como el de la foto pero sí se desnuda diariamente ante los lectores del blog hasta las entrañas más profundas. exteriormente nadie podría pensar que soy un perro esclavo, es más, suelen pensar justo lo contrario, pero es que no vivo para ellos, para las apariencias, para afuera. vivo para mi Señor, que me ata corto y me amordaza para que obedezca sin pronuciar palabra, que me adiestra y modela para tener un control y poder absoluto sobre este perro. para eso vivo, tanto dentro como fuera, tanto en público como en privado.</div>

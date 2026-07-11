@@ -1,0 +1,10 @@
+---
+layout: post
+title: "cartas desde la mazmorra"
+date: 2024-12-16 17:17:00 +0000
+permalink: /2024/12/cartas-desde-la-mazmorra_16.html
+tags:
+  - cartas
+---
+
+<p style="text-align: justify;"> el mundo de los humanos es un mundo donde el ego está siempre presente y luchando por dominar, por triunfar. luchar contra el ego es algo que no solo hacemos los inferiores. todos aquellos humanos que quieren avanzar, que quieren evolucionar, que quieren desarrollarse tienen también que luchar contra el ego. en todas las tradiciones espirituales y filosóficas que pretenden luchar una transformación del individuo, la lucha contra el ego es algo fundamental y ocupa un lugar importante. en el bdsm es algo central, al menos para los inferiores que quieren recorrer la senda de la sumisión de manera constante, no solamente tener sesiones. el ego evita que  veas las cosas como son y hace que sientas de maneras que le favorecen. puede provocar envidias, celos, deseos de acaparar, y sobre todo evita que seas feliz.</p><p style="text-align: justify;">si, queridos normales, desde la mazmorra en la que este objeto escribe se puede permitir el lujo de decirles que su vida es infeliz porque hacen demasiado caso del ego y aquello que creen que es verdad no lo es, que aquello que consideran que es lo más importante, no lo es. que aquello por lo que creen que merece la pena luchar, e incluso morir, no lo merece. vivimos en una realidad imaginaria, no porque sea recreada por un sistema informático, como plantean ya algunos físicos teóricos, sino porque cada uno la crea según su planteamiento, según su perspectiva, según sus experiencias, y si las tres cosas están dominadas por el ego entonces lo que vemos se vuelve aún más confuso, menos real. admitir que la realidad la construimos nosotros mismos es el primer paso para comprender lo que nos ocurre y lo que podemos hacer para resolverlo.</p>

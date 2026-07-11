@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD no es sólo sexo"
+date: 2015-06-03 07:50:00 +0000
+permalink: /2015/06/fdd-no-es-solo-sexo.html
+tags:
+  - FdD
+  - sumision
+---
+
+<p style="text-align:justify;"><a href="http://diariodeunesclavo.net/wp-content/uploads/2015/06/2015_06_03.jpg"><img class="aligncenter size-full wp-image-8471" src="http://diariodeunesclavo.net/wp-content/uploads/2015/06/2015_06_03.jpg" alt="2015_06_03" width="555" height="600" /></a></p><br/><p style="text-align:justify;">algunas veces hemos hablado en este blog del cuero y el latex como una especie de armadura que protege al Dueño y al esclavo, como una segunda piel que puede llegar a aumentar las sensaciones de la primera, y como una sustitución del cuerpo del otro. lo sorprendente es que, en algo con una tan alta dosis y carga sexual, estos materiales se interpongan entre una piel y otra. pero es que el fetichismo no es sólo sexo, sino también emociones, sensaciones y especialmente un juego de poder donde el cuero, el latex, las botas y los objetos juegan un papel fundamental. la clave del bdsm no es el sexo, es el poder. y todo comienza con el reconocimiento de la asimetría, de la afirmación de la no igualdad entre los participantes, de que uno está arriba y otro está abajo, de que uno manda y el otro obedece.<br/>el esclavo entrega el poder al Amo, el poder para usar su cuerpo primero, luego para controlar su entorno y, finalmente, para usar su mente a su capricho. el todo el proceso pueden pasar infinidad de cosas, y cada proceso es único y especial. para algunos se queda en un primer estadio, para otros dura solo lo que dura una sesión y para otros es el fundamento sobre el que construyen su vida entera. los lectores del blog sabe de qué tipo es la relación del Dueño y el perro.<br/>pero lo que llama la atención al perro de la foto del día de hoy, aparte de lo obvio, es como el Amo pone su mano sobre el esclavo y cómo este se agarra a él. el Amo es la sujeción del perro a la realidad, a la cordura, a la felicidad, a todo aquello que merece la pena. una vez encontrado, el Amo se va convirtiendo en el sentido del esclavo y se van cubriendo las etapas anteriormente nombradas. a veces de forma inconsciente, pero a veces guiados por el Amo que es quien lleva las riendas.</p>

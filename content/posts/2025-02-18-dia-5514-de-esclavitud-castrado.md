@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5514 de esclavitud, castrado permanentemente"
+date: 2025-02-18 23:13:00 +0000
+permalink: /2025/02/dia-5514-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> muchos comportamientos humanos son incomprensibles para el objeto. esto supone que ya lo eran cuando aún se consideraba humanos pero los entendía como una cosa normal. ahora verlo desde la distancia que da el ser un objeto los pone más en evidencia. hoy el compañero del objeto ha recibido por todas partes, desde todas direcciones, hasta el punto que el objeto ha sentido un poco de pena de él, pero tampoco demasiado porque se lo ha currado a conciencia. los humanos no se dan cuenta de que el ego no quiere sino su destrucción. es como un virus que va destruyendo todo y de pronto destruye hasta al huésped, lo que significa que se destruye a sí mismo. siguen pensando y creyendo que el ego está bien, y que en eso consiste la existencia. y están completamente equivocados. es irónico que sea un objeto el que pueda decirles lo que es ser un buen ser humano, pero es la distancia lo que permite hacer esta afirmación. ahora el objeto sabe que nunca cuajó como humano, que no estaba llamado a ser uno de ellos, que era un humano frustrado, no en el sentido de decepcionado sino en el sentido de nunca llegar a ser. solo mi Señor se dio cuenta de ello y puso remedio, dando un nuevo sentido a la orientación de la existencia del objeto. mucho otros humanos intentan ser lo que se supone que deben ser, pero están muy lejos de ello. el ego se lo impide. quieren aparentar, triunfar, ponerse por encima de los demás, imponerse, sin darse cuenta de que eso solo les llevará a la infelicidad más absoluta, como le ha pasado al compañero de trabajo del objeto. se dejó llevar por el ego y ahora el ego le ha traicionado, como le han traicionado las personas en que las que confió y que eran sus "amigas" y "amigos". como dice mi Señor: "No puedes esperar nada del mundo de los humanos, objeto". y efectivamente, como siempre, mi Señor tiene razón.</p><p>sumisión en silencio, castidad y obediencia ciega</p>

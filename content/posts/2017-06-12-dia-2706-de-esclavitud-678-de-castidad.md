@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2706 de esclavitud, 678 de castidad"
+date: 2017-06-12 22:38:00 +0000
+permalink: /2017/06/dia-2706-de-esclavitud-678-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el Dueño ha vuelto a apretar el acelerador. debería haber sido un día normal pero por la tarde el Dueño le dioj al objeto que quería aún un informe más detallado de dond eestaba y o que estaba haciendo en cada momento. el objeto tiene que mandar un mensaje cada vez que cambie de sitio o de actividad. el Dueño puede que no conteste pero quedará constancia allí. es un micromanagment en toda regla, y aún puede bajar aún más.<br/>el objeto siente como el Dueño va acercando los arrotes de la celda en la que vive. para el resto de la gente el objeto vive en libertad pero tanot Dueño como objeto saben que hay una serie de regla, normas, órdenes y comportamientos que hacen que viva en una jaula, empezando por el sexo, pasando por la palabra y terminando con sus relaciones sociales. hoy el Dueño ha acercado más esos barrotes, lo que significa decir qeu cada vez tiene el objeto menos escapatoria, menos salida, menos libertad si le quedaba alguna.<br/>mientras todo esto ocurria el inútil pene del objeto intentaba escapar de su jaula, lo que producía una mezcla de dolor ye xcitación que no puede producir ninguna otra cosa. el objeto no deja de sorprenderse por la intensidad de las emociones y las sensaciones que produce el control cuanto más mejor. cuanto más tira de la correa, más sumiso se vuelve el objeto, cuando más control, mayor obediencia.<br/>algunos Amos no llegan a entender esto, que cuanto más estricto y duros, mejor, al menos para los inferiores naturales. desde fuera puede parecer abuso, e incluso algunos Superiores siguen teniendo escrúpulos, pero para los inferioes ser estricto es tener las cosas claras y evitar el sufrimiento de tener que elegir.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

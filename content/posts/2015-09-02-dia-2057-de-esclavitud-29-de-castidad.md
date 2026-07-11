@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2057 de esclavitud, 29 de castidad"
+date: 2015-09-02 22:14:00 +0000
+permalink: /2015/09/dia-2057-de-esclavitud-29-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">cómo son las ironías de la vida. hoy el perro ha recibido un correo de una compañera del año pasado que lo puso a parir, literalmente. sin embargo el email era para pedirle ayuda ya que ella ha sido traslada a otro puesto de trabajo y va a realizar parte del trabajo que realiza el perro también. nuevamente se confirma el dicho de que no hay que escupir para arriba porque te caerá siempre en la cara. de hecho el perro debería aplicarse el cuento porque ahora, que está siendo entrenado en el silencio y en mantener la boca cerrada la mayor parte del tiempo, saber que debe callarse se ha convertido en una virtud. la crítica, y el perro está pensando en un entorno de trabajo, es muy dañina e improductiva. el silencio es la mejor solución. y en el ámbito bdsm un esclavo no tiene derecho a opinar o a hablar por lo que lo mejor que puede hacer es estar callado permanentemente y solo hablar cuando es preguntado o cuando se le da permiso para hacerlo.<br/>segundo día en el nuevo trabajo, otra vez el perro con botas y enjaulado. hace calor pero el perro desea honrar al Dueño llevando las botas porque así se lo ha manifestado al perro. no hay nada mejor para la salud de un esclavo que honrar a su Amo, al Dueño en este caso.<br/>no hubo comentarios ni miradas a las botas aunque el perro supone que han llamado la atención. al menos el perro no se ha dado cuenta si se han producido. intuye que ya, sólo en dos días, se ha convertido en una seña de identidad del perro. en el fondo ese es el objetivo del Dueño, que el perro sea identificado como un botero, y va por buen camino.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

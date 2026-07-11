@@ -1,0 +1,10 @@
+---
+layout: post
+title: "perfiles cowboykuir I"
+date: 2013-10-23 15:17:00 +0000
+permalink: /2013/10/perfiles-cowboykuir-i.html
+tags:
+  - perfiles
+---
+
+<p style="text-align:center;"><a href="http://diariodeunesclavo.net/wp-content/uploads/2013/10/Screenshot-11_05_2013-7_04_23.jpg"><img class=" wp-image-4316 aligncenter" alt="IF" src="http://diariodeunesclavo.net/wp-content/uploads/2013/10/Screenshot-11_05_2013-7_04_23.jpg" width="559" height="422" /></a> <a href="http://diariodeunesclavo.net/wp-content/uploads/2013/10/Screenshot-11_05_2013-7_04_29.jpg"><img class="alignnone size-large wp-image-4317" alt="IF" src="http://diariodeunesclavo.net/wp-content/uploads/2013/10/Screenshot-11_05_2013-7_04_29.jpg" width="626" height="465" /></a> <a href="http://diariodeunesclavo.net/wp-content/uploads/2013/10/Screenshot-11_05_2013-7_04_36.jpg"><img class="alignnone size-large wp-image-4318" alt="IF" src="http://diariodeunesclavo.net/wp-content/uploads/2013/10/Screenshot-11_05_2013-7_04_36.jpg" width="626" height="465" /></a> <a href="http://diariodeunesclavo.net/wp-content/uploads/2013/10/Screenshot-11_05_2013-7_04_48.jpg"><img class="alignnone size-large wp-image-4319" alt="IF" src="http://diariodeunesclavo.net/wp-content/uploads/2013/10/Screenshot-11_05_2013-7_04_48.jpg" width="624" height="467" /></a></p><br/><p style="text-align:justify;"><a href="http://diariodeunesclavo.net/wp-content/uploads/2013/10/Screenshot-11_05_2013-7_04_05.jpg"><img class="alignnone size-large wp-image-4320 aligncenter" alt="IF" src="http://diariodeunesclavo.net/wp-content/uploads/2013/10/Screenshot-11_05_2013-7_04_05.jpg" width="375" height="624" /></a>a veces encontramos casos peculiares, extraños y por eso muy excitantes, donde se combinan las dos figuras que más le gustan al perro, los vaqueros con sus botas y los lederones con sus cueros. este perfil merece la pena visitarse y, si vives en francia o cerca, hacer una visita. para visitar su perfil <a title="pincha aquí" href="http://recon.com/cowboykuir" target="_blank">pincha aquí</a></p>

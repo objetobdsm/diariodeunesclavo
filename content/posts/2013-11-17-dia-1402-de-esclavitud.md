@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1402 de esclavitud"
+date: 2013-11-17 22:55:00 +0000
+permalink: /2013/11/dia-1402-de-esclavitud.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">63 días de castidad, 7 desde el último ordeño.<br/>el perro estaba leyendo un artículo en internet titulado algo así como "diez consejos para los que llevan un dispositivo de castidad permanente". hay cosas con las que el perro está de acuerdo y con las que no. por ejemplo no aconseja rasurarse los genitales, sino rapárselos, pero el perro ha comprobado que afeitárselos funciona mejor para él. en lo que sí estaba de acuerdo el perro es en que ningún dispositivo de castidad es 100% seguro. utiliza un término que al perro le gustó: es un instrumento disuasorio. te hace consciente del camino que has elegido y de que debes perseverar en él, evita tentaciones y te ayuda a centrarte en tu objetivo, aquello que tu Amo te ha puesto delante y que tú has asumido gustosamente, o no tan gustosamente pero que forma parte de tu existencia. al perro le gustó esta idea de la jaula de castidad como elemento disuasorio, porque no hay posibilidad de tener accidentes con ella. el esclavo no puede decir "estaba tocándome y me corrí". hay que hacer un acto de desobediencia para correrse con ella, pero es cierto que no es segura completamente, como hemos visto en videos por internet, donde hay personas capaces de correrse con ella puesta.<br/>el día lo pasó el perro trabajando en algunas cosas que tenía pendientes, en el blog y leyendo "leather nights", un libro comprado en amazon que tiene al perro completamente enganchado. el Dueño dio permiso al perro para que comprara libros electrónicos relacionados con el bdsm y éste es uno de ellos. está en inglés, pero resulta muy estimulante comprobar como hay gente que incluso escribe narrativa con este tema.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

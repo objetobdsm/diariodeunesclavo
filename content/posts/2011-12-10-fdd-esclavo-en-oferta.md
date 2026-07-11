@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD esclavo en oferta"
+date: 2011-12-10 06:08:00 +0000
+permalink: /2011/12/fdd-esclavo-en-oferta.html
+tags:
+  - esclavos
+  - FdD
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/a4/71/a4717053b68f697ef2c55bd6a6644865a3477fcbdc7ef9cb356cfa4b2c0886e5.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/a4/71/a4717053b68f697ef2c55bd6a6644865a3477fcbdc7ef9cb356cfa4b2c0886e5.jpg" width="433" /></a></div><div class="separator" style="clear: both; text-align: center;"></div><div class="separator" style="clear: both; text-align: justify;">esta foto me parece una metáfora gráfica excelente. obviamente es un esclavo, porque lleva una cadena con candado al cuello, y no de adorno, sino como señal de propiedad. a partir de aquí desaparece lo obvio y sólo podemos entrar en la interpetación, y  a distintos niveles.</div><div class="separator" style="clear: both; text-align: justify;">primero. al tener la llave en la boca se la ofrece al Amo que desee tenerla. es un símbolo muy poderoso porque sólo el Amo podría abrir el candado y quitar la cadena. sin embargo en la tradición de la Vieja Guardia, el collar y el candado han de pertenecer al Amo, que es quien lo pone en el cuello del esclavo. cuando éste es "liberado", el Amo recupera su collar para ponérselo a otro esclavo.</div><div class="separator" style="clear: both; text-align: justify;">segundo. la llave la tiene en la boca a punto de tragársela. la esclavitud es algo tan íntimo y personal que está dentro de él.. igual que la comida entra a formar parte del cuerpo y lo anima y alimenta , la eclavitud de un perro es algo íntimamente interior y constitutivo. no hay libertad posible para un esclavo auténtico, sólo sumisión por lo que es o frustración por lo que no puede sre.</div><div class="separator" style="clear: both; text-align: justify;">tercero. desnudez, pelo rapado, una marca en el brazo, una cadena al cuello, el sudor del trabajo.no hay fetichismo, ni cuero, ni botas, nada excepcional, sencillamente carde de esclavo, porque eso es lo que somos al fin y al cabo, una propiedad de nuestros Amos.no presumimo, no tenemos lujos, sólo una cadena que no es nuestra sino de nuestros Amos y que indica su poder y sus derechos sobre nosotros. no hay más.... ni menos.</div>

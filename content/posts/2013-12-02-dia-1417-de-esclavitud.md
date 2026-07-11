@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1417 de esclavitud"
+date: 2013-12-02 22:35:00 +0000
+permalink: /2013/12/dia-1417-de-esclavitud.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;">78 días de castidad, 22 desde el último ordeño.<br />vuelta al trabajo con la jaula puesta. cerca ya de los 80 días de castidad, el perro la ha integrado como parte de su vida, como algo sin lo que no podría vivir.l a jaula es su vida, vivir sin ella es vivir la no-vida.<br />a veces el perro, cuando siente un impulso sumiso, escribe al Dueño una frase para que Éste sepa lo que está sintiendo. la frase dice así: "no soy nada, no tengo derecho a nada". no es una mera frase, sino que realmente el perro la siente, es una forma de expresar sus sentimientos más profundos. hoy el perro se ha sentido así, como lo que es, un ser que no tiene derecho a nada ante su Dueño. ante El, el perro admite que es inferior, que está por debajo, que El es superior, y ante un ser superior, un perro no tiene derecho a sentir placer a menos que El le de permiso o se lo ordene.un perro tampoco tienen derecho a otras cosas como opinar, hablar, decidir que comprar, incluso siquiera que comer.la distancia impide vivir esto en su plenitud y en todos los sentido, pero aquello que es posible, se hace.por ejemplo el perro tiene que suplicar permiso para quedar con alguien o para comprar algo que no sea estrictamente necesario.<br />es la vida que este perro desea vivir, la vida que este perro necesita vivir. actualmente nada le produce tanta satisfacción, tanta gratificación, tanta plenitud como sentirse un esclavo propiedad del Dueño. cada vez que Él le dice que es de su propiedad y que nunca más será libre, algo se mueve en lo más profundo del alma del esclavo. supone el perro que eso debe indicar algo.<br />obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

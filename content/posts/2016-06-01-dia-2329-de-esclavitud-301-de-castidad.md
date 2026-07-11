@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2329 de esclavitud, 301 de castidad"
+date: 2016-06-01 22:31:00 +0000
+permalink: /2016/06/dia-2329-de-esclavitud-301-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">402 ha pasado la frontera de los 300 días. en apenas dos meses hará un año ya que no tiene un orgasmo. ayer estuvo reflexionando sobre ello pero hoy 402 profundizó en el tema. la castidad impuesta radical, obligatoria, total, no es una fantasía sino una realidad cotidiana con la que 402 tiene que vivir. la jaula no es algo accesorio que se pone o se quita, es algo que está ahí y que sólo deja libre el pene inservible de 402 cuando hay que limpiarla y sanearla. sin embargo uno no mantiene la castidad por llevar la jaula. de hecho 402 comenzó su vivencia de la castidad sin llevarla, sólo porque el Dueño lo deseaba. es la obediencia lo que mantiene a un esclavo lo suficientemente sometido como para vivir en castidad. esto es tan verdad que en la última ocasión en que, siguiendo el orden trimestral, 402 tuvo que ordeñarse con la jaula puesta, no pudo. cada tres meses 402 debe, por salud, sacarse la leche. para hacerlo no puede quitarse la jaula. la última vez fue el 1 de abril y no lo consiguió. al comunicárselo al Dueño Éste lo llamó y le habló. en menos de un minuto la leche de 402 salió a borbotones a través de la jaula. tal es su poder y tal es su control. este objeto no sabe qué pasará la próxima vez que tenga que hacerlo, el 1 de julio, pero teme que sea necesaria la voz del Dueño.<br/>en el último viaje, 402 dudaba incluso de que pudiera hacerlo nunca más porque la nueva jaula apenas deja espacio para nada, por no decir que no deja espacio en absoluto. sin embargo las palabras del Dueño ejercieron su poder y, para sorpresa de los dos, la leche salió, junto que con dolor profundo, una frustración constante y una impotencia creciente. el Dueño ha dicho que a partir de ahora todo será así, de esa manera, que 402 debe olvidarse de su sexo, de su pene, y mucho menos de conseguir placer a través de él. lo único que queda es aceptar ese destino.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

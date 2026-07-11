@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD viaje a lo más profundo"
+date: 2022-11-26 11:33:00 +0000
+permalink: /2022/11/fdd-viaje-lo-mas-profundo.html
+tags:
+  - FdD
+  - leather
+---
+
+<div dir="ltr"><div style="text-align: center;"><a href="/uploads/60/49/6049a3c94e92dc8b681b792b707ee59e36c884ef5876869cb64193fdeaaeb162.jpg"><img alt="" border="0" height="640" id="BLOGGER_PHOTO_ID_7174739456519737522" src="/uploads/25/f9/25f9e1ef42c6a27908c2ecc3d78bbf58e79a42630f5252e3b0f2f996ecf93dbc.jpg" width="427" /></a><br /></div><div style="text-align: justify;">a los lectores asiduos del blog no les resultará extraña esta combinación entre la naturaleza, representada por el bosque, y la visión más puramente urbanita de un lederón con botas. la razón es que el cuero, siendo un tipo de piel, debe ser tratada y, por tanto, es un producto cultural que no se encuentra en ese estado en la naturaleza. pero no es sencillamente eso. es que el bdsm tiene esa combinación que hace que lo puramente cultural haga que nos encontremos con nuestra parte más natural y primitiva. mediante el deseo, el placer e incluso el dolor, en un sistema organizado, con reglas y ritual estrictos, podemos entrar en contacto con nuestra parte más salvaje. sólo hay que mirar una sesión para darse cuenta de cómo el inferior, y el Superior también por supuesto, van abandonando las reglas y las normas sociales, se van en cierto sentido "primitivizando", dando rienda suelta a sus más bajos instintos. precisamente es para compensar este proceso por el que son necesarias esas normas y esos rituales. sin ellos correríamos el riesgo de perdernos y hacer algo que realmente no queremos, o no debemos, hacer. cuando como inferiores nos arrodillamos ante un Superior, lo que hacemos es suplicarle que nos lleve a nuestro interior más profundo y salvaje, natural y primitivo, que nos de permiso para ser y hacer aquello que deseamos pero que no nos permitimos hacer porque la socialización nos ha dicho que es enfermizo, negativo y malo. cuando, además, lo hacemos con un Amo en quien confiamos, que es la única forma correcta de hacerlo, sabemos que Él no nos va a dejar allí perdidos o solo, sino que nos traerá de vuelta y dará sentido a lo que vivamos. desde este punto de vista una sesión bdsm puede equipararse a un viaje de descubrimiento espiritual.</div></div>  

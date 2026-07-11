@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1147 esclavitud, 41 castidad, 9 ordeñado"
+date: 2013-03-07 22:15:00 +0000
+permalink: /2013/03/1147-esclavitud-41-castidad-9-ordenado.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">el perro ha empezado a supurar hoy otra vez. se lo comunicó al Dueño y éste le preguntó cuánto tiempo había pasado desde el último ordeño. el perro contestó y previendo que le ordenaría ordeñarse de nuevo, suplicó al Dueño que le permitiera hacer una ofrenda de 15 días más sin ordeño. ya han pasado 40 días desde el último orgasmo de este perro y por el camino que van las cosas pasarán muchos más antes de poder contar que ha habido otro. el Amo está determinado a no permitir que el perro sienta algo sexualmente hablando sin estar en su presencia. es duro, pero en estos momentos más duro sería que el Amo ordenara que me masturbara, por ejemplo. sería como recobrar una libertad que no desea este perro, volver a una vida que dejó tres años atrás y que no desea recuperar bajo ningún concepto.</div><div style="text-align: justify;">la determinación de ambos, del Dueño y del perro, se manifiestan de muchas maneras. hoy, además de lo anterior, el Amo ha dicho al perro que desea llevarlo a límite, que en el próximo encuentro la esclavitud y el encierro serán aún mayor y que el perro estará todo el tiempo que esté ante el Amo con collar, dispositivo de castidad y amordazado. el cuerpo del perro reaccionó antes esto como se esperaba: con una enorme erección, muestra de que las palabras del Amo actuan con independencia del perro, porque en el estado actual al perro lo que menos le apetece es tener una erección y tener que hacer frente a cierto grado de excitación. aún así el perro no espera el momento de poder estar así con el Amo.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

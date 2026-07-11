@@ -1,0 +1,10 @@
+---
+layout: post
+title: "actualizaciones y bloggueros"
+date: 2011-12-14 14:26:00 +0000
+permalink: /2011/12/actualizaciones-y-bloggueros.html
+tags:
+  - comunicados
+---
+
+<div style="text-align: justify;">por razones de mi no-vida, en las últimas semanas este perro se ha retrasado un poco en las entradas de este diario. aunque han seguido saliendo, no lo han hecho con la frecuencia y regularidad con que debieran haber salido. mi AMO conoce perfectamente los condicionamientos que han dado lugar a este comportamiento y lo entiende y perdona. </div><div style="text-align: justify;">debido a este desajuste algunas entradas pueden haber pasado desapercibidas, como la descripción de la última vez que este perro se ordeñó, que pueden en un post del sábado pasado pero que no ha salido hasta hoy. a partir de este momento este perro intentará ser más constante y recuperar el ritmo de publicaciones anteriores. </div><div style="text-align: justify;">hoy este perro ha leído en un blog sobre castidad, un post que no tiene nada que ver son eso, sino con los blog y el hecho de ser blogger (para leerlo <a href="http://denyingthumper.com/2011/11/28/oms-lessons/">pincha aquí</a>). hablaba de una especie de decálogo de un blogguer que había mantenido su blog durante diez años. este diariodeunesclavo va a cumplir pronto siete años, así que muy lejos no andamos. el hecho es que este perro se siente con una responsabilidad. mantener y escribir diariamente lleva su tiempo y un esfuerzo grande, que este perro hace con gusto por dos razones: porque es un monumento a su AMO, y porque da pistas para todos aquellos esclavos y sumisos que desean vivir plenamente su naturaleza y no encuentran como.</div><div style="text-align: justify;">sirva todo esto para afirmar las renovadas ganas y fuerzas de este esclavo por mantener vivo este espacio de libertad sumisa y para seguirles invitando a tod@s a que se pasen por aquí de vez en cuando.</div>

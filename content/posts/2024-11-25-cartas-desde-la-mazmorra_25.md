@@ -1,0 +1,10 @@
+---
+layout: post
+title: "cartas desde la mazmorra"
+date: 2024-11-25 19:09:00 +0000
+permalink: /2024/11/cartas-desde-la-mazmorra_25.html
+tags:
+  - cartas
+---
+
+<p style="text-align: justify;"> la mazmorra es un lugar oscuro, primero porque está bajo tierra y segundo porque no tiene grandes aberturas. hay pocos vanos, incluso puede que ninguno, salvo la puerta. depende del tipo de mazmorra. a priori parecería que esa oscuridad es un problema pero es desde ella desde donde mejor se ven cosas que están a la luz. a veces el sol puede deslumbrar y las películas, por ejemplo, se ven mucho mejor en penumbras. a veces estamos tan desesperados por ver que nos cegamos y no nos damos cuenta de las cosas que nos pasan. </p><p style="text-align: justify;">es desde esta certeza que el objeto escribe sus cartas desde la mazmorra. primero lo hace desde el convencimiento de que ya no pertenece al mundo de los humanos, de que ya está fuera de él. por otra parte lo hace sabiendo que la "oscuridad" en la que vive le permite tener otro punto de vista. y desde estos dos principios se ha dado cuenta de que su vida, su existencia, es mejor desde ahí, desde la oscuridad y desde el aislamiento.</p><p style="text-align: justify;">y precisamente desde la mazmorra el objeto se ha dado cuenta de que los humanos viven desesperados por ser aceptados y deslumbrados por un montón de cosas que no aportan nada. más bien al contrario, creen que el mejor es quien más brilla, aunque todo no sea más que un artificio, fuegos artificiales que luego quedan en nada. viven en la fantasía de que son algo y de que valen algo, cuando no es así. de hecho el objeto ha llegado a un conocimiento que no dice que sea el mejor pero que le ayuda. los mejores humanos son los más discretos, lo que menos brillan porque son los que más se preocupan por las cosas importantes.</p>

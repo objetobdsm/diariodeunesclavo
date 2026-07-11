@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD todos los varones"
+date: 2025-04-27 07:14:00 +0000
+permalink: /2025/04/a-veces-el-objeto-se-sorprende-ante.html
+tags:
+  - FdD
+  - bondage
+---
+
+<p></p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/88/39/88399a9356088072b85defe37e93b4ff53f8c82266b4f8ed54e7313ca627070e.jpeg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="3619" data-original-width="2895" height="640" src="/uploads/d3/13/d3135c8df1394d531bc26a7ac13284213ffc982df1c2f0fab5ec983880ef9eaf.jpg" width="512" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: justify;">a veces el objeto se sorprende, ante imágenes como esta, fijándose y reflexionando sobre las cosas más pequeñas y nimias. viéndola parece evidente que estamos ante un sumiso: un collar espectacular, unas esposas de cuero que parecen fuerte e irrompibles y, por si fuera poco, un arnés de cuerdas que recorre todo el cuerpo del esclavo. sin embargo el objeto ha fijado su atención en que tiene los genitales afeitados, y puede ser por su cultura o su historia pasada, pero considera esto más humillante, y por tanto más efectivo que todo lo anterior. obviando el tema de que su apéndice debería estar enjaulado, afeitarse los genitales siempre la ha parecido degradar al varón. esto es plenamente consciente de que es muy común entre todo tipo de hombres gays, heteros, bisexuales.... sin embargo, en la mente del objeto, acaba equiparándolo con un infante, con un niño. sin duda el pelo en los genitales es un indicativo biológico de que te has convertido en un adulto, en alguien que está maduro para tomar sus propias decisiones. afeitarlos es contradecir o deshacer ese principio biológico. no puedes tomar tus propias decisiones. no estás maduro para hacerlo. no eres lo suficientemente hombre. todos estos mensajes sin duda son positivos para un inferior. desmontan la fantasía de que es igual que los varones adultos. la conclusión es lógica: todos los inferiores deberían tener los genitales afeitados, y de paso, llevar una jaula de castidad.</div><br /><p></p>

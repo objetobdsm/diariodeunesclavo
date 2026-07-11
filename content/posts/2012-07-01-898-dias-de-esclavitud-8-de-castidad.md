@@ -1,0 +1,10 @@
+---
+layout: post
+title: "898 días de esclavitud, 8 de castidad"
+date: 2012-07-01 22:16:00 +0000
+permalink: /2012/07/898-dias-de-esclavitud-8-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">hoy este esclavo ha dedicado algún tiempo a obedecer a su Amo en cuanto a su aspecto. se ha rapado la cabeza y se ha afeitado los genitales. mientras hacia esto último ha vuelto a tener una erección, sobre todo por lo humillante del acto y eso le ha hecho recordar lo que es y a quien pertenece. un gesto tan sencillo como ese se puede convertir en una experiencia de sumisión muy intenta, teniendo presente a mi Dueño.</div><div style="text-align: justify;">luego tuve una conversación por internet con un conocido, y no pude evitar sentir cierta pena. es alguien que de vez en cuando, y desde hace tiempo, intenta quedar con este perro cuando le da el calentón. él sabe que desde hace tiempo quedar no depende de mi, sino de mi Dueño, y no voy a molestarlo con eso, porque, a pesar de decir que quiere ser esclavo y que quiere que le enseñe, en cuanto se le baja el calentón desparece. las cosas no son así, podrían hacerlo sido hace algún tiempo, pero ya no. es cierto que este perro intuye en él capacidades para ser esclavo, pero su ego es demasiado grande para decirse a si mismo lo que es, lo que busca, lo que desea. vive en una huída constante, permanente, y eso le hace infeliz, muy infeliz. espero que algún día se detenga y pudeda recapacitar sobre lo que está viviendo y lo que realmente quiere.</div><div style="text-align: justify;">la cuenta atrás ha comenzado, cada segundo que pasa quedan menos días para poder estar con mi Amo. hace demasiados días que no nos vemos. ha sido un año duro y espero no tener otro igual. este perro necesita este viaje como agua de mayo, aunque sea en junio.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo</div>

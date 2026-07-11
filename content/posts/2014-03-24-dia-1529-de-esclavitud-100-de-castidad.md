@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1529 de esclavitud, 100 de castidad"
+date: 2014-03-24 22:22:00 +0000
+permalink: /2014/03/dia-1529-de-esclavitud-100-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">lo interesante de llevar una cuenta es cuando llega un número significativo, como hoy que el perro lleva 100 días sin un orgasmo. cien días es casi un tercio de año. lo significativo es que no es, ni mucho, el final. esta cuenta no es una cuenta hacia el momento en que se termine, no está el perro viviendo una etapa entre orgasmos. sencillamente ha perdido el derecho a tenerlos. un esclavo no tiene ese derecho, no tiene derechos, sólo obligaciones y deberes. hace unos 100 días que el perro, aún una sombra de un humano, se masturbó por última vez. fue algo que el perro concedió, antes de que se convirtiera en un objeto. 100 días no es más que el primer paso, el inicio, la primera etapa. la vida del perro será esta. no hay otra posible. casi como un gesto simbólico el perro se afeitó los genitales otra vez. hace algún tiempo ni siquiera hubiera admitido que el perro se afeitaría los genitales cada semana. sería impensable para él. sin embargo ahora es una realidad, y constante además.<br/>ahora su placer no es importante. sólo el placer del Dueño y de aquellos a los que el Dueño decida que el perro de placer. el perro no es más que un objeto para dar placer.<br/>no hay mejor día que este para que las cosas empiecen a ponerse en su sitio. el primer paso ha sido actualizar el blog. llevaba casi un mes de retraso. el perro escribió las entradas que faltaban y el Dueño las aprobó. la mañana terminó con la entradas publicadas y el perro pasó la tarde en la universidad donde llevó la jaula de metal. es más pesada que la de plástico, aunque no noté demasiado que estaba ahí. ha sido un buen día.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

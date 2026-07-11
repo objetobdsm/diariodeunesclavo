@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1882 de esclavitud, 329 de castidad"
+date: 2015-03-10 22:42:00 +0000
+permalink: /2015/03/dia-1882-de-esclavitud-329-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el Dueño le ha dicho al perro que no tiene sexo, que su sexo ha desaparecido y ahora le pertenece. esta afirmación salió cuando el Dueño y el perro hablaban por mensaje, y es una realidad. el contexto fue que el perro preguntaba cómo quería el Dueño que el perro se ordeñara, si estimulándose la próstata metiendo algo en el ano, teniendo la jaula puesta, por supuesto, o moviendo la jaula. el perro ha visto algunos videos donde gente con la jaula empiezan a tocársela y acaba saliendo la leche. el perro preguntó al Dueño si eso se consideraba una masturbación y, por tanto, una ruptura de la castidad. el Dueño dijo que no, que de hecho prefería esa forma porque no quería que el perro se metiera nada por el ano a menos que Él lo ordenara.<br/>como ayer el perro empezó a supurar, ese es un síntoma de que debería ordeñarse ya, el Dueño dijo que lo intentara esta noche, pero que quería que lo grabara. que me pusiera botas y collar y que lo intentara. quería disfrutar del "éxito", pero supone el perro que también de la frustración del "fracaso". es curioso cómo estos términos adquieren un sentido distinto en un contexto diferente. el éxito sería un ordeño sin orgasmo y el fracaso que se mantuviera la castidad sin ordeño alguno.<br/>sin embargo a última hora de la tarde el perro sacó el billete para madrid, para ir a postrarse a los pies de su Dueño. estaba esperando para hacerlo a una situación concreta de la no-vida que se ha resuelto hoy y de la que el Dueño estaba enterado. busqué billete y le comuniqué si tenía su aprobación y me dijo que si. entonces el perro suplicó que, ya que estaba en el horizonte un nuevo encuentro entre los dos, que le permitiera mantener una castidad radical hasta ese momento.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo</p>

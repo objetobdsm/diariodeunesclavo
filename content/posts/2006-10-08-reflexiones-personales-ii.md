@@ -1,0 +1,10 @@
+---
+layout: post
+title: "Reflexiones personales II"
+date: 2006-10-08 12:12:00 +0000
+permalink: /2006/10/reflexiones-personales-ii.html
+tags:
+  - reflexiones
+---
+
+<a href="/uploads/72/b7/72b7f6e0a545a03ec08d9e5c5115ff5a8373df925807e71416905a71ecc97a28.jpg"><img style="FLOAT: left; MARGIN: 0px 10px 10px 0px; CURSOR: hand" alt="" src="/uploads/ad/6e/ad6eba6cff1bbf34b55fd83331611b666a8069b3e7ddeb85abab3422abb03f36.jpg" border="0" /></a><br /><p align="justify">mi ser sumiso sigue haciéndose presente. a veces es algo sutil, como pasar por delante de una zapatería sin poder evitar mirar a ver si hay alguna bota expuesta; o mirar fijamente a alguien que lleva alguna prenda de cuero o una muñequera preguntándome si eso es indicativo de una práctica oculta o solo pura estética. otras veces es más explícito, cuando la imagen y la figura de mi Señor se hacen presentes. Casí inmediatamente me pongo nervioso y tengo ganas de mandarle un sms o escribir sobre El, para que sepa que pienso en El y que siento su poder sobre mi. precisamente acabo de enviarle un sms diciéndole: "a pesar de estar lejos, pienso en Usted. su poder sobre mi no disminuye sino que aumenta cada día. esa es mi condena y mi salvación". el hecho es que realmente lo siento asi que su poder aumenta paulatinamente. el poder es la capacidad para que uno haga lo que el otro desea. Él desde luego, y según esta definición, es poderoso en mi vida. puede conseguir de mi cosas que nucna pensé que alguien pudiera conseguir, pero de eso se trata esto, de ceder poder ante otro, de renunciar a autonomía y dejarse llevar y orientar. para mi esto es un gran proceso de aprendizaje donde El es el maestro y yo un aprendiz que va dando poco a poco sus primeros pasos, esperando que al final pueda llegar a la sumisión que El busca y desea, sumisión, qué palabra, cómo la repito y cuánto significado tiene para mi. no sólo la digo sino que intento vivirla y hacerla mía hasta que forme parte de mis huesos. hoy me gustaría estar completamente vestido de cuero, con botas, atado hasta quedar completamente inmovilizado, amordazado y vendados los ojos a sus pies. sería mi situación ideal en estos momentos.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "soldado vs leatherman"
+date: 2013-04-12 12:24:00 +0000
+permalink: /2013/04/soldado-vs-leatherman.html
+tags:
+  - videos
+---
+
+<div class="separator" style="clear: both; text-align: center;"><object width="520" height="466" class="BLOG_video_class" id="BLOG_video-5e79b6458dfd29ad" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=6,0,40,0"><param name="movie" value="//www.youtube.com/get_player"><param name="bgcolor" value="#FFFFFF"><param name="allowfullscreen" value="true"><param name="flashvars" value="flvurl=http://redirector.googlevideo.com/videoplayback?id%3D5e79b6458dfd29ad%26itag%3D5%26source%3Dblogger%26app%3Dblogger%26cmo%3Dsensitive_content%253Dyes%26ip%3D0.0.0.0%26ipbits%3D0%26expire%3D1368004215%26sparams%3Did,itag,source,ip,ipbits,expire%26signature%3D102381D15F14A703EB2EFD46DBFDA42FF58AA17.69493D351AB6851049C20FA921AA9FD0D42525DD%26key%3Dck2&iurl=http://video.google.com/ThumbnailServer2?app%3Dblogger%26contentid%3D5e79b6458dfd29ad%26offsetms%3D5000%26itag%3Dw160%26sigh%3Df1YQpfgtvbn6WcGcOPREZEqW0rA&autoplay=0&ps=blogger"><embed src="//www.youtube.com/get_player" type="application/x-shockwave-flash" width="520" height="466" bgcolor="#FFFFFF" flashvars="flvurl=http://redirector.googlevideo.com/videoplayback?id%3D5e79b6458dfd29ad%26itag%3D5%26source%3Dblogger%26app%3Dblogger%26cmo%3Dsensitive_content%253Dyes%26ip%3D0.0.0.0%26ipbits%3D0%26expire%3D1368004215%26sparams%3Did,itag,source,ip,ipbits,expire%26signature%3D102381D15F14A703EB2EFD46DBFDA42FF58AA17.69493D351AB6851049C20FA921AA9FD0D42525DD%26key%3Dck2&iurl=http://video.google.com/ThumbnailServer2?app%3Dblogger%26contentid%3D5e79b6458dfd29ad%26offsetms%3D5000%26itag%3Dw160%26sigh%3Df1YQpfgtvbn6WcGcOPREZEqW0rA&autoplay=0&ps=blogger" allowFullScreen="true" /></object></div><div class="separator" style="clear: both; text-align: center;">en el hipotético enfrentamiento entre dos iconos de la masculinidad, un soldado y un leatherman, ¿quien ganaría? este video parece dejar clara la controversia. </div><br />

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2715 de esclavitud, 687 de castidad"
+date: 2017-06-21 22:23:00 +0000
+permalink: /2017/06/dia-2715-de-esclavitud-687-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">ha sido uno de esos días en que, de pronto, la "normalidad" se tuerce y se convierte en un día importante y significativo. tras el trabajo por la mañana el objeto fue a casa y, tras dormir una pequeña siesta, se puso a trabajar. en un momento dado el Dueño se conectó y empezaron a hablar.<br/>el grado de dependencia del objeto ha ido en aumento en los últimos meses, hasta el punto que le planteó al Dueño lo que ocurrió el lunes con el subalterno. el objeto tiene la impresión de que ya no existe la diferencia entre la vida y la no-vida. el objeto ha asumido tanto su naturaleza que ya no existe nada que quede fuera de ese prisma.<br/>anteriormente el objeto era capaz de vivir tan absorto por la no-vida que llegaba al punto de olvidarse de quien era y qué era. sin embargo, desde que el Dueño ha ido organizando la vida del objeto, con cierto rituales y normas estrictas, y el objeto tiene que decir al Dueño donde está en todo momento; no hay forma de escapar de lo que el objeto es. el objeto tiene que suplicar permiso para dormir una siesta, para hacer cualquier cosa en su tiempo libre, así como cualquier decisión laboral que afecte al objeto. el objeto no puede aceptar un ascenso o una promoción sin permiso del Dueño.<br/>el Dueño dijo en la conversación "Vives en una jaula donde he metido tu mente". y cada día los barrotes están más cerca, más pegados, de forma que cada vez menos cosas se puedan escapar entre ellos.<br/>el Dueño expresó que entendía ahora lo que el objeto había querido decir con lo de que ya no hay no-vida. la vida del objeto es una y es una vida de sumisión y esclavitud.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

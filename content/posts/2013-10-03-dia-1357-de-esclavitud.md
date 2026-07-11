@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1357 de esclavitud"
+date: 2013-10-03 21:32:00 +0000
+permalink: /2013/10/dia-1357-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">19 días de castidad, 19 desde el último ordeño</div><div style="text-align: justify;">a veces uno se lleva sorpresas, como un día que espera que sea todo dedicado a la no-vida, pero la sumisión irrumpe con fuerza durante toda la jornada. hoy ha sido uno de esos días.</div><div style="text-align: justify;">ayer ya notaba el perro que la jaula le estaba molestando, así que hoy ha vuelto a afeitarse los genitales, y problema solucionado. la jaula se ha fijado como un guante, así que parece ser que la solución es mantener esa parte del cuerpo completamente afeitada. con respecto a eso el perro ha empezado a buscar un dispositivo definitivo. el Dueño lo quiere de metal y que cubra completamente el pene, para que poco a poco el perro se vaya haciendo la idea de que no tiene nada, o lo que tiene es inservible, inútil, innecesario.</div><div style="text-align: justify;">por la tarde el perro habló con otros esclavos y compartir algunas experiencias con ellos y, al final de la tarde, estuvo casi una hora hablando con el Dueño. fue una conversación intensa, donde el Dueño fue poco a poco, por medio de las palabras, tejiendo una red alrededor del perro hasta el punto de que el perro entró en subspace y su mente se situó en ese lugar y estado tan peculiar. fue una renovación de la sumisión y de que es mi Dueño y le pertenezco. la conclusión de toda la conversación se puede concretar de toda la conversación se puede concretar en la frase de que lo que el perro busca es lo que el Dueño desea y viceversa, así que eso será realidad</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo</div>

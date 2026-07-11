@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1860 de esclavitud, 307 de castidad"
+date: 2015-02-16 22:15:00 +0000
+permalink: /2015/02/dia-1860-de-esclavitud-307-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el día de hoy estuvo marcado por una conversación, un intercambio de mensajes a través del móvil que duró una hora aproximadamente. fue una conversación intensa en la que el Dueño le dijo al perro que lo quería siempre cubierto de cuero o latex, sin identidad. que tras el Gran Salto lo tendría así, que sería incomodo, pero necesario, hasta que el perro se acostumbrara y no pudiera vivir de otra forma, tal y como ocurre actualmente con la jaula y las botas.<br/>el Dueño poco a poco, palabra a palabra, mensaje a mensaje, fue profundizando en la mente del perro hasta que éste, aún en la distancia, se sintió impotente, sin posibilidad de resistirse. el perro se sentía como un animal hipnotizado por su depredador. cada palabra que decía el Dueño iba directamente a lo más profundo de su mente y se grababa allí a fuego. estaba el perro en uno de los estados de subspace más profundos en que se ha encontrado.<br/>jamás imaginó el perro que sus fantasías más profundas estuvieran al alcance de la mano, que pudieran hacerse realidad de esa manera. muchas noches se imaginó dominado hasta el punto de convertirse en un objeto. incluso en algún momento pensó que era un bicho raro y que nadie nunca había sentido lo que él. sin embargo no sólo existían otros como él sino que ha tenido la suerte de ser encontrado y salvado, por su Dueño. porque el perro es consciente de que no encontró al Dueño sino que el Dueño lo encontró a él.<br/>la situación en la que se encuentra el perro es obra del Dueño. El lo ha ido, y lo está, modelando, para que cada vez se parezca más a lo que debe ser, que no es otra cosa que lo que el Dueño quiere que sea.<br/>el tema es que hoy, para el perro, fue muy real la posibilidad de dar el Salto y convertir en realidad sus sueños, unos sueños que ya está viviendo, aunque aún no plenamente. no es algo inalcanzable sino algo muy posible.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FFddDD perro..."
+date: 2011-10-01 05:14:00 +0000
+permalink: /2011/10/ffdddd-perro.html
+tags:
+  - dog-training
+  - FdD
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/70/49/704937eba2206f9935a0b3851f64dcbb924362da97f3f51ad6ff47dde1359bb6.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/70/49/704937eba2206f9935a0b3851f64dcbb924362da97f3f51ad6ff47dde1359bb6.jpg" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/07/d4/07d46fde5750f5b27d90af587ccc1f1e4689680488b5a3f6731f11f734cb7fbd.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/07/d4/07d46fde5750f5b27d90af587ccc1f1e4689680488b5a3f6731f11f734cb7fbd.jpg" /></a></div><div style="text-align: justify;">hoy en vez de una foto, serán dos, para compensar también el retraso de estos días a la hora de publicar. razones personales de la no-vida de este esclavo lo han absorvido tanto que le ha sido imposible seguir publicando. espera volver a la normalidad esta semana. últimamente el corazón de este esclavo se llena cuando su Amo lo llama "perro". en muchas ocasiones ha hablado sobre este tema en este blog, pero como las cosas del bdsm van ampliándose y profundizándose, vuelve sobre ellas. cuando un esclavo se pone a cuatro patas, asume ese rol ante su Amo, es inferior, está por debajo de su Señor. en las imágenes encontramos algo más elaborado. el traje de latex del perro frente al de cuero de su AMo, la correa, el boza, la capucha en forma de cabeza de perro.... no es un disfraz, es la manifestación exterior de un profundo sentimiento interior de sumisión, fidelidad y entrega. posiblemente quien no lo ha sentido, difícilmente podrá entenderlo, al igual que si no se ha sido protagonista de tal grado de dominación, por parte de los Amos, no podrá comprenderse la dimensión de lo que está ocurriendo. no es un juego, no es un carnaval, es la representación de una relación de Dominación/sumisión como pocas existen.</div>

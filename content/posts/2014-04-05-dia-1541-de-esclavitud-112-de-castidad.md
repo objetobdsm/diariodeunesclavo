@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1541 de esclavitud, 112 de castidad"
+date: 2014-04-05 22:33:00 +0000
+permalink: /2014/04/dia-1541-de-esclavitud-112-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hay cosas que la gente no aceptaría y que, incluso, muchos Amos y esclavos lectores del blog, encontrarían escandaloso. el perro es consciente de que, algunas de las ideas y experiencias que expone y relata aquí, son excesivas. de hecho, ya ha recibido el perro algunos feedback al respecto.<br/>lo que siempre ha quedado claro también, es que el perro no dice que esta sea la mejor forma de vivir, ni la única... sencillamente dice que es su forma de vivir, la que siempre ha deseado y buscado y que, gracias a que el Dueño lo encontró en un momento dado, la está realizando.<br/>a la mente del perro vienen siempre los hermanos esclavos que están aún buscando y que no han sido encontrados por sus Dueños, o aquellos que hacen sesiones esporádicas, tras las cuales les inunda un sentimiento de culpabilidad porque creen que lo que están haciendo está mal moralmente, pero no pueden dejar de hacerlo porque está en su naturaleza. son profundamente sumisos, y lo saben, y sólo son felices cuando están atados o lamiendo las botas de un Amo, un ser superior que les muestra el camino. hay algunos que siempre, al salir de una sesión, se dicen que no volverán, que es la última vez, pero siempre vuelven porque uno no puede huir de sí mismo. mejor harían en trabajarse la aceptación, en ponerse delante suya y decirse a sí mismo lo que son: esclavos, que nacieron para obedecer y para que un ser superior los tomara como propiedad, que los entrenara para servir más y mejor, y que ese es el único camino para ser feliz. sólo de esa manera encontrarán la paz auténtica. nacieron para eso y uno no puede huir de lo que es.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

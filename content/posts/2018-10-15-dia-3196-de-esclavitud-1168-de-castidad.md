@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3196 de esclavitud, 1168 de castidad"
+date: 2018-10-15 22:48:00 +0000
+permalink: /2018/10/dia-3196-de-esclavitud-1168-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el Dueño lo sabía, tal vez lo tenía previsto desde el principio, o tal vez no porque no comparte sus planes con el objeto. sencillamente ocurren. ayer el Dueño anuló la orden de ser informado de cada paso del objeto. sin embargo el objeto, casi de forma natural, lo ha hecho hoy. cada paso que daba lo enviaba por mensaje al Dueño: cuando entraba en el trabajo, cuando salía de una reunión, cuando iba al baño, cuando estaba solo, cuando tenía que ir a comprar. la forma de comunicarlo era suplicando permiso para.... y a veces el Dueño contestaba y a veces no. por la tarde el objeto, hablando con el Dueño, se dio cuenta de que había hecho justo lo que el Dueño esperaba: controlar hasta los más mínimos movimientos del objeto. cuando se lo comunicó al Dueño, Éste solo dijo "Lo sé". lo había vuelto a hacer. sencillamente había señalado al acantilado con el dedo, y el objeto se había lanzado sin pensarlo por él. ahora ya está atrapado. ahora no puede dejar de suplicar permiso al Dueño para cualquier cosa, desde cambiarse de camisa hasta ir al baño. El controla todo, absolutamente todo, pero ni siquiera ha dado la orden, o si, pero ha hecho que salga de forma natural y ahora el objeto está cogido con una cadena aún más corta de la que tenía ayer. está preso y sujeto al móvil que es un localizador, un comunicador, un eliminador de distancia. allí donde está el objeto y el móvil está el Dueño, controlando todo.<br/>lo mejor, o peor, de todo es que el objeto se ha sentido muy feliz haciéndolo. de hecho se ha sentido realizado. no hay nada que deba ser ocultado al Dueño. de hecho la mente del objeto debe ser cristalina y transparente para el Dueño, y hoy eso ha sido una realidad.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

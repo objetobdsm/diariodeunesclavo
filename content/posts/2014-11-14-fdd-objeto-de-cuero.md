@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD objeto de cuero"
+date: 2014-11-14 07:41:00 +0000
+permalink: /2014/11/fdd-objeto-de-cuero.html
+tags:
+  - bondage
+  - FdD
+  - leather
+---
+
+<p style="text-align:center;"><img class="aligncenter" style="width:730px;height:465px;left:160px;top:30px;" alt="" src="/uploads/32/1e/321e6757b0ed3eac6746556f17dce35abdb653c223907114bbaaf7bbcca90e53.jpg" width="657" height="419" /></p><br/><p style="text-align:justify;">un esclavo es un objeto, una propiedad; no es una persona, al menos no es un sujeto de derecho, porque no tiene ninguno. ha renunciado a ellos cuando se sometió a la voluntad de su Amo. las leyes no reconocen esta situación, aún, pero es un acuerdo "libre" entre dos personas, por el que uno de los miembros del acuerdo deja de serlo y cede sus derechos a la otra, que los acepta como medio de desarrollo de ambos. el Amo tiene la obligación de desarrollar las aptitudes sumisas de su propiedad, haciéndolo feliz y cumpliendo su parte del contrato. el esclavo tiene la obligación de obedecer en todo a su Amo porque así llegará a ese punto. es una relación simbiótica perfecta.<br/>como objeto que es, como propiedad, cualquier cosa que ayude y potencie ese hecho es bienvenido por el esclavo: la privación de al capacidad de hablar, de moverse, de decidir, de obtener placer... son etapas, pasos que se van dando y que van acercando al esclavo a su objetivo: eliminar todo rastro de lo que fue, de lo que creyó, de lo que pensó, para convertirse en algo nuevo, algo que no alguien. recibe una nueva identidad que le da su Amo, un nuevo ser que le permite vivir como siempre deseó, aunque nunca pudo, y pocas veces creyó que fuera posible. por eso cuanto más silencio mejor, cuanto más bondage mejor, cuanto más obediencia mejor. eso es lo que desea el esclavo. sin contemplaciones, sin consideraciones, de forma radical y absoluta. si se es un objeto, una propiedad, no se puede ser otra cosa. los objetos no son personas, aunque sigan siendo humanos, igual que un perro es un perro, aunque sea tu mascota y le pongas un nombre. al nombrarlo le das la identidad que tú quieres y lo conviertes en tu propiedad. igual pasa con un esclavo. sea en vigilia o descansando, el esclavo no es más que un objeto, en el caso del Dueño quiere que el suyo sea un objeto de cuero, como el de la imagen. lo único que su perro puede decir, Dueño, es: así sea.</p>

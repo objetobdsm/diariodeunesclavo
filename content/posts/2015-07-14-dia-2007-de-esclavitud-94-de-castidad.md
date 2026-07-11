@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2007 de esclavitud, 94 de castidad"
+date: 2015-07-14 22:54:00 +0000
+permalink: /2015/07/dia-2007-de-esclavitud-94-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">por aquí tenemos un dicho que al perro le gusta mucho "siempre habla quien tiene que le digan". su significado es claro porque no es de esos dichos metafóricos que hay que encontrarle doble sentido. hoy el perro lo ha experimentado porque, en el descanso del master, un compañero le ha censurado una cosa que es algo que ese compañero hace frecuentemente. la ironía está servida. el perro no contestó, por educación o porque no se sintió ofendido. hacerlo hubiera sido una reacción propia del ego, y el perro siente que está ya más allá de eso. sencillamente se le cambió la cara y, mentalmente, situó a esa persona en los límites más lejanos de su horizonte vital.<br/>el supuesto "compañero" tuvo que darse cuenta porque inmediatamente cambió la cara e intentó apaciguarme, hacerme la pelota, reconciliarse. demasiado tarde. el Dueño ha ordenado que nadie pise al perro y el perro obedece a su Dueño. en situaciones como esta la sociedad marca que tienes que levantar la voz, ponerte serio, enfadarte y cosas por el estilo. pero, como ha dicho, al perro eso siempre le ha parecido algo propio del ego. mucho más terrible es sencillamente darte la vuelta e ignorarlo, sin dejar que te influya. el ego no puede vivir sin hacerse presente, sin llamar la atención, sin querer ser el centro. eso ocurre en nuestra vida hacia dentro, pero también hacia fuera. cuando en un grupo alguien llama la atención excesivamente y quieren que le hagan caso a cualquier precio, normalmente es el ego el que tiene las riendas. por eso lo que más daño hace al ego es ignorarlo, dejarlo de lado, hacer como que no existe. enfadarse con él es convertirlo en el centro, jugar a su juego, realizar lo que precisamente está buscando.<br/>hoy el perro no se enfadó, ni se alteró, ni se sintió mal. sencillamente apartó a alguien que no merecía estar en su vida. eso, para el perro, es una victoria.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

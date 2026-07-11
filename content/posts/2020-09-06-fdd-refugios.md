@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD refugios"
+date: 2020-09-06 18:02:00 +0000
+permalink: /2020/09/fdd-refugios.html
+tags:
+  - FdD
+  - sumision
+---
+
+<p> </p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/ab/62/ab621f97f2bd6406e41ae3015aed7ae2a6c3c8d5e34d90f81edca5ae4436c0ce.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="600" data-original-width="407" src="/uploads/79/df/79df4965fade95614fda1cedbcde6947945615d95106861ee0774cab2490c209.jpg" /> </a></div><div class="separator" style="clear: both; text-align: justify;">hay profesiones que son comodines para los esclavos naturales. a menudo, si formas parte de este grupo, naces y vas desarrollando ciertos sentimientos de no encontrarte a gusto en ninguna parte, de no estar conforme contigo mismo, de estar fuera de lugar siempre. eso suele ser el efecto de una educación pretendidamente igualitaria en un alma que es sumisa por naturaleza. no es infrecuente que aparezca la tristeza, incluso la depresión, en personas que, al final, lo que tienen que hacer es un papel, simular ser algo que no son. sin embargo aún quedan espacios, sin ser el bdsm, donde esas personas pueden encontrar un sitio. sin duda el ejército es una de ellas, o la vida religiosa. ambas tienen en común ciertos elementos que ayudan a un inferior a sobrellevarlo, incluso sin saber si son inferiores. en primer lugar esas vidas tienen un orden, una estructura, están organizadas. son instituciones donde hay una fuerte jerarquía y donde la obediencia y el estar por debajo, sintiendo devoción por el superior es algo altamente valorado. también son espacios que trascienden el trabajo. no son profesiones, son formas de vida. y en algunos casos, como en la foto, puedes integrar ciertos fetichismos, como en cuero o las botas. esto está seguro que si hiciéramos un estudio, encontraríamos gran cantidad de inferiores entre estos dos grupos sociales, porque acaban convirtiéndose en lugares refugio para quien no ha descubierto aún el bdsm. <br /></div><br /><p></p>

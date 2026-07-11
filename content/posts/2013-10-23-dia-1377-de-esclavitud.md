@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1377 de esclavitud"
+date: 2013-10-23 22:28:00 +0000
+permalink: /2013/10/dia-1377-de-esclavitud.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;"> 38 días de castidad, 4 desde el último ordeño</p><br/><p style="text-align:justify;">las castidad forma parte de la vida de este esclavo, hasta el punto de que cree que ya no podría vivir sin llevar la jaula. de hecho cuando se la quita para afeitarse o lavarse bien el pene, se siente como desnudo. esto es algo que el perro ya ha compartido en el blog a menudo. hoy no ha sido diferente, de hecho en dos ocasiones la jaula ha producido dolor, bastante además. el pantalón que llevaba el perro era algo ajustado y aunque no dejaba ver la forma de la jaula, sí que hacía que ésta estuviera de una manera complicada. como decía en dos ocasiones los anillos de plástico pisaron el escroto y produjo un fuerte dolor al perro. un pero nunca debe olvidar a quien pertenece, ni lo que es. la jaula se encarga de recordárselo constantemente.<br/>pero el efecto de la jaula no es sólo físico. hoy el perro tuvo que ir al baño en la universidad. por supuesto no podía hacerlo de pie. las veces que ha orinado de esa forma ha sido un auténtico desastre, así que se sentó en el retrete, pero no había el perro limpiado bien, e inmediatamente sintió que estaba mojado. fue humillante, pero la humillación es una correlación del orgullo, y el orgullo es una manifestación del ego, así que el perro terminó y se secó... por ambas partes. eso ayuda a estar centrado, a que el perro no olvide.<br/>todo esto suscita en el perro sentimientos de gratitud y agradecimiento hacia el Dueño, que le permite vivir como siempre deseó, como siempre necesitó, como ya no podrá dejar de ser.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

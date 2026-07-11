@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2292 de esclavitud, 264 de castidad"
+date: 2016-04-25 22:28:00 +0000
+permalink: /2016/04/dia-2292-de-esclavitud-264-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">los lunes siempre son cansados para 402. demasiado trabajo. hoy además estaba poco descansado porque no había podido dormir ni mucho, ni bien. incluso siendo un objeto uno tiene ciertas limitaciones. el día transcurrió con normalidad hasta última hora de la tarde, cuando 402 tenía una reunión en la universidad, una reunión de estudios. estuvo bien, pero al final salió una noticia sobre un tema burocrático que molestó a 402.<br/>cualquiera pensaría que un objeto no tiene por qué molestarse, pero el hecho es que lo hace porque llega un momento en que parece que se está burlando de uno, que le intentan pisar; y el Dueño ha dado orden de que no sea así. la mayoría de los enfados y mosqueos que sufrimos es por culpa del ego, por el principio de "¿por qué tú cuando puedo ser yo?" y la mayoría de las discusiones se convierten en luchas de egos.<br/>esto es diferente porque es un ego que intenta imponerse sobre todo y sobre todos sin tener mayor consideración. es en estos momentos y situaciones donde tu ausencia de ego debe imponerse y vencer. el método es sencillo. al no tener ego no entras en discusión, sencillamente te retiras. "¿lo quieres todo?, pues todo para ti, pero yo me voy". y entonces pasa lo peor que le puede pasar al ego, que se queda sin público. así como la humillación es el alimento del sumiso, la violencia y la admiración es la del ego. sin ellas se desinfla y muere de inanición. al final, el ególatra se queda con todo, pero sólo, y entonces cae en la cuenta de que su aparente victoria no es más que una tremenda derrota. si hiciéramos eso con todos los políticos, otro gallo cantaría.<br/>402 va a ir el jueves a aclarar este tema y, si efectivamente es así, va a suplicar al Dueño actuar de esta forma. ayer el Dueño dijo que la vida sea el combustible para soportar la no-vida. y 402 obedece sus órdenes.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

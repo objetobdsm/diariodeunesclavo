@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2810 de esclavitud, 782 de castidad"
+date: 2017-09-24 22:44:00 +0000
+permalink: /2017/09/dia-2810-de-esclavitud-782-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hablando con el Dueño planteó una cuestión interesante en la que no había caído el objeto, o al menos no tanto como en esta ocasión. la principal diferencia entre el porno fetichista y el fetichismo real es que el porno siempre acaba con una penetración y en el fetichismo "normal" o cotidiano, eso no ocurre. un auténtico fetichista no usa los objetos como elementos que le ayuden a tener sexo convencional. los objeto son el fin último del fetichista y el placer viene por otros caminos diferentes del sexo habitual, de ahí que la masturbación sea la forma más corriente de correrse.<br/>incluso cuando el objeto ha eyaculado con el estimulador prostático, lo excitante ha sido tener la jaula puesta y el éxito de la maniobra ha estado en conseguirlo sin orgasmo. es justo lo opuesto al sexo convencional que sería un fracaso si no hubiera orgasmo.<br/>el objeto no es tan tonto como para no saber que una cosa es la realidad y otra una representación de esa realidad con fines comerciales pero el problema es que muchos que se inician en el bdsm lo hacen a través de ese porno y se crean unos estereotipos que luego se buscan en la realidad. es la versión gay fetichista sadomasoquista de la búsqueda del príncipe azul. no, poca gente tiene una mazmorra tan bien surtida, o un cuerpo tan perfecto. no, una sesión no es algo tan limpio y no, no se termina tan bien. no, la luz no suele ser tan perfecta y no, el desarrollo no está tan bien planificado. y sí, cuando estás atado suele ser muy incómodo, el gato o el perro te están mirando y toda la habitación está llena de cosas que has sacado de esa bolsa de deporte donde guardas tu material fetichista. definitivamente una cosa es la realidad y otra lo que vemos en las películas.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

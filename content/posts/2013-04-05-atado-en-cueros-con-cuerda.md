@@ -1,0 +1,10 @@
+---
+layout: post
+title: "atado en cueros con cuerda"
+date: 2013-04-05 12:12:00 +0000
+permalink: /2013/04/atado-en-cueros-con-cuerda.html
+tags:
+  - videos
+---
+
+<div class="separator" style="clear: both; text-align: center;"><object width="420" height="366" class="BLOG_video_class" id="BLOG_video-735c98021e7e6f8b" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=6,0,40,0"><param name="movie" value="//www.youtube.com/get_player"><param name="bgcolor" value="#FFFFFF"><param name="allowfullscreen" value="true"><param name="flashvars" value="flvurl=http://redirector.googlevideo.com/videoplayback?id%3D735c98021e7e6f8b%26itag%3D5%26source%3Dblogger%26app%3Dblogger%26cmo%3Dsensitive_content%253Dyes%26ip%3D0.0.0.0%26ipbits%3D0%26expire%3D1368004218%26sparams%3Did,itag,source,ip,ipbits,expire%26signature%3D20E9C3C08AD1B26B41C52B12CAEEA670E02FB68A.481CE9925EA86B1C64BE687A2B0DC6198B72387D%26key%3Dck2&iurl=http://video.google.com/ThumbnailServer2?app%3Dblogger%26contentid%3D735c98021e7e6f8b%26offsetms%3D5000%26itag%3Dw160%26sigh%3D8nygWK5QB3aDI35Pe86Wu5pX4ww&autoplay=0&ps=blogger"><embed src="//www.youtube.com/get_player" type="application/x-shockwave-flash" width="420" height="366" bgcolor="#FFFFFF" flashvars="flvurl=http://redirector.googlevideo.com/videoplayback?id%3D735c98021e7e6f8b%26itag%3D5%26source%3Dblogger%26app%3Dblogger%26cmo%3Dsensitive_content%253Dyes%26ip%3D0.0.0.0%26ipbits%3D0%26expire%3D1368004218%26sparams%3Did,itag,source,ip,ipbits,expire%26signature%3D20E9C3C08AD1B26B41C52B12CAEEA670E02FB68A.481CE9925EA86B1C64BE687A2B0DC6198B72387D%26key%3Dck2&iurl=http://video.google.com/ThumbnailServer2?app%3Dblogger%26contentid%3D735c98021e7e6f8b%26offsetms%3D5000%26itag%3Dw160%26sigh%3D8nygWK5QB3aDI35Pe86Wu5pX4ww&autoplay=0&ps=blogger" allowFullScreen="true" /></object></div><div style="text-align: justify;">la calidad del video no es muy buena pero merece la pena ver a un esclavo encuerado completamente indefenso atado por su Amo.</div>

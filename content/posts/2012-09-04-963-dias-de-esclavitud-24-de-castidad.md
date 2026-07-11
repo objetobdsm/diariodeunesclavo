@@ -1,0 +1,10 @@
+---
+layout: post
+title: "963 días de esclavitud, 24 de castidad"
+date: 2012-09-04 22:00:00 +0000
+permalink: /2012/09/963-dias-de-esclavitud-24-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">tras salir del trabajo este perro se fue a la facultad. este año pretende dedicarlo a estudiar en profundidad determinados temas y en escribir y pensar, reflexionar. estaba en la cafetería comiendo cuando el Amo me ha ordenado que fuera al baño, me amordazara y le mandara tres fotos. a mediados del mes pasado ordenó que llevara siempre en la mochila algo para amordazarme: un pañuelo o la mordaza de madrid, o cinta. hoy llevaba el pañuelo. este perro fue al baño y obedeció. sacó tres fotos con el pañuelo en la boca, un pañuelo gris por supuesto. luego filmó un pequeño video. el Amo preguntó si llevaba las botas, y este perro sacó dos fotos más con ellas. lo envió todo y el Amo quedó muy complacido y este perro también quedó muy feliz.</div><div style="text-align: justify;">luego el Amo y su perro mantuvieron una conversación donde se establecieron nuevas normas. cuando esté trabajando y estudiando, este perro debe actuar como si estuviera amordazado y no hablar con nadie a menos que se dirijan a él. además siempre que esté en la facultad, deberá tener este perro puesto el cockring, algo que se había convertido en costumbre el curso pasado pero que no había llevado a cabo durante el verano. como el Amo prometió, este año va a estar más pendiente de su perro, controlándolo todo.</div><div style="text-align: justify;">una vez terminada la conversación el Amo ordenó a su perro que fuera al baño a ponerse el cockring que no llevaba puesto y sacara otras tres fotos amordazado. el perro obedeció como siempre, de forma obediente y sumisa.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1851 de esclavitud, 298 de castidad"
+date: 2015-02-07 22:38:00 +0000
+permalink: /2015/02/dia-1851-de-esclavitud-298-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el perro ha vuelto a pensar hoy en el hecho de que la jaula le pinche de vez en cuando, produciéndole dolor, no es un inconveniente sino una ventaja, una oportunidad de ponerse a prueba y de ver hasta donde puede llegar a soportar. no sólo el fetichismo, la obediencia, la sumisión o la castidad forman parte de la vida del perro, ahora su vida de esclavo debe incluir el dolor. existía de hecho, porque obedecer implica cierto grado de sufrimiento; no siempre puedes hacer lo que quieres o deseas si obedeces a un Amo, pero el dolor físico estaba más o menos alejado de la relación.<br/>no fue así al principio. el perro viendo los primeros videos que el Dueño grabó, el dolor estaba presente, a veces muy presente. es algo que siempre estuvo ahí y que ahora el Dueño quiere retomar conscientemente. tal vez influyó el hecho de no ser masoquista, pero eso es irrelevante ahora porque el perro será lo que el Dueño quiera que sea.<br/>de hecho hoy fue el perro a una tienda a acompañar y mientras algunos se probaban, el perro no compró nada, vio su imagen en un espejo y se fijó especialmente en la figura que hacían las botas y, sinceramente, le gustó lo que veía. el conjunto era el de un botero, alguien a quien el propio perro se habría vuelto a mirar o miraría de reojo con lujuría y emoción.<br/>y todo ha sido obra del Dueño, no del perro. definitivamente el perro es una creación del Dueño, una creación incompleta que aún está en proceso y que sigue avanzando por los caminos que abre el Dueño. ahora toca el del dolor. no sabe el perro cuál será el próximo, pero lo recorrerá gustoso si ese es el deseo del Dueño.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

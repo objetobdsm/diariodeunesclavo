@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD ¿por qué no?"
+date: 2023-01-05 09:28:00 +0000
+permalink: /2023/01/fdd-por-que-no.html
+tags:
+  - FdD
+  - castidad
+---
+
+<div dir="ltr"><div style="text-align: center;"><a href="/uploads/0f/21/0f21c02eee3dc4d4efb200853ba7396083d374ddbaa27fb98399f880a776a021.jpg"><img alt="" border="0" height="640" id="BLOGGER_PHOTO_ID_7185839971415542322" src="/uploads/43/38/43387c636f6684bbcbfa99d040efa3546123f12c6395ebd4696504b3ca7296d5.jpg" width="480" /></a><br /></div><div style="text-align: justify;">aunque para el resto de los inferiores, a criterio de sus Amos, la castidad puede ser una opción, en el caso del objeto es obligatoria. de hecho ya es definitiva. después de tanto tiempo enjaulado su apéndice ha quedado disfuncional, lo cual no significa que no pueda ayacular, aunque las últimas veces que el Dueño le ha ordenado al objeto que lo haga esto ha sido incapaz de hacerlo, sino sobre todo por el efecto psicológico. en este caso sí que se puede aplicar el criterio de que, una vez comenzado el camino, raramente hay marcha atrás. cuando la castidad es obligatoria, todo el mundo quiere saltársela, véase el ejemplo de los sacerdotes católicos. sin embargo cuando comienza siendo voluntaria, como la esclavitud, luego no es que se vuelva obligatoria, sino que se vuelve necesaria. eso significa que llega un punto en que sin jaula te sientes desnudo y en el que la mera idea de eyacular produce repulsión y asco. además la castidad aumenta significativamente la obediencia del inferior, su disponibilidad y su devoción. tras eyacular esta desciende considerablemente y ¿a qué Amo le gustaría que esto fuera así? en cualquier forma es posible eyacular sin sentir placer, con lo cual la cuestión médica, cuestionable por otro lado, de que eyacular reduce el número de problemas con la próstata está resuelta. hoy en día un inferior no tiene por qué quitarse la jaula salvo para cuestiones médicas y de higiene, y se la puede poner inmediatamente. por tanto es posible vivir completamente en castidad y obediencia. ¿por qué no hacerlo?</div></div>  

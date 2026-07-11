@@ -1,0 +1,11 @@
+---
+layout: post
+title: "el hábito no hace al monje pero....."
+date: 2009-07-28 07:43:00 +0000
+permalink: /2009/07/el-habito-no-hace-al-monje-pero.html
+tags:
+  - imagenes
+  - leather
+---
+
+<a onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}" href="/uploads/72/ba/72ba92863d78d71898cd9f9eba956595cca31f9b8bde8440a4c9ef9479f8189c.jpg"><img style="float:left; margin:0 10px 10px 0;cursor:pointer; cursor:hand;width: 225px; height: 400px;" src="/uploads/72/ba/72ba92863d78d71898cd9f9eba956595cca31f9b8bde8440a4c9ef9479f8189c.jpg" border="0" alt="" id="BLOGGER_PHOTO_ID_5345972475049003474" /></a><div style="text-align: justify;">ufff, es cierto que el hábito no hace al monje, pero en algunos casos ayuda, como este mismo. rebuscando en mi memoria por mi pasión por el cuero, debo confesar que fue una fijación secundaria. cronológicamente mi primer fetiche fue el bondage. sin embargo pronto derivó hacia las botas y hacia el cuero, que son la triada capitolina de este perro esclavo. buscando una posible relación encontré que en el bondage siempre hay alguien que domina, que lleva el control; y otro dominado y que cede el control. y no hay mejor vestimenta para un controlador que el cuero, ni mejor calzado que unas buenas botas. hecha la conexión los tres elementos se interrelacionan hasta conformarse como una unidad. en cuanto alguno de los tres está presente, mi alma de esclavo se estremece; si están los tres sencillamente mi voluntad desaparece y me vuelvo una marioneta en manos del amo. el siguiente paso fue comprobar lo difícil que era ser un dominante y el respeto que eso merecía por mi parte hacia la gente que lo era. entró en juego entonces el elemento psicológico y mi bdsm se convirtió en algo profundo en mi mente, algo que echó raíces y que no puedo erradicar. otros dirían que lo único que hice fue encontrar o redescubrir algo que ya estaba aquí. da igual, es lo mismo, si fue natural o adquirido poca importancia tiene. el hecho es que está ahí y que no puedo vivir sin eso.<br /></div>

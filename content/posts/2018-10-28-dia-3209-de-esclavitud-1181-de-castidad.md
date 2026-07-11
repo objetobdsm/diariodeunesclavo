@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3209 de esclavitud, 1181 de castidad"
+date: 2018-10-28 22:57:00 +0000
+permalink: /2018/10/dia-3209-de-esclavitud-1181-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">a veces el objeto se pone a pensar y se coloca en determinadas situaciones. es consciente de que el entrenamiento ha llevado al objeto a vivir sin ego, asumiendo que es un objeto y un inferior; y es un hecho sin marcha atrás, definitivo. desde esta perspectiva el Dueño adquiere una dimensión que al objeto se le ha escapado hasta ahora. sin el Dueño el objeto no podría rechazar a cualquier Superior. en este estado la obediencia fluye espontáneamente, con lo cual se convertiría en un juguete de cualquier Superior. actualmente de hecho el objeto tiene que hacer un esfuerzo porque reconoce a los Superiores y si alguno se le acerca, lo puede tratar porque el Dueño lo ordena y porque le pertenece. si no fuera así sería usado, manipulado, controlado por cualquier Superior, por cualquier Dominante. sin El estaría el objeto perdido completamente porque se ha despertado su necesidad de obedecer a los Superiores. actualmente el Dueño focaliza esa necesidad, hasta un punto jamás imaginado por el propio objeto. el Dueño ha dicho al objeto que no debe preocuparse, que ese control es para el resto de su vida. como en la mayoría de las ocasiones una metáfora es la mejor forma de expresar esto. una vez domado un caballo no puede volver a ser salvaje, sino que puede ser montado por cualquier jinete. algo así ocurre al objeto. eso ocurre cuando se destruyen las barreras, se llega a un punto en que no hay barrera y el Dueño es el único agarre que le queda para que la marea de la sumisión profunda incontrolada lo inunda.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

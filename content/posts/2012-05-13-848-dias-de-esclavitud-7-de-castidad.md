@@ -1,0 +1,10 @@
+---
+layout: post
+title: "848 días de esclavitud, 7 de castidad"
+date: 2012-05-13 22:24:00 +0000
+permalink: /2012/05/848-dias-de-esclavitud-7-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">un Amo no te da todo lo que quieres, te da todo lo que necesitas, todo lo que te hace bien. los esclavos nos consideramos seres inferiores, y por eso nos llaman "boys"; "chicos", porque no siempre hacemos lo correcto para seguri avanzando, no sabemos por dónde tenemos que ir. un auténtico Amo, un Amo de verdad, no sólo nos usa para su placer, sino que nos guía para comprender y actuar según lo que somos. nosotros no podemos llegar a esa realidad por nuestros medios, y ellos nos ayudan a conseguirlo. por eso es necesaria la obediencia ciega, porque a veces no entendemos el sentido de lo que nos ordenan, la dirección hacia donde nos llevan. nosotros no lo vemos, Ellos sí. por eso Ellos son superiores y nosotros inferiores, por eso debemos obedecerles, porque ellos nos guían.</div><div style="text-align: justify;">como ha defendido otras veces en este blog este perro, esta situación asimétrica es funcional, no moral. que nosotros estemos por debajo y obedezcamos, no significa que no seamos valiosos, al contrario. ¿alguien considera que su mascosa, su perro o su gato, no es valioso? ¿alguno puede pensar que su coche, que El conduce y lo lleva por donde necesita ir, no tiene valor? a veces se da la situación de que esos animales o esos objetos son más valorados que otras personas. estar debajo, ser inferiores, no nos quita valor, al contrario, un buen Amo sabe lo difícil, y por tanto valioso, que es un buen esclavo. gracias a eso estamos seguros, porque los Amos, un buen Amo al menos, no se deshará de un buen esclavo, de igual forma que no tirará por la ventana, ni regalará al primero que llega, su posesión más valiosa.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

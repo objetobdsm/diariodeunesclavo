@@ -1,0 +1,11 @@
+---
+layout: post
+title: "por qué un AMO nunca necesita disculparse"
+date: 2010-06-18 08:15:00 +0000
+permalink: /2010/06/por-que-un-amo-nunca-necesita.html
+tags:
+  - sumision
+  - blogs
+---
+
+en el blog "El Amo y su esclavo" acaba el esclavo de publicar un texto con este título. me llamó la atención y en cuanto lo leí me pareció interesante así que lo he traducido para publicarlo aquí. al final del texto tienen un enlace al artículo y el blog completo, que merece la pena, está en la lista de blogs de la columna de la derecha. en inglés de llama "themasterandhisslave". espero que les guste. <div><br />"existo por y para mi AMO. he elegido someterle cada aspeto de mi vida. mi libre voluntad es secundaria para EL y EL tiene la autoridad de determinar cada acción, cada proceso de pensamiento, cada elección que tenga que hacer.<br />porque he hecho ese pacto con EL, deposito completa confianza en su habilidad para hacer las elecciones correctas por mi. EL me ama cariñosamente y nunca me pondría en una situación peligrosa. mi vida es simplemente un recipiente para EL.<br />por tanto, el AMO nunca necesita decir que lo siente. EL es humano y puede cometer errores de vez en cuando, pero todo es parte del proceso de entrelazamiento de nuestras vidas juntas de forma tan intensa. todo lo que EL hace debería ser por Sus necesidades y felicidad, y EL tiene el derecho a usarme de la forma que EL considere adecuada. EL nunca necesita disculparse o preocuparse porque yo suy Suyo. EL puede tratarme, usar mi cuerpo y manipular mi mente de cualquier forma porque tiene completo derecho para hacerlo. incluso si EL siente que ha cometido algún error de juicio, EL nunca necesita disculparse porque para eso existo: para dejar que se exprese El mismo, seguir experimentando y crecer.<br /><br />entiendo como un hecho que todo lo que mi AMO hace es por amor. confío en EL entreramente para usarme de la forma que le satisfaga y le haga sentirse completo porque para eso existo. nunca hay ninguna necesidad de que se disculpe por un honor tan maravilloso."<br /><br />puedes ver el texto original en inglés pinchando <a href="http://themasterandhisslave.blogspot.com/2010/06/why-master-never-needs-to-apologize.html">aquí</a>.</div>

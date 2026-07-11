@@ -1,0 +1,10 @@
+---
+layout: post
+title: "985 dias de castidad, 9 de castidad"
+date: 2012-09-26 22:00:00 +0000
+permalink: /2012/09/985-dias-de-castidad-9-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">hoy este perro ha supurado por primera vez desde el último ordeño, hace más de una semana. no sé si cada vez tarda más o menos, la verdad, pero esta vez hay que probar el estimulador de próstata, a ver si consigue este esclavo un ordeño sin orgasmo. de ser así, se ¿abriría una nueva puerta? ¿permitirá el Amo alguna vez que este perro tenga un orgasmo? tal vez la disyuntiva sea errónea porque las últimas veces que se ha ordeñado el orgasmo no ha sido precisamente intenso, mezclado como estaba con el dolor y la contención física y emocional. de hecho casi no recuerda este perro cuando fue la última vez que tuvo un orgasmo en condiciones. creo que fue la última vez que estuvo en presencia del Amo, pero incluso entonces recuerda vivamente cómo le ardían los pezones. las dos últimas veces, cuando este perro de ordeñó a cuatro patas, se añadió además la humillación, que fue intensa. fue un paso más hacia la deshumanización y la animalización. en cualquier otro momento hacer una afirmación de este tipo hubiera asustado a este perro de manera abismal, sin embargo ahora no es así, sino que la acepta y asume como parte de su condición, de su existencia. podría seguir engañándome, afirmando que soy lo que no soy, o peor aún aparentando algo que realmente no siento, pero en estos momentos voy rapado, llevo los genitales afeitados, orino sentado no puedo masturbarme cuando deseo, ni tomar café con quien me apetece sin consultarlo con el Amo. tampoco puedo llevar la ropa que desee, sino la que El ordena, y siempre debo informarle de donde estoy, y de lo que hago. lo sorprendente es que así este perro es feliz.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

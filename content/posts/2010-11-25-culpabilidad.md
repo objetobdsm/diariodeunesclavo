@@ -1,0 +1,11 @@
+---
+layout: post
+title: "¿culpabilidad?"
+date: 2010-11-25 18:08:00 +0000
+permalink: /2010/11/culpabilidad.html
+tags:
+  - reflexiones
+  - personal
+---
+
+<div style="TEXT-ALIGN: justify">esta semana he estado hablando con un amigo que se está iniciando en esto del bdsm. durante mucho tiempo ha tenido fantasías sobre el tema y ahora, por fin, las está haciendo realidad.</div><div style="TEXT-ALIGN: justify">el problema, porque es un problema, es que se siente culpable cuando lo hace. cuando piensa, o mira, o hace tiene un sentimiento de estar haciendo algo malo. como persona creyente, además, ese sensación se trasforma en una conciencia de estar cometiendo un pecado. por supuesto no puedo eliminar ese sentimiento y esa sensación. lo más que puedo hacer es decirle que una de las mejores y más efectivas formas de control es el control de las conciencias.</div><div style="TEXT-ALIGN: justify">desde pequeños nos inducena  establecer unos stándares de lo bueno y lo malo y nos dicen que debemos guiarnos por ellos, independientemente de si no hace felices o nos amputan alguna parte de nuestro ser que nos haría felices.</div><div style="TEXT-ALIGN: justify">a lo largo de la historia ha ido cambiando lo que era bueno o malo. durante siglos la iglesia justifició la esclavitud forzada como un designio divino, y ahora intenta condenar la servidumbre voluntaria cuando no ha habido en el mundo contemporáneo una institución que utilice más la obediencia que la iglesia. </div><div style="TEXT-ALIGN: justify">irónicamente convertirse en un esclaov es someterse a un Amo, pero también "liberarse" de todo aquello que impide que realices tus deseos y aquello que te hará feliz. a veces la iglesia está tan preocupada por predicerse a sí misma que se olvida de predicar aquello para lo que nació. </div><div style="TEXT-ALIGN: justify">querido amigo, Dios te ha creado de una forma, y esa forma está bien, y en la medida en que seas coherente contigo mismo serás feliz y realizarás esa forma en la que Dios te ha hecho. olvidate del resto y busca ser honrado contigo mismo. mientras seas sincero contigo y no hagas daño a los demás creo que no podrá reprocharte nada.</div>

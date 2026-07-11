@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD breath control"
+date: 2022-06-28 08:50:00 +0000
+permalink: /2022/06/fdd-breath-control.html
+tags:
+  - control respiración
+  - FdD
+---
+
+<div dir="ltr"><div></div><div style="text-align: justify;"><a href="/uploads/20/70/207039ce245d2e950bd4aa384f78131bd7b6e0573f13615e29dd150b458b4264.jpg"><img alt="" border="0" height="619" id="BLOGGER_PHOTO_ID_7132177245102440530" src="/uploads/9a/be/9abe5f331bc0151ab0f6c41656ef288cb4f53c88c0c9b941ba9b6f4e46fd43a3.jpg" width="640" /></a></div><div style="text-align: justify;">es cierto que hay una serie de fetiches comunes, que se suceden. pero también es cierto que cada uno lo vive de una manera y al ser cualquier cosa potencialmente convertible en un fetiche no se puede poner vallas al campo. los hay que pueden pasar desapercibidos en el mundo vanilla, como el fetichismo por los zapatos por ejemplo, o por los pies, pero algunos, los más radicales, necesitan de una negociación y un consentimiento explícito. entre estos está el breath control, el control de la respiración, que se puede hacer de muchas formas. está el bagging: usando una bolsa; HOM, hand over mouth, utilizando la mano, o sencillamente con cinta aislante o con una cuerda o un cinturón. es una práctica muy arriesgada porque es muy fácil pasarse y hay gente que ha muerto practicándola. pero tal vez precisamente por eso es una de las más potentes a la hora de expresar el control y la sumisión. el inferior está completamente indefenso y desarmado y entrega al Dominante lo más preciado que tiene, su propia vida por medio de la respiración. sin aire no se puede vivir y cuando alguien toma el control de cuando y como respiras, está tomando el control de tu propia vida. al Dueño le gusta mucho practicarlo y el objeto ha vivido en primera persona esas sensaciones. son fuertes, intensas y producen, cuando teminan, un profundo sentimiento de adoración y sumisión. el breath control es sin duda uno de los caminos más directos para el alma de un esclavo.</div></div>  

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2680 de esclavitud, 652 de castidad"
+date: 2017-05-17 22:40:00 +0000
+permalink: /2017/05/dia-2680-de-esclavitud-652-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">402 nunca pensó, antes de comenzar el camino de sumisión en el que está, que los objetos tuvieran tanta importancia y significaran tanto. entiende que por eso es un fetichista, precisamente porque los objetos producen excitación sexual, pero siempre fueron el cuero, las botas, una cuerda, etc. el hecho de que la jaula tenga los efectos físicos y psicológicos que tiene le resultan, como mínimo, extraños y sorprendentes. ha llegado este objeto a un punto en el que, cuando no la tiene puesta porque la está lavando, se siente desnudo, como si le faltara algo. cuando siente algún tipo de ansiedad o nerviosismo en la no-vida basta tocarla o rozarla para que esta sensación desaparezca. se puede decir que ya no puede vivir sin ella. el motivo para 402 es evidente, se ha convertido en el símbolo de su pertenencia al Dueño. 402 es un objeto propiedad del Dueño y la jaula sella este hecho. porque para ambos ya es inconcebible estar sin la jaula, vivir sin ese trozo de silicona entre las piernas, que algún día es o puede ser sustituído por una de metal o no. 402 sabe que al Dueño le repugna cualquier atisbo de humanidad de 402, empezando por el sexo y llegando incluso a la piel, por eso quedó tan fascinado con el traje de latex, porque esa es la auténtica piel de un objeto. vivir sin jaula es inadmisible, igual que imaginarse a un 402 sin Dueño, o tomando decisiones. todo esto va íntimamente unido y ya no hay salida posible. en estos días donde hay tanta agitación en la no-vida de 402, acudir a este pensamiento es uno de los pocos refugios que ayudan a este objeto a seguir adelante.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

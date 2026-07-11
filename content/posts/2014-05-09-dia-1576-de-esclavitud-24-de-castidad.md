@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1576 de esclavitud, 24 de castidad"
+date: 2014-05-09 22:56:00 +0000
+permalink: /2014/05/dia-1576-de-esclavitud-24-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el perro ha tenido que imponerse en su no-vida. van a producirse cambios en el trabajo y mucha gente se está posicionando para conseguir lo que parece que todo el mundo quiere: poder. es una auténtica especie de obsesión, conseguir poder, algo, aunque sea lo mínimo. el perro intuye que es porque parece ser la única forma en la que la gente se siente bien, si creen que controlan, que tienen poder. tal vez por eso el perro vive lo contrario: solo quiere vivir sin poder, no tener control ninguno, que el Dueño decida en todo, y sobre todo.<br/>por tener una visión diferente el perro ha tenido que marcar terreno. "Nadie te pisa salvo y aquellos a los que yo dé permiso para hacerlo", ha ordenado el Dueño, y el perro obedece. por tanto imponerse no es un acto de control sino lo contrario, de obediencia.<br/>aún así esto no se hizo sin tensión y al llegar a casa el perro pensó que en otra vida, en otra época, en otro momento, se hubiera pasado la tarde con la polla en la mano o teniendo sexo si hubiera tenido la posibilidad, porque era su forma de desahogarse. hoy, sin embargo, el perro ha pasado la tarde sujetando la jaula de metal que tiene en la entrepierna. vivir en castidad por obediencia al Dueño no anula el deseo, que vuelve a aparecer de vez en cuando, pero hoy el tacto de la jaula tranquilizó al perro y hasta podría decir que le produjo cierto place, satisfacción.<br/>es en momentos como este cuando el perro se da cuenta cómo ha cambiado su vida en los últimos años, desde que el Dueño lo encontró y lo tomó como de su propiedad. muchas cosas son ahora diferentes y muchas más lo serán a partir de ahora. esto no tiene marcha atrás, no hay otro camino para el perro.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

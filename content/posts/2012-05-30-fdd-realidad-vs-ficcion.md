@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD realidad vs ficción"
+date: 2012-05-30 06:21:00 +0000
+permalink: /2012/05/fdd-realidad-vs-ficcion.html
+tags:
+  - leather
+  - FdD
+---
+
+<br /><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/72/f2/72f203a264c5cbd4bc4a48a9bf1fa8b6159948328287a314ab64f2ec6f3f9a0e.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/72/f2/72f203a264c5cbd4bc4a48a9bf1fa8b6159948328287a314ab64f2ec6f3f9a0e.jpg" width="426" /></a></div><div style="text-align: justify;">últimamente el asalta a este perro la idea de que el pensamiento precede a la realidad. mucahs veces las situaciones las creamos en nuestra mente antes de que ocurran y así determinamos, en cierta forma, su desarrollo posterior. es muy probable que si vivimos anticipadamente una experiencia como negativa, efectivamente acabemos metidos en una situación que nos es agradable, y viceversa. </div><div style="text-align: justify;">en el mundo bdsm pasa algo parecido. normalmente nuestro primer acercamiento es mediante fotos, películas y relatos que nos van dando fuerzas hasta que podemos concertar un encuentro real cara a cara. esto es una ventaja porque los deseos bdsm, los fetiches, no son bien aceptados y es necesario pasar por un proceso de descubrimiento: ver que otros sienten y piensan como tú. sin embargo esto tiene una contrapartida, pensar que todo el mundo bdsm es una especie de película porno o tios perfectos, que los Amos no tienen defectos o que los esclavos están dispuestos a cualquier cosa desde el primer momento. la madurez llega cuando te das cuenta que no es así, que cada uno es como es y hay que aceptarlo así, que los actores de las pelis porno son eso, actores, pero a la vez que puedes vivir lo que allí encontraste y disfrutaste. que tu esclavo tiene dudas y tu Amo no es un tio cachas? que tienes miedo a que te amordacen y tu Amo te pregunta qué quieres cenar? nada de eso es importante mientras se tenga bien claro la posición de cada uno. el peligro es dedicarte a buscar vivir una película que sólo existe en tu imaginación. es posible vivir una relación de Dominación/sumisión, hay Amos y hay esclavos que desean vivirlas, hay gente como tú en alguna parte. la cuestión es encontrarlos y aceptar la realidad tal y como es.</div>

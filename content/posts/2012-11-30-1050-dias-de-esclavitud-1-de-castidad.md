@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1050 dias de esclavitud, 1 de castidad"
+date: 2012-11-30 21:41:00 +0000
+permalink: /2012/11/1050-dias-de-esclavitud-1-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">este perro ha entrado en contacto con otro sumiso, bueno realmente sólo puede decir que es amante del cuero. de hecho sólo hay dos personas en toda gran canaria, que este perro conozca, que tengan tanta pasión por el cuero y sean tan fetichista. además de eso tiene una gran cantidad de material. sin embargo eso no es suficiente. este perro, el Dueño lo sabe, tiene una tendencia con respecto a otros esclavos. el perro siempre ha deseado enseñar, orientar, e incluso entrenar otros esclavos para el Amo, para el Dueño. otro aspecto de esta dimensión es ayudar a los esclavos a descubrir sus deseos e impulsos, a comenzar el camino y a que estén lo mejor preparados posibles para cuando su Amo los encuentre.</div><div style="text-align: justify;">el caso de hoy es diferente. como fetichista es increíble, como sumiso y esclavo deja mucho que desear. no son identificables, ni simultáneas. alguien puede ser muy fetichista de algo pero escasamente sumiso. el Dueño es uno de los mayores fetichistas de botas que conozco, pero no tiene ni un ápice de sumisión en sus venas. el problema de este conocido de hoy es que él se presenta como sumiso, e incluso esclavo. es esta aparente "incoherencia" lo que echa para atrás a este perro para mantener más contacto con él. el perro cree que lo que hay de fondo es una no aceptación de su situación y de su condición. su vida es todo dominación, control, órdenes, y en el fondo creo que desea dejar todo eso, pero no es capaz de hacerlo. el cuero le ofrece esa oportunidad pero un maniático del control no puede ser esclavo, a menos que sepa renunciar precisamente a ese control.</div>obediencia ciega para el esclavo, poder absoluto para el Amo.<br />

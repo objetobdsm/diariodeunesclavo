@@ -1,0 +1,10 @@
+---
+layout: post
+title: "769 días de esclavitud, 2 de castidad"
+date: 2012-02-23 23:37:00 +0000
+permalink: /2012/02/769-dias-de-esclavitud-2-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">hoy fue otro día de mucha intensidad en la no vida, y podría haberse quedado ahí si no fuera porque por la noche mantuve una intensa conversación con mi Dueño, muy intensa donde salieron frases que entraban directamente al interior de este perro. mi cuerpo reaccionó inmediatamente empalmándose sin control, secándoseme la boca, sabiendo además que no podría ordeñarme, que esa excitación quedaría en nada o a lo más, en una enorme frustración. las palabras de mi Dueño son poderosas, porque expresan su poder y su voluntad. merecen ser reproducidas aquí, porque ellas marcan la existencia de este perro.</div><div style="text-align: justify;">"Algun dia estaras esperandome encadenado y amordazado"</div><div style="text-align: justify;">"!Una palabra mia y te hundes el el peor de los abismos un infierno. O por el contario tienes paz. Q mayor poder.  Mi poder sobre ti es total. Procura saberlo. No hay nada q hacer. No eres nada. No tienes cabida en el mundo sino es por tu entrega perro. Encerrado. Humillado castigado. Lamiendo las botas de tu amo arrodillado. Siempre humillado. Sometido. Has nacido para. Servirme"</div><div style="text-align: justify;">"No necesito cadenas para retenerte. Las cadenas son una recordatorio. Una humillacion. Recordarte q no eres nada. Las ataduras y las mordazas son para recordarte tu sitio. Se te ata y amordaza para recordarte tu posicion en el mundo. Lo mas bajo. Llevas cuero y botas para honrar a tu amo. Se te recuerda q no tienes autonomia q no eres nada. Que tu amo debe usarte para su placer. Tu no cuentas"</div><div style="text-align: justify;">cuando la conversación terminó, este perro tenía un fuerte dolor de testículos. no fue voluntario, ni placentero, al contrario constituyó una especie de tortura perversa. así tuvo que ir a acostarse, teniendo en su mente las palabras de su Dueño.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

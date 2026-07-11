@@ -1,0 +1,10 @@
+---
+layout: post
+title: "dos experiencias"
+date: 2009-12-22 18:18:00 +0000
+permalink: /2009/12/dos-experiencias.html
+tags:
+  - reflexiones
+---
+
+<div style="text-align: justify;">hoy he <span class="blsp-spelling-error" id="SPELLING_ERROR_0">tenido</span> una experiencia doble. por un lado tuve una <span class="blsp-spelling-error" id="SPELLING_ERROR_1">conversación</span> con un Amo que ha demostrado comprensión, suspicacia, capacidad de escucha, búsqueda de lo mejor, etc.  por otro lado he conversado con un sumiso que nunca deja de controlar, un <span class="blsp-spelling-error" id="SPELLING_ERROR_2">autoafirmado</span> esclavo que se mueve a impulsos de polla. ha sido la noche y el día, y me ha servido para darme cuenta de muchas cosas. la primera, y por ello supongo que la más importante, es la necesidad de ser sincero con uno mismo. el <span class="blsp-spelling-error" id="SPELLING_ERROR_3">bdsm</span> es, para mi, un proceso de abandono de fantasmas, de <span class="blsp-spelling-error" id="SPELLING_ERROR_4">autodescubrimiento</span>, de renuncia a falsas <span class="blsp-spelling-error" id="SPELLING_ERROR_5">autoimágenes</span>. significa aceptar lo que eres y ser <span class="blsp-spelling-error" id="SPELLING_ERROR_6">sincero</span> con uno mismo y con <span class="blsp-spelling-error" id="SPELLING_ERROR_7">los </span>otros, aún a riesgo de equivocarme. es preferible equivocarse mil veces que no intentarlo y quedarse con falsas seguridades.</div><div style="text-align: justify;">me molestó ese supuesto esclavo <span class="blsp-spelling-error" id="SPELLING_ERROR_8">dispuesto</span> a cualquier cosa con tal de tener una <span class="blsp-spelling-corrected" id="SPELLING_ERROR_9">sesión</span>. no es ese el camino. la sinceridad implica que se puede estar equivocado y que otro, que no eres tú, puede tener razón.</div>

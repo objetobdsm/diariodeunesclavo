@@ -1,0 +1,10 @@
+---
+layout: post
+title: "987 dias de castidad, 11 de castidad"
+date: 2012-09-28 07:00:00 +0000
+permalink: /2012/09/987-dias-de-castidad-11-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">a este perro le resulta extraño estar en la facultad con el cockring puesto. es lo primero que hace al llegar, por orden del Amo. en la biblioteca, en clase, hablando con los compañeros, siempre lo llevo puesto y eso produce una profunda sensación de humillación... pero nadie lo sabe, nadie es consciente de eso, salvo este perro. incluso este perro a veces se olvida que lo lleva, pero entonces un movimiento, que puede ser sencillamente sentarse en una silla, o un giro, subir una escalera tal vez, hace que vuelva a sentir la presión y entonces recuerde lo que soy, y a quien pertenezco. la verdad es que no puedo dejar de maravillarme de cómo el Amo va tejiendo alrededor de este perro, incluso en la distancia, una red que no le permita escapar. puede ser el cockring por la tarde o que cada vez que vaya al baño tenga que sentarme, lo cual sigue siendo humillante, o tener que comunicar siempre donde estoy, o suplicar permiso para cualquier cosa.</div><div style="text-align: justify;">sin embargo este perro se siente que está fallando, que no está siendo todo lo diligente que debiera ser. es algo muy sutil, muy ligero, casi imperceptible, y consiste en dejar pequeñas parcelas de control de forma que no sienta que realmente todo no depende de este perro. es un mecanismo del ego del que este perro ha tomado conciencia esta semana. el Amo puede ordenar o sugerir algo, y sencillamente, lo dejo correr. no se deosbedece, pero tampoco se obedece estrictamente. es un juego inconsciente pero muy peligroso, porque es una grieta en la sumisión y en la obediencia. </div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo</div>

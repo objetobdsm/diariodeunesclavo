@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1627 de esclavitud, 75 de castidad"
+date: 2014-06-29 22:58:00 +0000
+permalink: /2014/06/dia-1627-de-esclavitud-75-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">mañana se hará público el nombramiento del perro y habrá reacciones para todos los gustos, supone el perro. habrá gente que estará de acuerdo y le gustará, habrá gente que no esté de acuerdo y no le gustará y habrá algunos para los que será indiferente. lo extraño es que eso no pone nervioso al perro. en su vida cotidiana, la mayoría de la gente está pendiente de lo que pensarán los otros, de lo que los otros dirán de ellos, de la imagen que tengan de uno. todo eso no son más que cosas que provienen del ego, de esa parte de nosotros que quiere hacernos creer que somos de una manera determinada y que los otros nos pueden decir lo que valemos. esta "dependencia" de los otros es lo que nos hace infelices y nos produce malestar.<br/>sin embargo el perro depende de una sóla persona, su Dueño. esta dependencia es mal vista por psicólogos, psiquiatras y más personas dedicadas a la "salud mental". sin embargo esta dependencia, libremente asumida, por otra parte, es la que permite que no dependas de las opiniones de los demás más de lo justo y necesario para vivir en sociedad. este matiz es importante porque no voy a hacer nada que impida esta vida en sociedad, pero hace que, por ejemplo, no esté nervioso por lo que puedan pensar los compañeros del perro mañana. esto lo sabe muy bien el Dueño, que ha dicho que gran parte del mérito, si no de todo, del nuevo nombramiento es suyo, y el trabajo que está haciendo con el perro.<br/>por eso el perro no puede sino arrodillarse y agradecer al Dueño ese trabajo. sin El no habría llegado a donde está, y lo que es más importante, no llegará a donde se encamina.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

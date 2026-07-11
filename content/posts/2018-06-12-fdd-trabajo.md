@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD trabajo"
+date: 2018-06-12 10:07:00 +0000
+permalink: /2018/06/fdd-trabajo.html
+tags:
+  - FdD
+  - leather
+---
+
+<img class="aligncenter size-full" src="/uploads/57/49/574910efd1e94d1263534523cd5db54a5e28dbc759d99f08a1e90f33d3c439fe.jpg" width="564" height="846" /><br/><p style="text-align:justify;">como muy bien saben los lectores del blog al objeto le gustan las imágenes que tienen contradicciones en sí misma y una de las principales es cuando se combinan elementos urbanos con rurales, cuando aquello que normalmente se encuentra en la ciudad aparece en el campo o en un contexto natural, y este es el caso. sin embargo a esto le gustaría ir más allá y buscar un significado en la imagen. ese es el sentido de la Imagen del Día, no quedarse en lo puramente estético, en lo excitante o no que es la fotografía. es cierto que estamos ante un lederón, eso es evidente, pero más que encontrarse en un bosque, llama la atención el pico que lleva en las manos. normalmente uno va con esta estética a divertirse, a pasarlo bien de noche, no siendo una ropa que normalmente llevarías a un trabajo físicamente duro. sin embargo si lo vemos como una metáfora lo que está indicando es que, realmente el bdsm es divertido pero tiene más de trabajo duro que de entretenimiento. decir que un inferior lo pasa mal y no siente placer sirviendo sería un error, porque no es así, pero es cierto que muchas veces servir es un trabajo muy duro y requiere mucho sacrificio. a veces incluso podría parecer que es preferible trabajar picando piedras que estar siempre disponible y obediente. pero igual que el trabajador recibe al final del día su salario, el inferior recibe mucho más, porque es él mismo el salario, el beneficio. el bdsm es una inversión de los Superiores en los inferiores, para revalorizarlos, para hacerlos más valiosos cada día en cada momento, con cada orden. y de igual forma, cada falta de diligencia, cada falta de compromiso lleva a una infravaloración del inferior y a un menosprecio del esfuerzo del Amo. todos nuesrtos esfuerzos deben estar encaminados a que eso no pase nunca.</p>

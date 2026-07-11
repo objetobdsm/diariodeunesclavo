@@ -1,0 +1,8 @@
+RESUMEN RESOLVER BLOGGER RESTANTES
+============================================================
+Posts del CSV: 10
+Reemplazadas: 0
+No encontradas / no resueltas: 10
+
+CSV reemplazadas: /home/gustavo/Escritorio/Descargas/blogger2static/migration_blog/salida_resolver_blogger_restantes/reemplazadas.csv
+CSV no encontradas: /home/gustavo/Escritorio/Descargas/blogger2static/migration_blog/salida_resolver_blogger_restantes/no_encontradas.csv

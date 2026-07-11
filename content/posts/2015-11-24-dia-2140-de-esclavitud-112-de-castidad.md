@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2140 de esclavitud, 112 de castidad"
+date: 2015-11-24 22:39:00 +0000
+permalink: /2015/11/dia-2140-de-esclavitud-112-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">por fin ha llegado el frío y éste ha venido con sorpresa. hoy, en una reunión en el trabajo, el perro se ha encontrado con un compañero que ha venido con una chaqueta de cuero, de cuero bueno, del que huele a distancia, y se ha dado cuenta, además de que llevaba botas. eran unas botas de vestir, como de materia flexible, de esas que llegan hasta justo por encima del tobillo. nada en comparación con las sendras que lleva el perro, pero se le vino a la mente que, por eso, y por la actitud, tal vez estuviera ante un Amo. desde luego a veces tiene actitudes dominantes, así que se le podría catalogar como alpha.<br/>no, no hay peligro de que ocurra nada. el Dueño tiene bien sujeto al perro por la correa. y aunque así no fuera, la entrega no significa nada si no es puesta a prueba y ésta se supera. mantenerte fuera de toda tentación es imposible porque, para el esclavo, incluso estar sólo es parte de la tentación; tentación de masturbarte y buscar la satisfacción desobedeciendo al Dueño.<br/>negar que el perro se ha fijado en este compañero de trabajo es mentir al Dueño, ocultarle cosas, no decirle la verdad, en definitiva, desobedecerle. el perro lo pone delante del Dueño y El decidirá qué debe hacer el perro. SU poder reside en que el perro no hará nada que no desee el Dueño, nada que El no ordene. su vida está en sus manos. el perro sabe que no pasará nada, pero si el Dueño quiere que el perro no vuelva a dirigirle una mirada, no lo mirará. si ordena que no le hable directamente salvo cuando sea necesario, no le hablará. en eso reside su control, y además así debe ser y así el perro es feliz.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

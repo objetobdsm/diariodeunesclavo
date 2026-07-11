@@ -1,0 +1,10 @@
+---
+layout: post
+title: "secuestro II"
+date: 2010-11-06 09:51:00 +0000
+permalink: /2010/11/secuestro-ii.html
+tags:
+  - ficción propia
+---
+
+<div style="text-align: justify;"><div style="margin-bottom: 0px; margin-left: 0px; margin-right: 0px; margin-top: 0px;">sólo salieron gemidos. por respuesta recibió un par de patadas en las costillas, y un pinchazo que lo sumió en la oscuridad. cuando volvió en si se había encontrado  sujeto por unas correas a una silla. eran anchas y le obligaban a tener los brazos bien pegados a la silla y los pies sujetos a sus patas. además sintió unas fuertes correas en el pecho, los muslos y el cuello que casi no le permitían moverse. lo primero que pensó fue que eran unas sujeciones muy raras para unos vulgares secuestradores.</div></div><div style="text-align: justify;"><div style="margin-bottom: 0px; margin-left: 0px; margin-right: 0px; margin-top: 0px;">abrió los ojos pero no pudo ver nada, tenía unos antifaces sobre ellos que le impedían ver. también notó su boca sellada con una mordaza que metía algo en su boca. aún estaba aturdido y en un estado de semiinconsciencia, pero poco a poco fue recuperando la sensibilidad y se dio cuenta que todo su cuerpo estaba recubierto con un material extraño al tacto. primero pensó que estaba denudo pero luego comprobó que no era así. algo le cubría desde los pies a la cabeza y fuera lo que fuese se ajustaba perfectamente a su cuerpo: los dedos, el pecho, incluso su polla estaba en contacto con ese material que parecía apretar todas y cada una de las partes de su cuerpo. lo sentía por toda su cara, por toda su cabeza. de pronto se sintió agobiado, una especia de ataque de claustrofobia lo inundó. aquello no era normal, fuera lo que fuese, aquello no era un secuestro como lo había visto en las películas o se suponía que tenía que ser. sintió de nuevo pánico y comenzó a gritar y a agitarse. no consiguió nada.</div></div>

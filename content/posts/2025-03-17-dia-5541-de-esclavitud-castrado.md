@@ -1,0 +1,10 @@
+---
+layout: post
+title: " día 5541 de esclavitud, castrado permanentemente"
+date: 2025-03-17 23:14:00 +0000
+permalink: /2025/03/dia-5541-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;">un día relativamente tranquilo porque aunque el objeto tuvo formación por la tarde no ha tenido que viajar quedándose en la misma isla. por la mañana estuvo trabajando y por la tarde fue a la formación y le ocurrió lo que no le había pasado hasta ahora. una persona se levantó enfadada en medio de la formación y se marchó. resulta que formaba parte de una secta cristiana bastante conservadora y no le gustaba lo que estaba diciendo el objeto sobre la libertad que debería tener todo el mundo para vivir su identidad y su sexualidad como quisiera. uno de los otros participantes dijo al objeto cuando terminó que le extrañó mucho que viniera a una charla sobre este tema, y otro que había aguantado mucho para lo que ellos esperaban, así que ya se había señalado como alguien peculiar. esta experiencia le sirvió al objeto para dos cosas. la primera es para darse cuenta que, en otras circunstancias, esto le habría sentado fatal al objeto: se habría sentido mal y responsable y habría estado dos días dándole vueltas al asunto. la segunda cuestión es ver la hipocresía de unas personas que reclaman respeto para sus creencias pero luego no se cortan en decir que quienes tenemos una sexualidad no normativa somos enfermos y vamos a arder en el infierno, justificando ideológicamente a aquellas personas que agreden a los que son, ni piensan, ni creen como ellos. el cambio entre el antiguo objeto y el actual objeto no es otro que la labor que mi Señor ha hecho entrenando a su objeto como Él quiere, haciéndolo más fuerte y haciendo que no le cause ningún problema una situación como esta.</p><p>sumisión en silencio, castidad y obediencia ciega</p>

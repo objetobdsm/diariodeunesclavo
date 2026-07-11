@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2641 de esclavitud, 605 de castidad"
+date: 2017-03-01 22:30:00 +0000
+permalink: /2017/03/dia-2641-de-esclavitud-605-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">ayer estaba 402 en el trabajo pero sin poder usar el móvil. cuando entra lo último que hace con él es mandar el mensaje de saludo que envía al Dueño todas las mañanas. en un momento de descanso pudo mirarlo y vio que tenía varios mensajes de vuelta del Dueño. básicamente le ordenaba comprar un cd a través de internet como una ofrenda para su persona. de vez en cuando el Dueño concede a 402 el privilegio de ofrecerle algo que quiere o desea y entonces lo compra por internet y se lo envían directamente a madrid. no es algo que ocurra a menudo pero cada vez es más común.<br/>la dominación y el control que ejerce el Dueño sobre su objeto es total, e incluye por supuesto el dinero aunque siempre es un tema complicado. últimamente nota 402 que proliferan los cashmasters, aquellos alphas que por internet ejercen un control a través del dinero. los sumisos les hacen ofrendas de dinero, a veces de sumas cuantiosas, sólo para sentirse humillados por eso. el caso del Dueño es diferente. no encuentra especial placer en la dominación financiera. sabe que 402 es de su propiedad y, por tanto, todo lo que 402 tiene, sabe o puede ganar en el futuro también le pertenece. es su privilegio y su derecho. porque en una relación de D/s asimétrica como esta, el Dueño tiene todos los derechos y 402 ninguno. lo que vive este objeto únicamente es porque el Dueño así lo desea y así se lo concede.<br/>llevaba mucho tiempo 402 sin afeitarse los genitales y hoy lo hizo tras suplicar permiso al Dueño y concedérselo. tardó poco pero tenía bastante pelo. cree que es algo en lo que se ha dejado ir y tiene que poner remedio.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

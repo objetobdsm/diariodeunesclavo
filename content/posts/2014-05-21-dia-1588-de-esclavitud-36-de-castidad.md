@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1588 de esclavitud, 36 de castidad"
+date: 2014-05-21 23:39:00 +0000
+permalink: /2014/05/dia-1588-de-esclavitud-36-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">la jaula ha pesado hoy bastante, y no lo dice el perro en un sentido metafórico, sino real. la jaula de metal pesa más que la de plástico, eso es obvio, pero además hoy el anillo más pequeño no ha sido suficiente para sujetarla. o se ha salido pero el perro cree que, de haber, podría incluso ponerse uno más pequeño.<br/>el perro tuvo que ir muchas veces al baño a recolocársela y a ponérsela bien porque presionaba los testículos. cada vez que lo hacía el perro entraba en una especie de mini-subspace, de recordatorio de lo que es, y salí del baño renovado.<br/>además estuvo toda la mañana en el trabajo y la tarde en la facultad por lo que no pudo quitarse la ropa ni un minuto en 15 horas. todo ese tiempo con la jaula y las botas.<br/>además como ya está empezando a hacer calor, el pero bebe mucha agua y tiene que ir, consecuentemente, al baño.<br/>con respecto a eso el Dueño ha dicho al perro que desea que lleve las botas, a pesar del calor, hasta el último día de trabajo antes de las vacaciones. esto no tiene un sentido práctico, o de castigo, sino simbólico. el perro cree que el Dueño quiere que lo haga como una forma de autoafirmación frente a todos aquellos que han intentado pisar al perro y no lo han conseguido gracias al Dueño y a su orden de que nadie pisa al perro, salvo El y aquellos a quienes El de permiso.<br/>la idea de tener toda la vida organizada, regulada y controlada por el Dueño ha vuelto a aparecer hoy en la mente del perro, y el perro se ha sentido muy bien con ella. es lo que siempre ha buscado y deseado por fin lo tiene, no plenaente, pero en camino de serlo.<br/>por la noche el Dueño mandó al perro cuatro fotos. en madrid estaba lloviendo y salió a cenar con las botas altas negras de goma. "deberías estar aquí", ponía en una de las fotos, y el perro no pudo más que contestar: "debería dormir hoy bajo esas botas".<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "614 días de esclavitud, 38 de castidad"
+date: 2011-09-21 22:29:00 +0000
+permalink: /2011/09/614-dias-de-esclavitud-38-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">otro día absorbido por las circunstancias cotidianas de la no-vida. todo se va en resolver problemas, buscar soluciones, afrontar situaciones.... hasta para ser esclavo se necesita cierta infraestructura, porque si no es así, entonces tienes que tomar decisiones constantemente. hablaba por la noche con un hermano perro y salía el tema de como cada vez este esclavo tiene que elegir menos en las cosas importantes, y sin embargo tiene que seguir tomando decisiones en cosas que no lo son aunque para el resto del mundo si lo sean. las cosas de la no-vida a las que se refiere este perro están relacionadas con su trabajo sobre todo, un trabajo de responsabilidad, pero que sólo realizo porque mi AMo así lo quiere. desde la semana pasada me envía mensajes diciéndome que debo honrarle también en el trabajo, y que haciéndolo bien también estoy realizando mi servicio y sumisión. es la única idea que me permite seguir adelante, saber que todo lo que hago es porque El me lo permite y porque El lo quiere. mi hermano perro preguntaba si este era mi camino hacia la esclavitud, y le contestaba que no, que era la esclavitud misma. este perro no está buscando ser esclavo, ya es esclavo, y lo es las 24 horas del día, cuando toma una decisión y cuando se somete a ella, cuando conduce o cuando escribe en el blog, cuando pide permiso al DUeño para tomar un café con alguien o comprar un pen-drive. podemos huir de lo que somos. la mayoría de la gente vive así, en una permanente huída hacia delante. sin embargo este perro ya no puede hacerlo, no es que sea una elección que me honre, es una realidad a la que no puedo escapar. mi Dueño es un espejo del que no puedo apartar la mirada y que no hace más que devolverme aquello que es más íntimo de mi: un deseo irrefrenable de someterme a su voluntad. como decía aristóteles, sólo puedes ser feliz realizando aquello que eres por naturaleza.</div>

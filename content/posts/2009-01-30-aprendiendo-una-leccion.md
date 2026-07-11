@@ -1,0 +1,8 @@
+---
+layout: post
+title: "aprendiendo una lección"
+date: 2009-01-30 04:00:00 +0000
+permalink: /2009/01/aprendiendo-una-leccion.html
+---
+
+<span class="Apple-style-span" style="border-collapse: collapse; font-family: arial; font-size: 13px; "><div style="text-align: justify;">hoy mi AMO me ha dado una lección, que consistió en hacerme caer en la cuenta de una contradicción; la de ofrecerle algo que ya no me pertenece. para abreviar y sin entrar en detalles, le propuse que hiciera con mi cuerpo algo, y me contestó que cómo hacía eso si ya no era dueño de mi cuerpo. fue algo aparentemente simple pero que me desarmó porque me hizo ver que el ego había tomado las riendas. queriendo ser más esclavo de lo que soy me hizo ver que no estaba actuando como uno. lo único bueno fue que no intenté justificarme sino que acepté que todo había sido así. sin embargo no puedo evitar realizar una reflexión porque hay diferencia entre justificar e intentar comprender algo. me vención la tentación, la tentación de pensar que soy el esclavo más esclavo, el mejor, y que además mi sumisión merecía una recompensa, bien en forma de aprobación o de reconocimiento. el sacar a relucir mi contradicción me ha hecho ver que no merezco ninguna recompensa, que no debo jugar a estos juegos psicológico sino pedir humildemente lo que podría necesitar, como hace un perro cuando pide comida, una caricia o atención; y saber que depende únicamente de mi AMO y de su voluntad concedérmelo o no.</div></span>

@@ -1,0 +1,8 @@
+---
+layout: post
+title: "FdD tan cerca y tan lejos"
+date: 2022-07-10 11:18:00 +0000
+permalink: /2022/07/fdd-tan-cerca-y-tan-lejos.html
+---
+
+<div dir="ltr"><div style="text-align: center;"><a href="/uploads/16/94/169467121aa22e53c557297a92e4a10c74fec55a8f1259e14cd3152f14bbee0e.jpg"><img alt="" border="0" height="640" id="BLOGGER_PHOTO_ID_7134658489475393362" src="/uploads/54/e0/54e0d34b38ad9ac6a788c8130d9a4193d98a23d60bff26276657297ceee968e3.jpg" width="433" /></a></div><div style="text-align: justify;">a veces el objeto se ha preguntado como sería tener otro inferior para servir al Dueño. en muchas ocasiones ha hablado del concepto de casa, entendida como todos aquellos que tienen relación con el cabeza de la casa, en este caso el Dueño. sería Él el que establecería la jerarquía. tal vez podría tener un boy, un esclavo y un objeto. o varios objetos, quien sabe. el hecho es que esto no se ha producido, pero viendo la FdD de hoy el objeto no puede dejar de pensar en una ocasión en la que, en uno de sus viajes, el Dueño momificó al objeto al lado de otro esclavo que había ido a verlo. estábamos los dos pegados, pero sin poder movernos. amordazados, de forma que no podíamos compartir nada. estábamos tan cerca y a la vez tan lejos que podríamos haber estado en los dos extremos de la tierra y tal vez podríamos habernos comunicado más. la idea es interesante. dos esclavos sirviendo al mismo Amo, o a varios, pero amordazados todo el tiempo de forma que fueran completamente desconocidos salvo por una cosa, por obedecer las órdenes que les dan. podrían incluso dormir en una misma jaula, pero al no haber comunicación serían como dos extraños, unidos por lo único que importa a un inferior: las órdenes de su Amo.</div></div>  

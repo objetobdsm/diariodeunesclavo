@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD humillación pública"
+date: 2012-08-14 06:16:00 +0000
+permalink: /2012/08/fdd-humillacion-publica.html
+tags:
+  - humillación
+  - FdD
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/1a/40/1a40bf8b1458bf65cffbc2454ba7c0c26cc476c83c653cab2eaf3c4c5ab26f63.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="426" src="/uploads/1a/40/1a40bf8b1458bf65cffbc2454ba7c0c26cc476c83c653cab2eaf3c4c5ab26f63.jpg" width="640" /></a></div><div style="text-align: justify;">la humillación, hemos hablado de ella a menudo en este blog, es una herramienta imprescindible para el entrenamiento de un esclavo. la razón es que es la mejor forma de controlar el ego. el ego es esa imagen que todos tenemos de nosotros mismos y que se va gestando en nuestro desarrollo, convirtiéndose en el peor enemigo de un esclavo, porque se interpone entre éste y su Amo. en el ego está el origen del egoismo, el egocentrismo y la egolatría. básicamente consiste en creer que somos mejores que los demás, especiales, único. realmente lo somos, pero la diferencia es que el ego necesita hundir a los demás para que eso pueda hacerse realidad. en un esclavo ser mejor, especial y único es algo que te lo da el Amo, el Dueño. el ego te hace creer que tienes que serlo a costa de los demás. la humillación te recuerda que eso no es así, que esas ideas no son ciertas, porque tu Amo te valora y te recompensa una vez humillado y esa es la verdadera satisfacción. descubres que, tras lo sentido durante la humillación, te quedas vacio, un vacío que sólo el Amo puede llenar y que es aún más gratificante que esa sensación que te dejaba el ego. nada, absolutamente nada, puede compararse al respecto de otro esclavo, y de los Amos, cuando te presentan ante ellos y obedecer sin rechistar, sin pensar en tí, únicamente teniendo a tu Amo como referente. es casi como una acción sagrada: sacrificas algo para conseguir algo mayor y mejor.</div>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3517 de esclavitud, 1489 de castidad"
+date: 2019-09-01 22:00:00 +0000
+permalink: /2019/09/dia-3517-de-esclavitud-1489-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hay un concepto que cada vez ve el objeto más claro más válido. es el de la esclavitud voluntaria. frente a la esclavitud histórica y a la actual pero no voluntaria, la esclavitud voluntaria se presenta como una alternativa viable a todas aquellos y aquellas que, sin saber por qué y de forma natural, sienten la necesidad de servir y de pertenecer a alguien.<br/>un vistazo a los blogs de internet ponen en evidencia que es una experiencia y una sensación más común de lo que imaginamos. la sociedad moderna estigmatiza y rechaza a cualquier alternativa a sus propios principios, incluso sin considerar la posibilidad de que existan o sean efectivos. la esclavitud voluntaria es uno de esos elementos. para el Amo son evidentes los beneficios pero ¿qué pasa para el esclavo, para el inferior que la vive? en una sociedad que exalta la libertad y el individualismo, la esclavitud constituye una de sus peores aberraciones. sin embargo se elude una realidad histórica que no se cuenta, como que había gente que, voluntariamente se vendía, para mejorar las condiciones de su familia, por ejemplo, o el hecho de que algunos esclavos vivían muy bien, y realizaban trabajos muy elevados y especializados. los preceptores de los hijos de las familias nobles solían ser esclavos.<br/>siempre puede salir alguien que diga que se producen abusos ¿acaso no abusan los bancos de sus clientes? ¿o los seguros? ¿o las multinacionales? ¿o los estados? el abuso está siempre presente en cualquier institución y en esta no es para menos. la clave consiste en identificarlos y evitarlos, por eso es voluntaria.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

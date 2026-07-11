@@ -1,0 +1,13 @@
+---
+layout: post
+title: "FdD almacenado, esperando"
+date: 2025-03-04 10:57:00 +0000
+permalink: /2025/02/fdd-almacenado-esperando.html
+tags:
+  - mordazas
+  - bondage
+  - FdD
+  - latex
+---
+
+<p> </p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/12/17/12179bc6ac05baac4ec308ff6708e1d9ef849954b72ad3fcb84f6324caa3c138.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="1350" data-original-width="1080" height="640" src="/uploads/8f/a4/8fa4f1b1a2a363f461687c1911098a2aa584d7c4e8d49c6be6b4b72374cf82dd.jpg" width="512" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: justify;">la mayoría de los inferiores cuando entran por primera vez en el mundo del bdsm, creen que vana vivir una película porno y que estarán siempre atendidos y usados por el Amo. pronto se dan un baño de realidad cuando se dan cuenta de que la mayor parte de su tiempo es tiempo de espera, que ellos no son el centro sino al contrario, que ocupan un lugar marginal. ser un esclavo significa que el Amo es el centro de todo, que todo gira alrededor suyo: horarios, gustos, agendas, tiempos, deseos, expectativas.... nosotros existimos para Ellos, no al revés. esto parece algo obvio y evidente pero muchos inferiores lo olvidan y se sienten marginados cuando no se les presta la atención que desean. si así fuera el Amo estaría a expensas del esclavo y sería el esclavo quien llevaría las riendas. a eso se llama intentar dominar desde abajo. la realidad de la sumisión es otra, y es que pasarás la mayor parte de tu tiempo esperando, disponible, pero esperando. existirás esperando que tu Amo te mire, desee usarte, te tome en consideración, quiera estar contigo o que le hagas alguna tarea. mientras eso no ocurra estarás almacenado, apartado, esperando. algunos Amos quieren poner a producir a sus esclavos, y les permiten trabajar, o realizar tareas en casa. pero cuando llegan, estando cansados o no, el centro siempre es El, y si el Amo no desea ser molestado, lo único que puedes, y debes hacer, es ir a un rincón y esperar. esto parece fácil pero no lo es. no hacer nada, esperar, requiere una gran disciplina y autocontrol, un fuerte sentido de lo que eres y una entrega difícil de conseguir. no, definitivamente la esclavitud voluntaria no es una película porno. entonces ¿por qué alguien querría vivir así? porque hay seres que no tienen otra forma de realizarse y ser felices.</div><br /><p></p>

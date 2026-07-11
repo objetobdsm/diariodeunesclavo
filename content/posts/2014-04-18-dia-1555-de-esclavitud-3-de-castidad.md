@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1555 de esclavitud, 3 de castidad"
+date: 2014-04-18 22:35:00 +0000
+permalink: /2014/04/dia-1555-de-esclavitud-3-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">día 1555 de esclavitud, 3 de castidad<br/>el Dueño, como siempre, tenía razón. mientras el perro estuvo tras la frontera de tantos días en castidad, no lo echaba de menos, pero ha bastado dos masturbaciones para que lo eche de menos y tenga ganas de volver a hacerlo. esta es una buena razón de peso para mantener la castidad el mayor tiempo posible. ahora el perro tiene que volver a pasar la prueba de las tentaciones, de los deseos, de las calenturas, algo que pensaba había pasado. nunca se vive la castidad plenamente, siempre existe la posibilidad de volver atrás, de retroceder, por eso la tensión hacia delante debe ser constante.<br/>el perro no llega a decir que mejor hubiera vuelto de madrid aún pasando los 100 días de castidad, pero ahora, hoy, ha sentido deseos y muchas ganas de correrse. pensaba que había conseguido un estado permanente de ausencia de deseo, pero fue otra ilusión, igual que pensar que es un esclavo perfeto. cuando el esclavo cree que ha llegado, es cuando debe ponerse en marcha de nuevo. pasa con la sumisión y pasa con la castidad. nunca se llega, siempre se está en camino.<br/>gracias a que está la jaula, que impide que el perro se toque siquiera. ahora se arrepiente un poco de haberse corrido en madrid, aunque fuera orden del Dueño. ahí hay cierta ironía. llega un momento en que masturbarte puede ser el peor castigo que tu Dueño te imponga. una vez vivido en castidad, sabiendo que es su deseo que vivas así, ordenar que te masturbes es como echarte de su lado, como hacerte ver que has obrado mal, en definitiva un castigo.<br/>el perro espera y desea que el Dueño nunca le ordene eso.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

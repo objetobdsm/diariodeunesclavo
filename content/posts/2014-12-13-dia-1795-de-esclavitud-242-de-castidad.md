@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1795 de esclavitud, 242 de castidad"
+date: 2014-12-13 22:37:00 +0000
+permalink: /2014/12/dia-1795-de-esclavitud-242-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">tras la comida de ayer el perro se levantó temprano para trabajar. tiene muchas cosas pendientes y la verdad es que intenta hacerlas todas pero no le da el tiempo. para más inri hoy tenía otra comida. en estos días uno no puede ni hacer la digestión. la cuestión es que, tras suplicar permiso al Dueño y concederlo, el perro tuvo que ir. el problema es que el perro se levantó bastante caliente hoy, y estuvo cachondo casi todo el tiempo, por lo que la jaula fue una auténtica bendición. hay días en que ni siquiera nota el perro que la tiene puesta, y otros en que desearía arrancársela. hoy, sin embargo, agradece que esté ahí porque significa que no cometerá ninguna tontería. es cierto que podría quitársela y correrse, así calmaría sus ansias pero también traicionaría a su Dueño y a su propia naturaleza. ¿para que todo esto entonces? ¿qué sentido tiene?. ninguno.<br/>la comida estuvo bien esta vez no hubo demasiado ego. la gente fue más natural y sencilla.<br/>terminamos pronto y el resto del día el perro se dedicó a trabajar cosas que tenía pendientes. ojalá pudiera haberlo hecho desde una mazmorra, desde una habitación encerrado. es curioso como últimamente le viene eso a la mente al perro. de hecho está entendiendo cada vez más a aquellos que tienen un fetiche por el rollo carcelario, por las celdas, las jaulas, etc. se le está contagiando al perro. no incluye esto el rollito compañeros de celda ni nada por el estilo, pero sí el estar en una habitación con un catre, una mesa de trabajo y poco más. así no le importaría vivir al perro. a muchos les puede parecer duro pero, ¿qué hacen entonces leyendo este blog? estas páginas van precisamente de eso, de la sumisión vivida sanamente, como forma de desarrollo alternativo de lo que realmente eres y te sientes.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

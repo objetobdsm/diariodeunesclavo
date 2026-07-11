@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1571 de esclavitud, 19 de castidad"
+date: 2014-05-04 22:06:00 +0000
+permalink: /2014/05/dia-1571-de-esclavitud-19-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align:justify;"><span style="line-height:1.5em;">hoy es un día típicamente familiar, el día de las madres, otra invención de los centros comerciales para vender. el perro ha salido, con permiso del Dueño por supuesto, con unos amigos por el cumpleaños de uno de ellos. ha estado bien, aunque tuvo el perro que soportar, aún, algún comentario por las botas. ¿qué dirían si supieran que llevaba también la jaula? no lo entendería, y por tanto habría que poner en cuestión eso de que fueran realmente amigos. se supone que tendrían que aceptarlo, y que se alegrarían por mi al saber que pertenezco a alguien, que soy propiedad del Dueño. sin embargo la cruda realidad es que no sería así. ellos no entenderían la vida que el perro quiere llevar, que el perro lleva. considerarían una locura eso de suplicar permiso, eso de vivir enjaulado en castidad, etc. en ese sentido el perro a veces también se siente solo y por eso es necesario la existencia de una comunidad que te entienda, te apoye y te soporte; que te aporte todo lo necesario, en la cual te sientas a gusto. </span></div><br/><div style="text-align:justify;">desde luego lo que es irrenunciable es el hecho de haber llegado a una situación como esta. aunque parezca duro, entre la amistad y la esclavitud, el perro elige la esclavitud. ser encontrado por el Dueño y hacer sido esclavizado por Él es una de las cosas más importantes en la vida del perro, y en estos momentos es una prioridad. traicionar eso, no aceptarlo, sería engañarse y correr el peligro de volver a una situación de pérdida, desconcierto y sinsentido.</div><br/><div>obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

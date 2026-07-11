@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3957de esclavitud, castrado permanentemente"
+date: 2020-11-14 22:06:00 +0000
+permalink: /2020/11/dia-3957de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> no estaba previsto. surgió de pronto, y el Dueño se enfadó con el objeto. el planteamiento del día de hoy, después de una semana bastante complicada a nivel psicológico, emocional, afectivo y de todo tipo, era descansar. estar en silencio y descansar. sin embargo a media mañana surgió una de esas situaciones sociales que el objeto no pudo eludir por el hecho de simular ser humano, y la puso bajo las botas del Dueño. se trataba de ir a comer con unos conocidos y el objeto no encontraba una excusa para no ir. el Dueño le dio permiso pero no le agradó nada. fue una de esas situaciones en las que el objeto tuvo que hacer algo que no le agradaba mucho pero que era "necesario" porque la otra opción hubiera sido peor. fue el precio que el objeto tuvo que pagar por hacerse pasar por humano. hay un dicho muy antiguo que dice que en el pecado está la penitencia y en este caso fue así porque el objeto no sólo no disfrutó en absoluto la comida, de hecho últimamente pocas veces lo hace, sino que se sintió mal por toda la situación. la única cosa que compensó esto fue que, en un momento dado, se sintió humillado, expuesto. hace unas semanas, en una situación parecida, un conocido vio una foto del objeto en el móvil por accidente en la que el objeto estaba con las pinzas puestas y amordazado. hoy, en el grupo que era de cuatro personas, dijo abiertamente que tenía una conversación pendiente con el objeto en referencia a ciertas imágenes que había visto. evidentemente lo hizo en plan irónico para incomodarme, una especie de broma. el objeto sonrió y contestó que cuando quisiera, pero sin duda se refería a esas imágenes. entonces el objeto recordó la orden del Dueño de "salir del armario del cuero", de hacer más visible y explícito en determinados contextos que al objeto le va el bdsm y que es un esclavo sumiso. hoy tuvo ocasión de cumplir esa orden.<br /></p><p>sumisión en silencio, castidad y obediencia ciega.</p>

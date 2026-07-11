@@ -1,0 +1,10 @@
+---
+layout: post
+title: "818 días de esclavitud, 9 de castidad"
+date: 2012-04-12 22:30:00 +0000
+permalink: /2012/04/818-dias-de-esclavitud-9-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">ha sido un día muy duro, durísimo. este perro ha estado en una reunión donde se disputaba quién tenía el ego más grande. ha sido impresionante, sobre todo porque ha comprobado que cuando uno se deja llevar por el ego, sólo consigue dolor, distancia, conflictos, enfretamientos.... luchar por ser el primero, el que siempre lleva razón, el que es más, acaba convirtiéndose en una condena. este esclavo se ha mantenido firme, pero seguro, controlando al ego mientras los otros se destrozaban guiados por él. ha sido todo un espectáculo triste, deprimente, decepcionante. a este perro no le gusta decir esto, pero últimamente se está encontrando en tantas situaciones donde la gente hace esto que la perspectiva del aislamiento en una mazmorra bajo la autoridad de mi Dueño no sólo se vuelve un futuro posible, sino deseable. </div><div style="text-align: justify;">cree este perro firmemente que el bdsm tiene algo que enseñar al resto de la sociedad cosas que ella ha olvidado: unos vínculos fuertes, el valor de la palabra y del compromiso, la riqueza de la confianza absoluta, el mantenimiento de los acuerdos mediante la obediencia, la dependencia de unos y otros, el como nos necesitamos mutuamente, y un montón de cosas más. </div><div style="text-align: justify;">al final de la reunión este perro se ha sentido dolorosamente mal y no me gusta este dolor fruto del egoísmo, el egocentrismo y la egolatría de unos pocos. entonces he pensado en mi Dueño, en como pudiendo tener un ego mayor que todos los asistentes a la reunión, tampoco se deja llevar por él, sino que lo usa para controlar, dominar y adiestrar a este perro y llevarlo a su pleno desarrollo como esclavo, como propiedad. no he podido dejar de admirar este hecho y de agradecer a mi Amo que me haya elegido como su perro-esclavo.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el AMo.</div>

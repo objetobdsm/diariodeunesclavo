@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5800 de esclavitud, castrado permanentemente"
+date: 2025-12-02 23:51:00 +0000
+permalink: /2025/12/dia-5800-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> han pasado dos cosas importantes hoy. la primera es que mi Señor ha recibido unas botas hunter que consiguió por internet y que deberían haber entregado el miércoles o el jueves. al final han llegado hoy y son espectaculares, botas de Amo. mi Señor tiene un fetiche con las botas y ha pasado por las sendra, las de montar y las de goma, y recientemente por las hunter. esto no es una progresión en la que va sustituyendo unas por otras sino que es acumulativo. va añadiendo unas a otras. el objeto no tiene palabras para expresar lo que significa saber que mi Señor es feliz con sus nuevas botas. el sentido de la existencia de un esclavo es la felicidad de su Amo y Señor. todo tiene que estar encaminado a eso, y hoy se ha cumplido en esas botas hunter.</p><p style="text-align: justify;">la segunda cosa que ha pasado hoy es que el objeto se ha puesto botas para ir a la oficina. mi Señor estuvo dialogando con el objeto si se atrevía a ponérselas después de la crisis que ha pasado con la pierna. desde que tuvo que ir al hospital el objeto no se las había puesto y hoy por fin ha sido el día. lo primero le llamó la atención, otra vez, y siempre ocurre, es cuando sale de casa el ruido que hacen las botas en la acera y el asfalto. es un sonido hipnótico para el objeto. esto ha pasado toda la  mañana con ellas y se ha encargado de que salieran en la foto de la comprobación diaria de la castidad. por la tarde estuvo todo el tiempo escribiendo el diario para ponerlo al día y retomar los envíos del boletín.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

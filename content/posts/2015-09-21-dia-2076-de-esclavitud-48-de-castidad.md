@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2076 de esclavitud, 48 de castidad"
+date: 2015-09-21 22:23:00 +0000
+permalink: /2015/09/dia-2076-de-esclavitud-48-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el perro ha terminado esta tarde de leer lo que le faltaba del comic de tagame, y se ha repetido la sensación de ayer: alimentar el cerebro del perro. alguien escribió una vez que, a medida que avanzaba en edad, cada vez leía menos y releía más. algo así sintió el perro hoy porque no era la primera vez que lo leía, pero vio cosas nuevas que antes se le escaparon. en el fondo el comic es duro, porque el Amo le hace al esclavo cosas fuertes que lo violentan, pero esas humillaciones que le hace no son sin sentido sino que tienen una razón: eliminar el orgullo del esclavo, su punto de partida. el orgullo es una creación del ego y un esclavo no puede tener ego, por lo que el orgullo debe ser eliminado. por eso le hace desnudarse en una cabina o delante de su casa antes de dejarlo entrar, o le hace ir por la universidad atado y con distintos objetos metidos en el culo.<br/>el temor a ser descubierto, a pasar vergüenza, a ser humillado, es la motivación del esclavo, porque la humillación es lo contrario al orgullo y de esa forma el esclavo puede darse el permiso de ser quien realmente es. en varias ocasiones el Amo lo dice: el objetivo de todo es hacer que el esclavo sea lo que realmente es.<br/>difícilmente el perro podría encontrar un comic que concentrara tantas cosas de las que está viviendo, incluso la castidad aparece como una parte fundamental del entrenamiento, y el dolor en otra etapa.... casi parece un calco de lo que vive el perro. es una pena que no consiga el volumen 3 traducido. por favor si alguien lo tiene o sabe como conseguirlo que lo ponga como comentario o que envíe el link por correo, porque en la tercera parte hay imágenes muy impactantes y al perro le encantaría poder seguir la historia.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

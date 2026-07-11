@@ -1,0 +1,13 @@
+---
+layout: post
+title: "FdD leather family"
+date: 2025-03-22 02:36:00 +0000
+permalink: /2025/03/fdd-leather-family.html
+tags:
+  - FdD
+  - leather
+  - latex
+  - sumision
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/d1/ae/d1ae60639e286c90181d5e85e79584ead0fa0ae15d2087e70385925c4039aa61.jpeg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="2048" data-original-width="1638" height="640" src="/uploads/c3/48/c348094a0caa5c3a0ffef08a099e2ab1221331eff905e68ded0f8e098f22325c.jpg" width="512" /></a></div><p style="text-align: justify;">en esto consiste todo. esta es la imagen gráfica de toda la filosofía bdsm. uno de pie, otro de rodillas; uno mandando, otro obedeciendo; uno controlando, otro controlado; uno dominando, otro sometido. luego vienen los matices como por qué los dos llevan collar al cuello, un signo inequívoco de ser propiedad de un Dominante. las respuestas pueden ser muchas, que el dominante de la foto está ejerciendo de capataz de esclavos por encargo de su Amo, que está entrenando a otro esclavo para otro Amo, etc. cualquiera que sea la dinámica, y la jerarquía, siempre acabará en un Dominante que no lleve collar, sino que tenga la llave del candado de los que llevan estos dos de la imagen de hoy. esto nos permite ver que las relaciones en el bdsm son jerárquicas, siempre jerárquicas, pero no por eso son sencillas o simples. de hecho pueden ser extremadamente complejas en una "casa", entendida como conjunto de Amos y esclavos que se someten a una autoridad común. en el bdsm suele llamarse leather family, y cuanto más amplia, más compleja, cuando de hecho consiste en abandonar la idea de la "pareja" y empezar a pensar de una manera más amplia, en otras formas de organización y de relaciones. el concepto tiene mucho de vinculación, por lo de familia, pero también de elección, por lo de leather. se trataría de personas que se vinculan voluntariamente manteniendo vínculos similiares a los familiares entre ellos. en castellano tenemos el concepto de casa, que es más grato al objeto porque implica no solo a la familia extensa sino a todos aquellos criados, trabajadores o personal que estaba vinculado con una familia, normalmente nobiliaria. el ejemplo que aparece en juego de tronos está tomado de la vivencia de la nobleza auténtica y creo que es algo que se podría recuperar en el ámbito de habla hispana.</p>

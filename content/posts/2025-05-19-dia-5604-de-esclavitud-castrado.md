@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5604 de esclavitud, castrado permanentemente"
+date: 2025-05-19 22:05:00 +0000
+permalink: /2025/05/dia-5604-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> quien tiene poder, lo tiene. nadie se lo puede negar, nadie se lo puede quitar y para que el objeto no hay duda de que mi Señor lo tiene. y hoy lo ha empleado. el objeto tenía teletrabajo así que no fue a la oficina y se quedó en casa. a primera hora mi Señor comenzó a hablar con el objeto hoy, como siempre, hablamos sinceramente y mi Señor comenzó a hacer un análisis de la situación y haciendo que el objeto hablara y hablara y de pronto mi Señor se puso estricto, a dar órdenes y a ejercer su poder sobre el objeto y el objeto de pronto reaccionó y la angustia desapareció, y la tristeza se disipó. fue como cuando un perro está desbocado ladrando y de pronto el dueño tira de la cadena y el perro se calla, obedece y se pega a la pierna del amo. hoy mi Señor presionó con su bota al objeto y lo sacó del pozo donde estaba, sinceramente el objeto no sabe cómo ocurrió, no sabe que ha pasado. solo sabe que el inicio estaba hundido en un pozo y al final no lo estaba.</p><p style="text-align: justify;">en medio de la conversación el Amo ordenó al objeto que se pusiera los grilletes y la mordaza. al estar trabajando no suele llevarlos pero no había ninguna videollamada programada y se los puso. entonces mi Señor llamó al objeto por videollamada y lo vio en ese estado. El llevaba unas botas altas y allí mismo folló la mente del objeto. fue como si lo sacara de golpe del pozo en el que el objeto había estado durante un tiempo. decir que fue sanador es poco. el objeto no podía creerlo. el hecho es que el objeto pasó el resto del día tranquilo y bajo la supervisión constante de mi Señor.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

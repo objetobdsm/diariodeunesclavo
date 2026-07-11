@@ -1,0 +1,10 @@
+---
+layout: post
+title: "773 días de esclavitud, 6 de castidad"
+date: 2012-02-27 23:30:00 +0000
+permalink: /2012/02/773-dias-de-esclavitud-6-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">mi Dueño me ha ordenado llevar el cockring todas las tardes hasta nueva orden, de forma que sean un recordatorio permanente de mi posición en el mundo: lo más bajo. ya lo llevé el viernes pasado así que sé lo que es. resulta un poco molesto, sobre todo cuando se pinza con los pelos pero espero poder soportarlo. la diferencia es que de una orden se ha convertido en una norma porque este perro debe llevarlo todas las tardes hasta nueva orden. eso significa en todo momento desde que salgo del trabajo, y por supuesto en la facultad. hoy ha costado un poco. al principio es excitante, notar algo alrededor de tus genitales, pero cuando pasa algún tiempo se convierte en una molestia, una especie de tortura. en cualquier caso no te deja olvidar por qué lo tienes puesto y para qué lo llevas.</div><div style="text-align: justify;">además hoy este perro ha empezado a supurar, y de qué forma. estaba en el baño y después de orinar noté una sensación extraña, y salió una gran cantidad. calculé que aproximadamente una cucharada pequeña de cafe. y eso que sólo llevo seis días de castidad. creo que esta vez va a ser muy duro.</div><div style="text-align: justify;">aún así y todo hoy ha sido un día bueno, porque este perro se ha sentido vigilado y controlado por su Amo, incluso en la distancia. siente que está comenzando una nueva etapa, con una nueva dinámica. hoy este esclavo se ha levantado más temprano y ha estado un gran rato con el collar y la mordaza puesta, trabajando en su despacho a solas, sintiendo la sumisión. además en un momento dado se ha puesto las pinzas para empezar a acostumbrarse a su dolor. no las ha soportado mucho porque son duras y este perro tiene los pezones sensibles, pero es el comienzo.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

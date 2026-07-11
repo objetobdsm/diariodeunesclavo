@@ -1,0 +1,10 @@
+---
+layout: post
+title: "988 dias de castidad, 12 de castidad"
+date: 2012-09-29 22:00:00 +0000
+permalink: /2012/09/988-dias-de-castidad-12-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">hoy este perro se ha levantado empalmado, lo que indica que los días de castidad empiezan a hacer su efecto. tal vez sea el momento de probar el nuevo estimulador de próstata, a ver si consigue un ordeño sin necesitar un orgasmo. suplicó permiso al Amo para usarlo en cuanto tuviera oportunidad y ha sido concedido.</div><div style="text-align: justify;">durante casi todo el día este esclavo ha estado pensando en que el orden, la disciplina, lo organizado, debe formar parte de la vida de un esclavo. es un pensamiento que lo ha estado asaltando toda esta semana y ha sido muy recurrente. el esclavo debe tener una vida espartana, sin lujos ni comodidades, pero no porque el Amo no se las pueda dar, o él mismo conceder, sino porque esas cosas alimentan el ego, te hacen creer importante, te hace pensar que mereces determinadas cosas y luego las echas de menos. cuando tienes algo piensas que eres algo, por eso todas las tradiciones que buscan el conocimiento interior, tanto filosóficas como religiosas o de cualquier otro tipo, lo primero que buscan y reclaman es el desapego de las cosas materiales. el monje, el soldado, e incluso el intelectual dedicado a su tarea, tienen pocas cosas, apenas lo que tienen puesto, porque su vida está dedicada a otro fin superior a las cosas corrientes. si poco tienes, menos necesitas: tu comida diaria, no pasar frio ni calor, y poco más, salvo tal vez tener tu mente alimentada por los libros. el esclavo es algo que se debe incluir en esta lista porque sólo desde la austeridad, la disciplina y el orden, podrá llevar adelante su función, la de ser un esclavo obediente y sumiso.</div>obediencia ciega para el esclavo, poder absoluto para el Amo.

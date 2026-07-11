@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2006 de esclavitud, 93 de castidad"
+date: 2015-07-13 22:54:00 +0000
+permalink: /2015/07/dia-2006-de-esclavitud-93-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">siempre uno suele encontrar excusas para casi todo, pero hoy al perro se le han acabado. por la mañana tuvo que volver a la universidad para seguir con el master que terminará a mediados de esta semana, por fin, aunque luego quedará el correspondiente trabajo con lo que no estará de vacaciones realmente el perro hasta fin de mes.<br/>la cuestión es que hoy se ha introducido una novedad en la vida del perro. ha comenzado a ir al gimnasio. hacía mucho tiempo que el perro no lo hacía, por falta de tiempo principalmente, pero la obligatoriedad del perro de mantener en buen estado la propiedad del Dueño se ha impuesto. el tema es hacerlo de forma que se convierta en un hábito, en una costumbre que incluso el perro necesite. en definitiva se trata de hacerse adicto a las endorfinas que produce el cuerpo al hacer deporte. y si de endorfinas se trata ha comenzado hoy porque se lo ha tomado en serio y ha salido del gimnasio con fuertes dolores en muchos músculos. supone el perro, sabe realmente, que mañana las agujetas serán intensas, pero se las ofrecerá al Dueño como una forma de tortura, de ir adaptando el cuerpo al dolor que es el proceso de entrenamiento en el que se encuentra el perro actualmente.<br/>no sabe el perro si es el mejor momento para comenzar con esto. realmente nunca lo es. es una de esas cosas que, o se hace o no se hace. por supuesto el perro tuvo permiso del Dueño primero, no se le ocurriría comenzar algo así y tomar la iniciativa sin decírselo. sólo desea el perro llevar a buen puesto esto y mejorar en su forma física y en su capacidad de aguante del dolor que le espera en el futuro.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2323 de esclavitud, 295 de castidad"
+date: 2016-05-26 22:34:00 +0000
+permalink: /2016/05/dia-2323-de-esclavitud-295-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hoy 402 se levantó cansado, posiblemente por todo el ajetreo de ayer y de la semana en general: el trabajo, la charla, prepararlo todo.... han sido muchas cosas juntas. 402 estuvo trabajando por la mañana en el blog y por la tarde estuvo en casa descansando. a pesar de todo el movimiento, hay cosas que permanecen: la jaula, el llevar la ropa que ha elegido el Dueño la noche anterior, el tener que suplicar permiso para casi todo. etc. son cosas pequeñas pero que tejen una red que mantiene a 402 en un estado de sumisión permanente.<br/>hoy sin embargo pasó algo más. 402 pensó que habla demasiado, que se pasa el día hablando y eso causa un efecto de vacío profundo, pespecialmente siendo un objeto, una cosa, una propiedad. los objetos no tienen derecho a hablar, no merecen a hablar, solo a obedecer. el habla es una cualidad humana y hoy, al llegar a casa después del trabajo, 402 se sintió completamente vacío, sin ánimo, trsite incluso podría decir. desde que es un objeto todo está adquiriendo, de manera muy rápida, una dimensión diferente, nueva, distinta. es como si todo lo anterior hubiera sido una preparación para este momento y a partir de él todo fuera encajando. los deseos de ser apartado del mundo, de ser encerrado, amordazado, silenciado, encadenado... todo lo que recorre este blog de una manera u otra, parece tener sentido ahora, desde esta perspectiva de la objetificación, de la deshumanización, de la naturaleza inferior de 402. y es un proceso que continuará, que seguirá adelante porque no puede ser de otra manera, aunque sólo sea porque así lo quiere el Dueño.</p>

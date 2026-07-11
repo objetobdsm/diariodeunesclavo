@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD el único camino"
+date: 2016-10-27 07:35:00 +0000
+permalink: /2016/10/fdd-el-unico-camino.html
+tags:
+  - bondage
+  - FdD
+  - sumision
+---
+
+<p style="text-align:justify;"><img class="aligncenter" src="/uploads/43/a5/43a5e4922e49d37edfdcf02311db2893f40c76bd834cebde0b73f5de677598b7.jpg" alt="" width="714" height="934" /><br/>tal vez a veces el blog lleve a confusión y parezca que 402 viene de vuelta, que lo tiene todo superado, todo asumido. y no es cierto. a menudo, en las conversaciones con el Dueño, Éste le dice algo que parece sencillo, una tontería, pero que tiene gran profundidad: "Sólo tienes que aceptar lo que eres". la aceptación es gran parte del trabajo de un esclavo. es sorprendente lo que la gente se engaña, se autoengaña e intenta engañar a los demás. no es fácil decirse "soy un esclavo", "soy un inferior", "soy una propiedad", "he nacido para servir. no, no es fácil, especialmente en un mundo como este y en una sociedad como la nuestra donde sólo se valora casi exclusivamente al que pisa a los demás, al que manda sin trabajar y al que se impone a cualquier precio.<br/>sin embargo todos los esclavos e inferiores que hemos recorrido alguna etapa del camino, conocemos ese resquemor que subyace y que siempre está ahí. es como una sensación de no pertenecer a ningún sitio, de no estar en casa nunca, de estar siempre de prestado... hasta que llega el día; ese día en el que te sometes por primera, o por décima vez, pero que te afecta tanto que te das cuenta de que ese sentimiento ha desaparecido, y entonces, tal vez por primera vez en tu vida, te sientes en casa. y te observas desde fuera y te das cuenta que estás vestido de latex, o cuero, tal vez atado o encadenado, amordazado, indefenso ante un Amo, arrodillado o tumbado porque no puedes estar de pie, completamente entregado. el sentimiento no está, ya no te sientes extranjero de ti mismo y te sientes integrado. entonces descubres que así eres feliz. puede aparecer un sentimiento de rechazo, pero pronto descubrirás que cuanto más repitas, más lo necesitarás porque será el único momento en el que serás tú mismo. acéptalo y vívelo con intensidad porque para los inferiores no existe otro camino.</p>

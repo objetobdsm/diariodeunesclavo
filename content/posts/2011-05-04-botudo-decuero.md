@@ -1,0 +1,11 @@
+---
+layout: post
+title: "Botudo Decuero"
+date: 2011-05-04 15:08:00 +0000
+permalink: /2011/05/botudo-decuero.html
+tags:
+  - leather
+  - perfiles
+---
+
+<div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/d5/86/d58676ceff2daadb5cba46ea2b749916778033d2a4b69d798f5062f5a2cdbc5e.jpg" imageanchor="1"><img height="549" src="/uploads/c0/23/c0230eee97d6207285d509becc1caeb2f55d3bcbf0e1c293658af7b52e1458bd.jpg" width="640" border="0" /></a></div><br /><br /><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/91/dc/91dc95294a90fd2b3efc884fb29152b12bfbfd5cfde466475a90c21fc8ed0edf.jpg" imageanchor="1"><img height="451" src="/uploads/eb/06/eb06a3bb94ab8a9120509f75927d7f1f4d270460b63db0156c96f8eabdd014ed.jpg" width="640" border="0" /></a></div><br /><br /><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/fe/cc/fecc597ec3e1c68020ab12b0d08f6c625ff9fb5617e1e3b7a1a8195259ca6af7.jpg" imageanchor="1"><img height="520" src="/uploads/bb/f4/bbf457190b6447bb2e5f88c2b29ab7028edb3aa9f1f6a084e609b73b32e65b04.jpg" width="640" border="0" /></a></div><br /><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><br /></div><br /><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/20/61/2061662c6d145dadc0c443bd4d90e668972f4b4706278a0a6a2e91f21c45dc92.jpg" imageanchor="1"><img height="480" src="/uploads/50/95/50950ae539dbbd0431876608bf7348c2ae138f9cd6fc1eea0062ef429261f1c7.jpg" width="640" border="0" /></a></div><br /><div style="TEXT-ALIGN: justify">no es sólo recon. a veces por facebook encuentras gente especial, amantes del cuero y el latex que merecen la pena, y como este blog trata sobre esto, aquí tienen a un que me ha llamado mucho últimamente la atención, especialmente por ir de viaje de esta manera. quisiera agradecerle a Botudo Decuero el permiso concedido para publicar estas fotos. hay muchas más en su perfil así que les recomiendo que se den una vuelta por allí.</div>si quieres visitar su perfil <a href="http://www.facebook.com/#!/profile.php?id=100000296582561">pincha aquí.</a>

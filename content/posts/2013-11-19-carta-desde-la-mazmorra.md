@@ -1,0 +1,10 @@
+---
+layout: post
+title: "carta desde la mazmorra"
+date: 2013-11-19 17:04:00 +0000
+permalink: /2013/11/carta-desde-la-mazmorra.html
+tags:
+  - cartas
+---
+
+<p style="text-align:justify;">en muchas páginas de tumblr, especialmente las dedicadas a la castidad, circula una foto con un lema que traducido más o menos dice así "cuando más larga sea la castidad, más profunda es la obediencia". ahora que lleva algún tiempo enjaulado y viviendo la castidad, el perro puede decir que eso es ciertamente así. la castidad produce ese efecto, hace que el esclavo profundice en su propia naturaleza.<br/>en lo que atañe al perro portar una jaula, un dispositivo de castidad, es como llevar la mazmorra contigo, allí a donde vayas, en todo momento, en todo lugar. controlando los deseos, se controla la voluntad, y la jaula de castidad hace que eso sea posible para los Amo. para muchos esclavos es insoportable y alguno hay, que no ha podido llevarla ni una hora, por eso su utilización debe ser cuidadosamente dosificada. no todos los esclavos están preparados para llevarla. sin embargo, llegados a un punto, se vuelve imprescindible. si no se puede llevar, al menos la castidad por obediencia es necesaria. por supuesto esto no se puede aplicar a los que son esclavos sexuales exclusivamente, a los que sólo entran en el bdsm buscando sexo fuerte. para ellos la castidad sería demasiado, demasiado fuerte, demasiado intensa, demasiado dura.<br/>la castidad es una bendición para los esclavos naturales, la realización de sus deseos y añoranzas, de todo lo que han estado buscando: poner sus deseos, su voluntad, sus vidas, en manos de otra persona, de su Dueño. eso es lo que hace posible ese trozo de plástico o metal en esa zona concreta. ojalá todos los sumisos pudieran experimentarlo.<br/>feliz semana.</p>

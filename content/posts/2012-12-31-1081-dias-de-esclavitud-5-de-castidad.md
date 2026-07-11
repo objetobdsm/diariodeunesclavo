@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1081 días de esclavitud, 5 de castidad"
+date: 2012-12-31 22:11:00 +0000
+permalink: /2012/12/1081-dias-de-esclavitud-5-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">cuando uno sabe su lugar en el mundo y no está allí, se agarra a cualquier cosa que le evoque o le recuerde ese lugar. en el caso del perro el blog es ese agarre, un asidero que evoca donde debería estar. asi, los días pasan leyendo blogs, buscando información y escribiendo en el blog del propio perro. las vacaciones eran una oportunidad para ir a madrid a ponerme bajo las botas del Amo pero no ha podido ser ahora, será el fin de semana después de reyes. el Dueño tiene muchas ocupaciones y compromisos, y el perro tiene que ejercitar la paciencia y la sumisión.</div><div style="text-align: justify;">en cualquier caso el camino es irrevocable, porque el perro ha entrado en contacto con su verdadera naturaleza, con aquello que es lo que tiene más en su interior. cuando el Amo ata a su perro, la amordaza y lo deja indefenso, el perro encuentra la paz.</div><div style="text-align: justify;">algunas de estas ideas aparecen en "hacia el eden", el relato de anne rice que el perro está leyendo. sin embargo hay otras cosas que no son tanto del agrado del perro. a falta de cuarenta páginas por leer, el sadomasoquismo del relato parece más una excusa para narrar un relato sórdido que otra cosa. casi la mitad del libro está dedicada a una "típica" relación tórrida entre los dos protagonistas. allí, el varón tenía como atractivo ser homosexual, pero incluso eso desaparece cuando se "convierte" en todo un "macho hetero".</div><div style="text-align: justify;">sólo son 190 páginas pero debe confesar que le cuesta mucho leerlas porque le resulta aburrida por momentos. lo que sí ha hecho es despertar las ganas y los deseos de escribir una novela propia sobre el tema, tal vez aprovechando algunos de los relatos comenzados en el blog. ya veremos.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

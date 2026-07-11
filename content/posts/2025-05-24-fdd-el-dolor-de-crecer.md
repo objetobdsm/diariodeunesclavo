@@ -1,0 +1,13 @@
+---
+layout: post
+title: "FdD el dolor de crecer"
+date: 2025-05-24 08:23:00 +0000
+permalink: /2025/05/fdd-el-dolor-de-crecer.html
+tags:
+  - FdD
+  - leather
+  - dominacion
+  - tortura
+---
+
+<p> </p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/e1/c0/e1c05b956ec5faf5c120325d4560311997fdd32e4e439274e16f4baeeab4a7a5.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="1000" data-original-width="800" height="640" src="/uploads/a8/84/a884fc8e1c034bb2dcbd4b32baed489d3813afb5d750484c457695b9162f6e42.jpg" width="512" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: justify;">algo ha cambiado en el objeto. los lectores más fieles del blog recordarán que el objeto nunca se definió como masoquista y, de hecho, el dolor es algo a lo que tenía, y mucho. no se sentía capaz de soportar un mínimo grado de dolor. llegó a descubrir con mi Señor que era capaz de soportar un dolor ligero pero muy prolongado frente a un dolor muy intenso pero de muy escasa duración. eso ha cambiado. no el hecho de que uno sea mejor que el otro o más soportable sino la actitud general del objeto ante el dolor. este objeto ha comprendido que en el proceso de entrenamiento es necesario, que sin dolor no hay crecimiento.  el dolor te saca de tu comodidad y te pone a prueba, especialmente ese dolor que es voluntario porque si no fuera así sería abuso. si no quieres ese dolor la solución es muy sencilla: no te sometas a un Amo. puede ser el dolor intenso de un látigo, o el palpitante de unas pinzas en los pezones o en los testículos. puede ser también el dolor de la culpa por haber fallado al Amo o la presión de unos genitales que llevan meses en castidad. poco importa porque el dolor rompe: rompe tu voluntad, rompe tu resistencia, te lleva al límite y le endurece. cuidado que no es lo mismo dolor que sufrimiento. lo primero puede convertirse en estímulo de crecimiento, lo segundo difícilmente. un deportista sufre dolor, un alpinista sufre dolor, a un artista le pueden doler las articulaciones pero ninguno de ellos es infeliz. alguien que ha sufrido una ruptura amorosa sufre pero nadie le ha tocado un pelo y sin duda lo está pasando peor que los anteriores. es paradójico pero un latigazo o una bofetada puede ser en el fondo una caricia. </div><br /><p></p>

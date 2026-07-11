@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1343 de esclavitud"
+date: 2013-09-19 21:21:00 +0000
+permalink: /2013/09/dia-1343-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">5 días de castidad, 5 desde el último ordeño.</div><div style="text-align: justify;">el día comenzó con una conversación pro móvil entre el perro y el Dueño muy intensa. el perro llevaba días un poco raro por el hecho de haberse ordeñado durante la sesión de entrenamiento del cachorro.el perro tiene orden de entrenar al cachorro, y de ordeñarse durante esas sesiones, pero no implica necesariamente renunciar a su propio entrenamiento en castidad, así que hoy el perro le ha suplicado al Dueño que no se ordeñe cuando entrene al cachorro. irónicamente el Dueño ya había pensado eso y decidió, ante la petición del perro, que sólo se ordeñaría en su presencia y que, a lo más, el perro se sacaría la leche cuando empezara a supurar mucho. esto no es más que la consecuencia lógica de que el perro es propiedad del Dueño y de que le pertenece. eso significa que su sexo no es suyo, sino que también le pertenece al Dueño y sólo debe ser usado cuando El diga, y primariamente, para darle placer a El.</div><div style="text-align: justify;">el perro pensó que vive una especie de castración psicológica. no disfruta cuando se ordeña si no es en presencia del Dueño. fuera de El ya no hay placer, sólo lamiendo sus botas puede el esclavo tener auténtico gusto. las veces, en los últimos dos años, en que el perro se ha corrido sin estar delante del Dueño, no han sido placenteros, al menos no tanto como esperaría. fueron más como un desahogo, como cuando tienes que ir al baño y aguantar durante un tiempo, y consigues ir, pero no es equivalente a un orgasmo, ni mucho menos.</div><div style="text-align: justify;">castrado en la voluntad, castrado en la sexualidad... puede parecer duro pero si han extirpado tu voluntad también han quitado la posibilidad de equivocarte. y si han quitado tu sexualidad, el placer está en función no tuya sino de tu Dueño.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

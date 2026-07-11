@@ -1,0 +1,10 @@
+---
+layout: post
+title: "968 días de esclavitud, 2 de castidad"
+date: 2012-09-09 22:00:00 +0000
+permalink: /2012/09/968-dias-de-esclavitud-2-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">un día intenso en el sentido personal porque este perro ha tenido que interaccionar con mucha gente por cuestiones personales. la no vida sigue imponiéndose sobre la vida a veces. aún así este perro se siente esclavo, profundamente esclavo, y cuando piensa en ello y reflexiona sobre el tema, una extraña paz y tranquilidad se apodera de él. es como si hubiera encontrado algo muy, muy, muy íntimo y profundo. por eso suele decir que gracias al Amo, este perro ha encontrado su naturaleza profunda, auténtica y verdadera. es cierto que mucha gente está en contra de esta premisa y que no creen que realmente alguien nazca esclavo, posiblemente sea así, pero para algunos de nosotros es algo tan profundo y nos marca tanto, que llega un momento en que no concebimos nuestra existencia sin ese dato. es como el lenguaje, no es natural, uno lo aprende, pero una vez asumido, entra a formar parte tan íntima de ti, que te condiciona tu forma de ver el mundo, de relacionarte con los demás y de ser tú mismo. no puedes renunciar a él, no puedes quitártelo de encima, eso es lo que eres. con la esclavitud pasa lo mismo, y supongo que un proceso similar les ocurrirá a los Amos. de hecho últimamente este perro empieza a sentir que todo lo ocurrido antes de que el Amo le encontrara, relaciones, pensamientos, aprendizajes, no fueron más que una preparación para ese momento, para el momento del encuentro, en el que este perro se arrodilló y el Amo le puso el collar al cuello. a partir de entonces El lleva la correa, y este perro es feliz así.</div>obediencia ciega para el esclavo, poder absoluto para el Amo.<br />

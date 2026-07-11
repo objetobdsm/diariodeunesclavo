@@ -1,0 +1,10 @@
+---
+layout: post
+title: "503 días de esclavitud"
+date: 2011-06-02 22:42:00 +0000
+permalink: /2011/06/503-dias-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">hoy he mantenido una conversación con mi Dueño, una conversación enriquecedora, fortalecedora, increíblemente intensa. este perro se levantó hoy triste y decaído, sin ninguna razón especial, sencillamente ocurrió. por supuesto había muchas razones pequeñas: la lejanía de mi Dueño, el exceso de trabajo, diferentes interacciones cotidianas que no iban bien, el cansancio por las muchas actividades de las últimas semanas.... un conjunto de cosas pequeñas que, de por sí, no tienen gran importancia, pero que hoy hicieron mella en mi ánimo. como era mi obligación, lo puse en conocimiento de mi Dueño y, ni corto ni perezoso, en un tiempo que tuvo en su trabajo, conectó con este esclavo y hablamos. ese hecho de por sí ya es terapeútico, pero además, desde el primer momento no hizo otra cosa sino reforzarme, de manera que no sólo hizo que me sintiera muchísimo mejor, sino que además profundizó mi sumisión y, cuando terminamos, era aún más perro que al principio. no fueron grandes discursos, sino frases directas, concretas, recordándome lo que era, a quien servía y por qué estaba en esta situación. además me recordó lo que me esperaba, lo que sería mi vida en un futuro no muy lejano, que tuviera paciencia y, sobre todo, que abandonara cualquier esperanza de volver a ser libre. eso se terminó definitivamente para mi. cualquier otra persona sentiría vértigo ante esta afirmación. este perro sin embargo, se sintio extremadamente feliz y contento por ese hecho. al finalizar la tristeza se había ido, me sentía de nuevo conectado con mi Dueño y con la vida de esclavitud que estoy viviendo y todos los problemas de la no-vida se hicieron más llevaderos. así pude terminar el día con cierta tranquilidad y afrontar todas las situaciones que se me presentaron... gracias a mi Dueño.</div>

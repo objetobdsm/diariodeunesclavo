@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1530 de esclavitud, 101 de castidad"
+date: 2014-03-25 22:23:00 +0000
+permalink: /2014/03/dia-1530-de-esclavitud-101-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el día ha sido intenso porque el perro tiene el trabajo por la mañana y por la tarde está haciendo un curso en la universidad, con lo cual se pasa 14 horas fuera de casa. lo único que lo mantiene centrado, como pasa últimamente, son las botas que lleva, que le recuerda constantemente al Dueño; y la jaula, que hace que nunca olvide lo que es. para el resto del mundo el perro es un ser perfectamente capaz y funcional. sin embargo en su interior sabe lo que es. a falta de collar de esclavitud, que está esperando en madrid, el perro siente su sumisión cuando toca las botas o pasa su mano por su entrepierna.<br/>a veces la jaula le pincha o le produce una sensación de dolor en los testículo. al contrario de parecer negativo, eso le vuelve a su realidad sumisa. el perro es un ser obediente, nacido para obedecer, y ambos objetos le ayudan a perseverar en su objetivo.<br/>además al exterior también resultan llamativos. hoy dos personas han vuelto a hacer comentarios sobre las botas, uno de ellos un estudiante de 22 años de la universidad. "bonitas botas", dijo. inmediatamente supo el perro que quería unas, que le apetecería llevar unas. el otro comentario vino del compañero que también lo hizo la semana pasada. lo curioso fue que la conversación avanzó bastante. "¿te gustan?", le preguntó el perro. "si, además cuestan una pasta", respondió él. "pues si", le dije yo. lo sorprendente es que sepa que cuestan sus euros y eso significa que se interesó por ellas. llevar botas no es algo nada común en canarias, y llaman la atención, pero sólo hablan aquellos que desean llevarlas pero que no pueden o no se atreven.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

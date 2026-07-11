@@ -1,0 +1,10 @@
+---
+layout: post
+title: "518 días de esclavitud"
+date: 2011-06-17 22:11:00 +0000
+permalink: /2011/06/518-dias-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">hoy he encontrado un perfil en facebook donde habían puesto una de las fotos de mis botas como foto de perfil. al contrario de lo que pudiera parecer o pensarse, me sentí halagado y me sentó muy bien. llevo años recogiendo y emocionándome con fotos de la red y siempre he querido participar en este intercambio. que a alguien una foto de este perro le parezca lo suficientemente buena como para ponerla ahí, me encanta. en la red no debería haber comercio, ni mercantilización. desde el principio concebí este blog como algo libre, gratuíto, una forma de mantener vivo un espíritu y una forma de vida, por eso me niego en redondo a poner links a páginas comerciales o a colgar anuncios. mi Dueño comparte esta filosofía y lo digo así porque el blog estaba antes de que El me encontrara y podría haber cambiado de camino pero, en su sabiduría, lo ve de la misma forma que este esclavo. por eso confío tanto en El, porque creo que es alguien que sabe lo que quiere. sin El todo sería más difícil.</div><div style="text-align: justify;">soy un esclavo. siempre lo seré. ya no podré ser otra cosa. y estoy orgulloso de ello. llegar poder hacer estas afrimaciones me ha costado muchísimo: vergüenza, miedo, temor, inseguridad, desconocimiento... todo se ha sucedido y a veces superpuesto en el camino hasta poder afirmarme como esclavo, como perro, como un ser que vive para obedecer a su Dueño. este es uno de esos momentos donde sé que algunos de los lectores de este blog pueden escandalizarse, pero no puedo engarñarme, o no quiero engañarme más. ser esclavo es mi forma de ser feliz, de realizarme, y eso se lo debo a mi Dueño.</div>

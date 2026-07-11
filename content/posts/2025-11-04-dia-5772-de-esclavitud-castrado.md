@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5772 de esclavitud, castrado permanentemente"
+date: 2025-11-04 23:53:00 +0000
+permalink: /2025/11/dia-5772-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> ha sido uno de los días más duros que el objeto recuerda. tenía que dar una formación en fuerteventura y eso implicaba coger el avión, coche de alquiler para recorrer la isla, dar la formación y regresar. todo eso con la pierna tocada y un calor que no baja de los treinta grados en ningún momento. afortunadamente el vuelo estuvo bien, fue tranquilo y aunque tuvo algún contratiempo con el coche de alquiler el objeto llegó sin problemas a su objetivo.</p><p style="text-align: justify;">llegó un poco pronto y pudo comer tranquilo y descansar antes de la formación que fue muy bien. el objeto lo pasó bien y el feedback fue muy positivo. el regreso fe un poco más accidentado porque pudo adelantar el vuelo pero tuvo que correr por todo el aeropuerto con la pierna como estaba. cuando llegó a casa toda la tensión se materializó y le dio un bajón al objeto que lo ha dejado tirado. para ser sincero la pierna no le ha molestado prácticamente en todo el día. esto no sabe si eso significa que la recuperación ha comenzado pero no quiere aún lanzar las campanas al vuelo. todo este viaje el estuvo sin jaula porque sigue el castigo. como todo castigo está siendo duro pero es necesario. mañana todavía estará sin jaula pero ya será el último día.</p><p style="text-align: justify;">el objeto no puede dejar de pensar en que se dedica a dar formaciones a formadores pero es mi Señor quien enseña al objeto todo sobre todo. lo más importante no son las coas que el objeto aprende en clases o libros sino lo que mi Señor le enseña cada día en cada momento. por eso el objeto puede decir que todo lo que haga, cualquier mérito que pueda conseguir es realmente mérito del Amo.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

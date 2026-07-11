@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5448 de esclavitud, castrado permanentemente"
+date: 2024-12-18 23:41:00 +0000
+permalink: /2024/12/dia-5448-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> hoy en día todo el mundo pide, exige más bien, ser tratado en su especificidad, en su particularidad. y eso está bien. sin embargo es habitual que las personas que piden eso después quieran imponer a los demás su forma de pensar y de organizar las cosas. el ambiente de trabajo se ha vuelto un poco raro precisamente por eso. al pasar ahora más tiempo en la oficina hay diferencias a la hora de ver como afrontamos determinados procesos que se han quedado a medias, o que se están elaborando. el objeto intenta mantener una actitud distante, para no dejar que el ego se imponga. sin embargo está viendo que los de los demás campan a sus anchas y eso provoca tensiones. como dice mi Señor, no debe el objeto esperar nada de ningún humano, pero a veces es difícil no dejar que eso te influya porque el objeto tiene que seguir viviendo entre ellos. es cierto que el camino recorrido ha sido mucho. desde que mi Señor comenzó su entrenamiento hasta ahora, en cuanto a relaciones sociales, se ha producido un cambio radical, y más profundo que se hará con el paso del tiempo. cuando el objeto dice que mi Señor le ha quitado todo, se refiere también, y especialmente a eso. las relaciones sociales entre humanos y objetos no son posibles, así que el objeto cada vez queda con menos gente. el pasado fin de semana fue un antes y un después con uno de los pocos grupos que quedaban. no ha sido traumático, sino más bien como un barco que parte y suelta amarras. tenía que ser y fue. el objeto se sintió desvinculado de ellos. ya no le apetece verlos más. tal vez tenga que hacerlo por razones sociales, pero no les tiene ningún apego. una nueva cosa que mi Señor le ha quitado al objeto. al final ser un objeto es eso, no tener relaciones sociales sino solo relaciones de uso, y ser usado por el humano que te posee y del que eres una propiedad, en este caso mi Señor.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

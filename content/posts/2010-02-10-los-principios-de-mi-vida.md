@@ -1,0 +1,11 @@
+---
+layout: post
+title: "los principios de mi vida"
+date: 2010-02-10 22:11:00 +0000
+permalink: /2010/02/los-principios-de-mi-vida.html
+tags:
+  - esclavitud
+  - decálogo
+---
+
+<div style="text-align: justify;">es curioso el significado de la palabra principio. según la real academia puede ser "primer instante de algo" o "norma o idea fundamental que rige el pensamiento o la conducta". en este caso principio lo tomo en la segunda acepción. hoy he mantenido una <span class="blsp-spelling-error" id="SPELLING_ERROR_0">conversación</span> con mi AMO. ha sido EL quien me dijo cuáles serían los principios de mi nueva vida y, curiosamente, eso marca también el inicio de esa vida que tanto tiempo he estado ansiando y esperando. son claros y concretos:</div><div style="text-align: justify;"><br /></div><div style="text-align: center;">fidelidad</div><div style="text-align: center;">honestidad</div><div style="text-align: center;">entrega</div><div style="text-align: center;">sinceridad</div><div style="text-align: center;">adoración</div><div style="text-align: center;">admiración</div><div style="text-align: center;">sometimiento en cuerpo y alma</div><div style="text-align: center;"><br /></div><div style="text-align: justify;">vistos desde una perspectiva <span class="blsp-spelling-error" id="SPELLING_ERROR_1">vanilla</span> pueden parecer fuertes, duros, incluso obsesivos ¿y? no me importa esa opinión. sé lo que soy y a quien sirvo y eso es suficiente. para mi es suficiente, no necesito nada más. </div><div style="text-align: justify;">iré profundizando en cada un de estos principios que se han convertido en <span class="blsp-spelling-error" id="SPELLING_ERROR_2">mandamientos</span> para este esclavo, y con el permiso de mi AMO, compartiré esas reflexiones aquí.</div><div style="text-align: justify;">algún lector ha pedido que sea más concreto y que cuente mi <span class="blsp-spelling-error" id="SPELLING_ERROR_3">re</span>-nacimiento con mi AMO, cuando decidió tomarme y usarme de nuevo. he trasladado esa petición a mi AMO y ha aceptado. el único límite será temporal, cuando mis <span class="blsp-spelling-error" id="SPELLING_ERROR_4">obligaciones</span> me permitan poner por escrito tal cúmulo de sensaciones. cuando ocurra lo publicaré sin tardanza. una nueva vida ha comenzado para mi, y estoy feliz por ello. gracias AMO.</div>

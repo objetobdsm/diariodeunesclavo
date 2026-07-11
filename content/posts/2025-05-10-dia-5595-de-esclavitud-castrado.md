@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5595 de esclavitud, castrado permanentemente"
+date: 2025-05-10 22:46:00 +0000
+permalink: /2025/05/dia-5595-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el objeto estuvo toda la mañana trabajando, dando una formación con dinámicas, a un grupo de 32 personas. fue muy intensa y agotador pero al mismo tiempo gratificante. una amiga del objeto se lo pidió el lunes pasado y el objeto lo puso bajo las botas de mi Señor, concediendo permiso a su objeto para hacerlo. esto debe confesar que estaba un poco nervioso porque eran muchas horas y el objeto no había abordado esta dinámica antes. </p><p style="text-align: justify;">tal vez fuera por eso, y por la semana que el objeto estaba teniendo que se sintió muy mal cuando se despertó. parecía que nada tenía sentido con lo cual tuvo que poner bajo las botas de mi Señor que había perdido la existencia y con ella la ataraxia. eso preocupó a mi Señor por supuesto, pero el objeto había asumido el compromiso y mi Señor había dado permiso, lo que lo convertía en una orden y el objeto fue a realizar la formación a la que se había comprometido. </p><p style="text-align: justify;">desde las nueve hasta las dos estuvo dando charlas a dos grupos y marcando dinámicas que fueron muy bien recibidas. cuando terminó el objeto tenía una buenísima impresión de como lo había vivido el grupo y comprendió que sus temores eran infundados. sin embargo estaba muy cansado. al terminar las organizaciones lo invitaron a comer y el objeto fue con ellas con permiso del Amo. fue una comida agradable. el objeto llegó a casa sobre las cinco y media y pensaba ponerse a trabajar un poco pero fue imposible . el objeto somatizó el cansancio y le dolieron las piernas y los brazos, algo muy extraño en él. el Amo ordenó que descansara y así se fue el resto del día. </p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD deshumanización"
+date: 2016-05-16 07:51:00 +0000
+permalink: /2016/05/fdd-deshumanizacion.html
+tags:
+  - capucha
+  - FdD
+  - deshumanización
+---
+
+<img class="aligncenter" src="/uploads/e7/c1/e7c1fe462033665139c3646cfdf5ab04fd12a0b7f622c40b242638cd1faba3bc.jpg" width="500" height="667" /><br/><p style="text-align:justify;">el proceso en el que se encuentra inmerso 402 es un proceso de deshumanización, de eliminación progresiva de todos sus rasgos humanos. es un proceso comenzado cada vez que un sumiso se arrodilla por primera vez delante de un Amo. la base de todas las relaciones de Dominación/sumisión es la asimetría, la desigualdad. un Amo siempre está por encima de un esclavo y, para que esto sea posible, el esclavo, en mayor o menor medida, debe dejar de ser visto con un ser humano, porque eso significa verlo como un igual. puede ser por el tiempo de una sesión, puede ser en un grado muy pequeño, pero esto tiene que producirse. si no es así la relación está viciada y realmente quien se está sometiendo es el Amo, lo cual por cierto, deja siempre mal sabor de boca al esclavo.<br/>para ello se van eliminando aquellos aspectos que caracterizan al ser humano: el rostro, manteniendo al esclavo encapuchado el mayor tiempo posible; el habla, amordazándole o entrando en la dinámica de no hablar sin permiso; el movimiento, usando el bondage; la apariencia, cubriéndolo de latex o cuero; la voluntad, eligiendo todo por él (ropa, comidas, relaciones).... es un proceso complicado y duro, pero muy efectivo.<br/>es posible una relación entre iguales, entre seres humanos de pleno derecho en plano de igualdad, pero no en el bdsm. lo que le ha ocurrido a 402, guiado por el Dueño, es que ha llevado esta reflexión a sus últimas consecuencias ya que mantiene una relación D/s las 24 horas del día, 7 días a la semana, 365 días al año. no hay igualdad posible entre objeto y Dueño, y por tanto no hay posibilidad de humanidad en 402. la confusión de la mayoría de la gente es que cree que por eso, 402 no tiene ningún valor. es justo al contrario. un rolls royce, hecho a medida, con todos los detalles lujosos posibles no deja de ser un objeto. ¿quién es capaz de decir que no es valioso?</p>

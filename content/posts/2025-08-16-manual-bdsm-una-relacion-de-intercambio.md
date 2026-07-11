@@ -1,0 +1,10 @@
+---
+layout: post
+title: "manual bdsm: una relación de intercambio de poder. "
+date: 2025-08-16 11:50:00 +0000
+permalink: /2025/08/manual-bdsm-una-relacion-de-intercambio.html
+tags:
+  - manual
+---
+
+<p style="text-align: justify;"> lo que caracteriza a toda relación bdsm es el intercambio de poder. uno lo cede y otro lo recoge y lo ejerce. el poder, en su definición más simple, es la capacidad que tiene alguien de que el otro haga lo que él quiere. tiene que ver por tanto, con el comportamiento, al menos en su estadio inicial. después puede ampliarse a otros ámbitos como el de los sentimientos o las ideas pero básicamente estamos hablando de acciones. ceder el poder es hacer lo que la otra persona quiere que hagas. esto es algo connatural a cualquier relación humana. en cualquier grupo se producen relaciones de poder. un grupo de amigos decide si ir al cine o a la bolera, otro a donde ir a comer o ir de vacaciones. el poder de un grupo lo ostenta quien decide cada uno de estos destinos y el grupo acepta ir. </p><p style="text-align: justify;">las relaciones de pareja no son diferentes. siempre hay uno de ellos, un miembro, que lleva la voz cantante, y otro que cede. si lo miramos detenidamente todas las relaciones de Dominación  / sumisión, de las relaciones bdsm es que este intercambio se hace explícito y se habla abiertamente de ello.</p><p style="text-align: justify;">aquí radica la centralidad y la base de toda relación entre un Dominante y un sumiso es este intercambio de poder. yes esa relación la que sitúa a cada uno. así el Dominante es quien recibe ese poder y el sumiso es quien la entrega. son los dos polos de esta relación. y como toda relación puede desvirtuarse con algunos comportamientos por ejemplo cede el poder solo aparentemente o solo mientras se haga lo que el sumiso quiere. también puede usarse el intercambio de poder como forma de dominar o manipular al Dominante. a este círculo de comportamiento se le llama "dominar desde abajo". el ocasiones el sumiso utiliza su posición para conseguir algún tipo de satisfacción o beneficio y desvirtúa toda la relación viciándola desde dentro.</p>

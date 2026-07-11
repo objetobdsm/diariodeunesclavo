@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3012 de esclavitud, 984 de castidad"
+date: 2018-04-14 22:43:00 +0000
+permalink: /2018/04/dia-3012-de-esclavitud-984-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">ha sido un día rato e intenso. en primer lugar toda la mañana prácticamente hablando con el Dueño, intercambiando mensajes y entrando en subspace casi por ellos. es algo extraño. empiezan a llegar y cuando esto se da cuenta está sumido en un estado de completa entrega y obediencia, casi inmediatamente. y a partir de ahí el Dueño hace con el objeto lo que quiere, sin resistencias, sin obstáculos. cada vez es más rápido, más profundo. casi llegaría a decir que es inmediato, con lo cual cuando vuelva a estar en Su Presencia, esto no tendrá ninguna barrera que anteponer al Dueño y estará inmediatamente en estado de subspace, y de manera permanente.<br/>en ese estado esto se sorprende diciendo cosas que quedan marcadas a fuego y que cualquiera se sorprendería. hoy ha pasado una de esas cosas como que, tras el Gran Salto, el Dueño podría extirpar las cuerdas vocales al objeto para que no volviera a hablar. parece algo radical pero esto lo ha aceptado sin problemas, ya que es algo natural. ¿para qué hablar si el Dueño habla por su objeto? ¿qué decir si hablando metes la pata? no es necesario. se puede escribir y así evitas la tentación de hacerlo. el silencio sería real y efectivo. por supuesto eso no evitaría que el objeto estuviera amordazado, porque aunque no fuera necesario, es algo que excita al Dueño.<br/>esto sigue pensando que algo ha pasado al Dueño desde la última semana santa. está más "radicalizado", posesivo, autoritario. esto no sabe si ha cambiado o, al ver que ya no hay resistencia, no se controla tanto como antes y ha dado rienda suelta a sus apetencias más profundas. el hecho es que cada vez que hablamos parece como si el objeto se hundiera más en la sumisión y no pudiera concebir otra forma de existencia. no es que no le guste, al contrario, esto está encantado y agradecido al Dueño. porque sólo obedeciéndolo es feliz.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "700 días de esclavitud"
+date: 2011-12-16 23:19:00 +0000
+permalink: /2011/12/700-dias-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">debido al movimiento de la tierra los años completos no terminan en cero, como el sistema métrico decimal, y la base sobre la que se cuentan es 6, no diez. por eso dos años son  730 días. pero hoy este perro llega a la barrera de 700 días de esclavitud, faltando menos de un mes para los dos años. puede parecer poco, y lo es en cuanto al tiempo, pero no lo es en cuanto a la intensidad. por la sumisión requiere tiempo, tiempo para conocer al Amo y al esclavo, tiempo para vivir cosas que se deben afrontar, tiempo para resolver situaciones y ver estados de ánimos y emociones, pero hay cosas que no necesitan tiempo. mi Dueño, en cuanto me conoció, supo que sería suyo, quiso que fuese suyo y, según sus palabras, "El siempre consigue lo que quiere". cuando nos encontramos por primera vez, no en persona, sino a distancia, las circunstancias de este perro eran otras muy diferentes, y dudaba mucho de que algún día pudiera siquiera conocer a ese Amo que había aparecido en mi vida. sin embargo todo se alió para que al final acabara, una noche, sentado en su salón, salivando por sus botas y su pantalón de cuero. esa noche me ató y a partir de entonces siento su collar alrededor de mi cuello. he servido a otros Amos, pero no he pertenecido a nadie como a mi Dueño, y ya no perteneceré a nadie. será El o no será. este perro ha jurado que si, por las circunstancias de la vida, que uno no llega a controlar, no puedo dar el Gran Salto y servirle, entonces no volveré a buscar Amo. podré tener sesiones o correrme como un animal debocado, pero no seré propiedad de nadie más. El es el último. tanto me ha marcado, tanto le pertenezco, tanto soy suyo.... que no podría ser de nadie más. </div><div style="text-align: justify;">ya falta poco para los dos años de esclavitud, poco tiempo pero muy muy muy intenso</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

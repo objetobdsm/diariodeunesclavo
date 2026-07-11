@@ -1,0 +1,29 @@
+---
+layout: post
+title: "los lectores preguntan I"
+date: 2020-04-24 13:24:00 +0000
+permalink: /2020/04/los-lectores-preguntan-i.html
+tags:
+  - lectores
+---
+
+<div style="text-align: justify;">
+desde que el objeto puso el formulario de contacto en el blog ha recibido una serie de consultas que pasa a publicar en este momento. es necesaria una aclaración. debido a la condición de objeto de esto, el Dueño ha ordenado que trate de usted a todo el que escriba, y con el que el objeto se relacione, independientemente de si es inferior o Superior. de esta manera quiere dejar claro que el objeto es lo mas bajo entre los inferiores incluso. </div>
+<div style="text-align: justify;">
+<br /></div>
+<div style="text-align: justify;">
+<i>Buenas tardes, hace mucho que los sigo, ya desde diario de un esclavo y siempre me han gustado mucho, y su sinceridad y libertad. Ayer un posible Amo, me hizo sentir. Por primera vez un objeto de verdad me llamo. GIMP, y me gusto mucho me sentí bien realizado en mi sitio. No quiero ni aburrirles ni nada. El correo es de verdad y claro que me sentiría honrado en exceso de que contestaran directamente también si quieren. Leo lo de el paso final y me gustaría entender cual es, y/o en que consiste señores. Muchas gracias. Un placer servir.</i></div>
+<div style="text-align: justify;">
+gracias por escribir en el formulario, señor. esto se alegra mucho de que el blog haya contribuido, aunque sea mínimamente, a su camino como sumiso y le felicita por haber encontrado un Amo que le haya puesto en su sitio. con respecto a lo que pregunta del paso final Dueño y objeto nacieron en ciudades diferentes, en sitios muy alejados y crecieron cada uno a su manera. en un momento dado una persona nos puso en contacto y comenzó la relación que ha quedado reflejada primero en diariodeunesclavo, y más recientemente en diariodeunobjeto. desde el primer momento el Dueño tenía claro que el fin último del objeto sería ser apartado del mundo de los humanos y encerrado definitivamente, sin condiciones ni derechos. es a eso a lo que se ha llamado en el blog el paso final, o el gran salto. debido a distintas circunstancias eso no se ha podido dar. cada uno vive con sus condicionantes y sus compromisos. el hecho es que el Dueño desea que ese salto sea con todas las garantías y con el menor daño para todos. lo que sí es seguro es que se producirá, porque el Dueño consigue todo lo que se propone. hasta ese momento, como saben todos los lectores, el objeto sigue profundizando en su sumisión y el Dueño aumentando su control sobre esto.</div>
+<div style="text-align: justify;">
+<br /></div>
+<div style="text-align: justify;">
+<i>Hola, me pone mucho el rol de amo/esclavo y me gustaría si pudieras darme consejos de como introducirte en el ambiente y algunos códigos de conducta. Te lo agradecería mucho</i></div>
+<div style="text-align: justify;">
+gracias por escribir. esto supone que podría darle muchos consejos, pero tal vez el mayor y mejor es que aprenda mucho, escuche a los que llevan tiempo, infórmese. la Dominación y la sumisión pueden tener un elemento natural, pero se aprenden también. ya hay un fuerte y potente depósito de conocimientos sobre las técnicas, los comportamientos, los rituales, etc. hay una auténtica cultura bdsm y esto recomendaría que se metiera en ella y aprendiera todo lo posible. en cuanto a las relaciones lo primero que se le ocurre al objeto, ya que cree que con eso siempre se gana, es la sinceridad y el respeto. ni el Amo ni el esclavo deben aparentar lo que no son porque eso puede llevar a muchos malentendidos y confusiones. y por otra parte el respeto. al contrario de lo que la gente piensa, la prepotencia nunca lleva a ningún sitio, en cualquiera de los roles. no hay que confundirla, en el caso de los Dominantes, con la seguridad, o la autoridad. respetar al sumiso es la forma más directa de que empiece a adorar a un Superior. y por parte del inferior es respeto es un mandamiento inexcusable. a partir de aquí lo demás se va viendo sobre la marcha. si desea algo más específico este objeto estará a su disposición.</div>
+<div style="text-align: justify;">
+<br /></div>
+<div style="text-align: justify;">
+<i>Hola, como mi nick dice, soy fan del cbt, mucho más que la castidad. Me encanta tu blog, y hoy en el encierro he querido compartirlo contigo. y en concreto una pregunta: ¿Antes de tu castidad, tuviste experiencias de cbt? ¿cómo fueron y que disfrutaste de ellas? UN apretón de bolas</i></div>
+<div style="text-align: justify;">
+hola y gracias por escribir. primero por si alguien no lo sabe cbt significa cock&ball torture, tortura de polla y huevos, de genitales vaya. efectivamente el objeto ha tenido algunas experiencias cbt, y aún sigue teniéndolas. parece que plantea una contradicción entre castidad y cbt, como si habiendo entrado en castidad significara que no se pueden tener torturar los huevos y los genitales. la primera experiencia que tuvo el objeto fue atando los huevos y la polla con cuerdas, en una especie de arnés. resultaba muy excitante no sólo por el bondage sino por el dolor mezclado con la erección. otra experiencia que tuvo también, y que no descarta, son las pinzas en los huevos, pinzas normales, de la ropa, mantenidas durante tiempo. como cuando se ponen en los pezones, lo interesante viene cuando se quitan. ninguna de estas prácticas es contraria a la castidad. el último artefacto del Dueño es un paracaídas genital. para quienes no lo sepan es una especie de capuchón que se pone en los genitales del que cuelgan cadenas y en las que se ponen pesos de forma que empujan los testículos hacia abajo produciendo un dolor, que resulta muy interesante. es cierto que es difícil usarlo con la jaula pero se puede hacer. este objeto espera haber respondido a su pregunta y reitera su disposición para lo que desee.</div>

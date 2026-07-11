@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5726 de esclavitud, castrado permanentemente"
+date: 2025-09-18 22:19:00 +0000
+permalink: /2025/09/dia-5726-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> ni en todo junio, julio o agosto hemos tenido un día de tanto calor. hay humedad, calima y una temperatura cercana a los cuarenta grados. estar en la calle es una tortura. afortunadamente el objeto trabajaba desde casa. atal vez haya sido por el calor, por algunas novedades del trabajo o por ambas cosas, el objeto ha tenido hoy una especie de ideas intrusivas que se han ido metiendo en la mente del objeto en referencia al trabajo y en la reunión de la semana que viene. el objeto teme que debido a unas circunstancias concretas cambien las condiciones del proyecto y eso significa que el objeto tendrá que poner bajo las botas de mi Señor continuar o, irónicamente se encuentra en la misma circunstancia que estaba el curso pasado por estas fechas. de nuevo los egos de algunas figuras que ostentan "poder" se han puesto en marcha llevados por la mediocridad. </p><p style="text-align: justify;">a medida que pasaba el día esas ideas se fueron haciendo más presentes. el objeto comenzó a hacer lo que los estoicos llamaban premeditatio malorum, imaginarte una situación negativa para ver como reaccionas. servía para prepararte para esas circunstancias y a la vez servía para valorar lo que tienes. para el objeto es una herramienta útil porque a veces, cuando tiene que simular ser humano, le ayuda mucho verse en esa situación, para evitar que la sumisión haga que abusen de el objeto.</p><p style="text-align: justify;">el calor ha sido sofocante todo el día, el por del verano, y eso trae consecuencias porque afecta al cuerpo, al ánimo, al pensamiento, al ganas de trabajar, en definitiva, a todo.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

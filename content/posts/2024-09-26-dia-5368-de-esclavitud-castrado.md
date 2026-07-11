@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5368 de esclavitud, castrado permanentemente"
+date: 2024-09-26 22:33:00 +0000
+permalink: /2024/09/dia-5368-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;">una vez publicado el post correspondiente a ayer, el objeto se dio cuenta de que había usado una expresión que podría llamar a confusión. cuando dijo que salió a determinada hora dijo que salió de la "casa de mi Señor". cualquiera podría haber entendido que el objeto estaba en madrid, cuando realmente está en gran canaria. la expresión no indica localización sino propiedad. la casa en la que vive el objeto pertenece a mi Señor y por tanto es suya. es en ese sentido en que lo dijo. y aquí habría que hacer otro matiz. esa casa fue comprada cuando el objeto era humano y era "libre" pero en el último proceso radical en el que mi Señor le quitó al objeto todo lo que tenía, no solo lo mental, psicológico o espiritual sino también lo físico, la casa entró a formar parte del patrimonio de mi Señor. el objeto es plenamente consciente de que esto puede suscitar sospechas, incredulidad y hasta cierto rechazo pero es una afirmación contra natura y contra la lógica que un objeto posea algo. además no fue hasta que mi Señor realizó este acto, que el objeto se dio cuenta de lo necesario que era porque efectivamente la independencia económica es la independencia y hasta que no la pierdes no te conviertes en dependiente de tu Señor. por supuesto esto se produjo después de un proceso largo de 14 años de entrenamiento. confiar tus bienes y tu economía al primero que llega puede ser interesante para los esclavos cash pero es poco recomendable. es el final de un proceso de esclavización en el que el Amo ha demostrado suficientemente que va a estar ahí y que no te va a abandonar con nada y privándote de los medios más básicos de subsistencia. puede ser una fantasía excitante pero la realidad es más dura. mi Señor ha quitado al objeto todo lo que tiene, porque se ha ganado ese derecho durante todo el proceso de objetificación.</p><p>sumisión en silencio, castidad y obediencia ciega</p>

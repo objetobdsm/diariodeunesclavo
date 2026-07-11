@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2148 de esclavitud, 120 de castidad"
+date: 2015-12-02 22:52:00 +0000
+permalink: /2015/12/dia-2148-de-esclavitud-120-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el Dueño ordenó al perro llevar hoy las botas negras, las senda. sin embargo cuando se las fue a poner descubrió que se habían abierto por un lado ya de manera definitiva. el Dueño, tras recibir una foto donde se veía el daño, permitió cambiarla. quedó impresionado del estado de las botas porque no es normal que eso ocurra pero es que el perro lleva usándolas casi a diario desde hace dos años más o menos.<br/>la cuestión es que el perro lleva todo ese tiempo con ellas sin dejar de ponérselas y eso se nota, y mucho. el tema que se planteó el Dueño es si seguir comprando sendras, que son bastante caras, pero de bastante calidad, o combinar las sendras con otras peores pero más baratas que tenía el perro antes de dar el salto a las sendras por orden del Dueño.<br/>por supuesto el perro obedecerá lo que diga el Dueño al respecto pero siente que las sendra, igual que la jaula, forman parte de su vida de esclavo. se han convertido en lo que el Dueño quería, en un signo identificativo del perro, una seña de identidad. sin ellas el perro se siente desnudo, descalzo.<br/>al final el perro se ha puesto las sendra marrones y las llevará de ahora en adelante. el Dueño le ordenó que acelerara la búsqueda de unas nuevas. lleva algún tiempo diciendo al perro que consiga otro par, pero no vaqueras, sino tipo motero, de las de hebilla a un lado. lo hace porque ha oído al perro decir que esas le gustan, y efectivamente es así, le gusta verlas, pero sabe que no son del agrado del Dueño.<br/>con la rotura de las botas negras no sabe el perro si comprar unas vaqueras para reemplazar a esas o que. ya decidirá el Dueño. el perro seguirá sus órdenes.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "en referencia a los comentarios"
+date: 2010-05-03 18:33:00 +0000
+permalink: /2010/05/en-referencia-los-comentarios.html
+tags:
+  - comunicados
+---
+
+<div style="text-align: justify;">antes de nada quiero agradecer a todos los lectores la cantidad y calidad de los comentarios que han dejado en el blog, así como la gran cantidad de visitas. ayer domingo, sin ir más lejos, tuvimos 329 visitas, ¡en un sólo día!. gracias.</div><div style="text-align: justify;">este blog no es realmente mio, como muchas otras cosas en mi vida. desde un principio mi AMO ha participado en él. controla lo que cuelgo, da su visto bueno o rechaza lo que no le gusta y celebra con su propiedad lo que sí. escribo esta entrada cumpliendo directamente una orden suya, ya que a partir de ahora se dedicará a los comentarios del blog. debido a la naturaleza propia del diario, para evitar insultos o salidas de tono, los comentarios son moderados. nunca he tenido que rechazar ninguno, así que era una mera formalidad. mi AMO ha decidido que a partir de ahora EL se encargará de esa tarea. en el fondo no significa un cambio sustancial, salvo para este esclavo, que ve nuevamente como mi AMO va estrechando su cerco y me va encerrando poco a poco bajo su control. </div><div style="text-align: justify;">lo interesante es que a partir de ahora todos podrán tener un acceso directo a EL, bastará con poner un comentario y EL lo leerá, y lo publicará o no según su voluntad. en EL fondo todo depende de EL porque bastaría una palabra suya para que todo este trabajo desapareciera de la blogosfera..... y yo no podría sino darle las gracias, como le doy cada momento por haberme aceptado como esclavo y salvado como persona.</div><div style="text-align: justify;">una última palabra para seguirles animando a participar y que colaboren en este proyecto común.</div>

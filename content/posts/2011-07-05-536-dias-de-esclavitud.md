@@ -1,0 +1,10 @@
+---
+layout: post
+title: "536 días de esclavitud"
+date: 2011-07-05 22:50:00 +0000
+permalink: /2011/07/536-dias-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">mi Dueño a empezado a ejercer su control sobre mi de una forma efectiva. hoy a primera hora he ido a canjear mis puntos por una blackberry y a contratar la tarifa de internet. ahora estaré permanentemente conectado y eso significa disponible para mi Dueño. ya me ha dicho que a partir de ahora quiere un control exhaustivo de donde estoy y quiere que le pida permiso para todo. de hecho me ha prohibido comprar ningún regalo sin su consentimiento, había hecho eso al mediodía, o hacer gastos extraordinarios sin consultarselo.</div><div style="text-align: justify;">me pasé la tarde leyendo mensajes y conversaciones de fetlife y me sigue impresionando la cantidad de información contenida en esa red social. me di cuenta, viendo los comentarios de la gente, que realmente el blog es importante para mi vida de esclavo. después lo contrasté con mi Dueño y El estaba de acuerdo. la razón principal no es, que si, que pueda comunicar ideas y sentimientos, sino que me ofrece la oportunidad de controlar mi ego. desnudarme en cierta medida aquí me permite tenerlo controlado. por eso tal vez mi Dueño me ha dicho que debo escribir cuando cometa una falta, que eso forma parte de mi entrenamiento. con su infinita sabiduría ya sabía aquello que este perro ha tardado en comprender, que la humillación puede ser una herramienta importante a la hora de castigar y controlar el ego.</div><div style="text-align: justify;">mi Dueño me ha ordenado que me ordeñe con una mordaza puesta antes de acostarme, y ha sido obedecido. como otras veces no hubo gemidos, ni expresiones externas de placer, sencillamente cumplir una orden y sacar la leche de este perro, un ordeño en todo su sentido. pensaba este perro que no le permitiría hacerlo hasta que estuviera en su presencia, pero no soy quien para establecer los márgenes que pone mi Dueño, ni plantearme la razón de sus decisiones. este perro sólo debe obedecer.</div>

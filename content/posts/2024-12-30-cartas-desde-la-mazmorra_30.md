@@ -1,0 +1,10 @@
+---
+layout: post
+title: "cartas desde la mazmorra"
+date: 2024-12-30 19:14:00 +0000
+permalink: /2024/12/cartas-desde-la-mazmorra_30.html
+tags:
+  - cartas
+---
+
+<p style="text-align: justify;"> está a punto de comenzar un nuevo año y las perspectivas no son nada halagüeñas para los humanos, al menos el objeto no es nada optimista. en muchos lugares del mundo la ola conservadora va en aumento, y se ver reforzada por una juventud que está más preocupada por ser influencer que por saber algo sobre el mundo en el que vive. el objeto no va  a ser tan crédulo como caer en el principio de "cualquier tiempo pasado fue mejor", pero sí es cierto que nota como los humanos más jóvenes son más crédulos y tiene menos espíritu crítico. también es posible que eso sea lo que quieren hacer creer los poderosos a los humanos para que pierdan toda esperanza de cambio. el virus más venenoso que usa el ego para hacer que las cosas no cambien es hacerte creer que las cosas siempre han sido así y que no pueden cambiar, o está mal que cambien. lo que está percibiendo el objeto es una sociedad humana cada vez más egocéntrica, más centrada en cada uno, olvidándose de los demás. las fuerzas conservadoras, en el sentido de quienes no quieren que las cosas cambien porque ocupan puestos de poder y autoridad, parecen estar imponiendo su criterio. solo las personas que viven bien son las que quieren que nada cambie. alguien podría decir que el bdsm es eminentemente conservador, porque se basa en los criterios de poder y autoridad, pero nada más lejos de la realidad. el bdsm se basa en el cambio, en el del inferior, pero también en el del Superior, un cambio constante hacia la búsqueda de una mejor entrega y sumisión. el bdsm es un camino y todo camino implica un cambio, por eso es lo opuesto a lo conservador.</p>

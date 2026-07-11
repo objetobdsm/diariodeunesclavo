@@ -1,0 +1,10 @@
+---
+layout: post
+title: "964 días de esclavitud, 25 de castidad "
+date: 2012-09-05 22:00:00 +0000
+permalink: /2012/09/964-dias-de-esclavitud-25-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">hoy el Amo le ha preguntado a este perro qué había comido. el Dueño quiere que este perro pierda tres kilos en este mes. parece razonable, así que este perro ha comido hoy pechuga a la plancha y una ensalada. luego el Amo le ha dado unas indicaciones de lo que puede y no puede comer, así como de lo que debe comer a partir de ahora.</div><div style="text-align: justify;">estaba en la facultad cuando recibí una orden del Amo: tenía que ir al baño. no tuvo que decir el resto. este perro se llevó el pañuelo gris que siempre debe llevar en el bolso, y amordazarse con él. luego sacó tres fotos y las envió con el móvil. además le ordenó el Amo mear amordazado, para que recordara lo que es este perro y a quien pertenece. lo siguiente fueron una serie de órdenes. a partir de ahora cada vez que vaya al baño estando en la facultad tiene que ir amordazado y mear así. además, esté donde esté, debe este perro mear sentado, nunca más de pie, porque ya no es como los demás hombres. si las cabinas están ocupados, deberá esperar a que uno quede libre. orinar sentado es humillante y así mantendrá este perro presente lo que es y a quien pertenece. por tanto esta orden ha sido añadida al cuaderno de esclavitud de este perro, junto con las demás órdenes y comportamientos.</div><div style="text-align: justify;">el Dueño había avisado, a partir de ahora el control será mucho más estricto y duro. al contrario de lo que podría pensarse, este perro está encantado con que así sea, porque ese es el camino que está recorriendo. este perro no sabe qué más cosas le traerá este año, pero si el Amo ha dicho que será duro, lo será.</div>obediencia ciega para el esclavo, poder absoluto para el Amo

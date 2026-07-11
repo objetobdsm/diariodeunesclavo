@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD superioridad"
+date: 2013-12-10 09:19:00 +0000
+permalink: /2013/12/fdd-superioridad.html
+tags:
+  - FdD
+  - leather
+---
+
+<a href="/uploads/af/20/af20b65bc9e98143a87a7e9ceb0d8f703889feba99ccf87f1e8a6c9c3b54f811.jpg"><img class="aligncenter" alt="" src="/uploads/af/20/af20b65bc9e98143a87a7e9ceb0d8f703889feba99ccf87f1e8a6c9c3b54f811.jpg" width="257" height="640" /></a><br/><p style="text-align:justify;">cuando un esclavo entra a ser propiedad de un Amo, acepta la superioridad natural de éste en todos los aspectos de su vida. el Amo es quien controla, supervisa y decide la vida de su propiedad. igual que es inconcebible que un Amo pida opinión o permiso a un perro, un pájaro o un pescado, es impensable que el Amo haga lo propio con su esclavo. otra cosa distinta es si El lo quiere hacer, por cualquier razón, pero no está obligado en absoluto. esa obligación sí que existe para el esclavo, que debe obedecer todas las órdenes del Amo. antes del compromiso no es necesario hacer esto porque son dos seres que están buscando y negociando, pero una vez que se ha cerrado el collar, y el Amo tiene la llave, la vida del esclavo pasa entera por su Amo. si el esclavo se resiste, o desobedece, o no se muestra tal y como debería mostrarse y comportarse a juicio del Amo, éste tiene el derecho, y hasta diría la obligación, de castigar al esclavo para hacerle comprender que esa forma de actuar es inaceptable. el látigo, la tortura psicológica, el dolor físico por un bondage extremo, el aislamiento o la privación sensorial, son prácticas que el esclavo ha aceptado, y que en el fondo desea, para ser entrenado de forma que se desarrolle todo su potencial. estas acciones por parte del Amo pueden ser consideradas abuso antes del contrato, pero después de este son aceptadas por el esclavo y necesarias para su crecimiento. por eso es necesario pensar muy bien quien te pone el collar, a quien te vas a someter como esclavo. no todos los Amos son capaces de hacer esto, igual que no todos los esclavos lo soportan. como ha dicho el perro muchas veces, este no es camino para pusilánimes.</p>

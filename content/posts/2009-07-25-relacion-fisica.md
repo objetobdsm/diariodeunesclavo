@@ -1,0 +1,11 @@
+---
+layout: post
+title: "relación física"
+date: 2009-07-25 07:41:00 +0000
+permalink: /2009/07/relacion-fisica.html
+tags:
+  - imagenes
+  - sumision
+---
+
+<a onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}" href="/uploads/b5/48/b548b87a5a1fa852b81201680db6144f0905c6604c986ed1224893b17080ac97.jpg"><img style="display:block; margin:0px auto 10px; text-align:center;cursor:pointer; cursor:hand;width: 225px; height: 400px;" src="/uploads/b5/48/b548b87a5a1fa852b81201680db6144f0905c6604c986ed1224893b17080ac97.jpg" border="0" alt="" id="BLOGGER_PHOTO_ID_5345972121514970098" /></a><div style="text-align: justify;">una relación bdsm ha de ser física. se puede comenzar y mantener a distancia, pero en algún momento tiene que encarnarse, o desaparece y se convierte en un esperpento de lo que realmente debe ser. estas fotos me sirven para ilustrar esta idea. el tacto, el olor, la imagen, el calor deben estar presentes de alguna o de otra forma, porque en el intercambio de esas cosas se produce el intercambio del poder. el tacto del cuero, por ejemplo, es fundamental: su olor, su brillo ante determinada circunstancia, la perspectiva con la que se observa, normalmente de abajo hacia arriba para un esclavo..... sin eso algo falla. creo firmemente que se puede mantener una relación D/s a distancia porque las comunicaciones lo permiten, pero tienen que haber encuentros reales, concretos, carnales, y no se trata solo de lujuria o de sexo, no tiene que ver con eso. tiene que ver con introducir el cuerpo también en la sumisión, en dominar el cuerpo de otro y en utilizar el cuerpo como vehículo de aprendizaje, de transformación, de entrega. hoy no estoy excesivamente lúcido, pero intuyo que esta idea me seguirá rondando así que volverá a aparecer.<br /></div><a onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}" href="/uploads/37/5f/375ff0f46c70ce2008e525e0146178fe5a50641abe803e74f342f46ed62fcdd4.jpg"><img style="display:block; margin:0px auto 10px; text-align:center;cursor:pointer; cursor:hand;width: 226px; height: 400px;" src="/uploads/37/5f/375ff0f46c70ce2008e525e0146178fe5a50641abe803e74f342f46ed62fcdd4.jpg" border="0" alt="" id="BLOGGER_PHOTO_ID_5345972121215725474" /></a>

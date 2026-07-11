@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1342 de esclavitud"
+date: 2013-09-18 21:19:00 +0000
+permalink: /2013/09/dia-1342-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">4 días de castidad, 4 desde el último ordeño.</div><div style="text-align: justify;">la sumisión, o mejor dicho, la percepción de la sumisión, es algo cambiante, variable, que a veces es más intenso y a veces menos. y hoy la sumisión ha estado muy presente. la jaula es la forma más evidente para sentirla. cada vez que el perro va al baño, sentarme para orinar; cada vez que se mueve, notar que está ahí. tiene que colocársela para conducir y a veces, cuando se agacha, le pinza el escroto y le duele.</div><div style="text-align: justify;">todo eso hace la no-vida más llevadera, más pasable porque no es no-vida del todo, sino que la vida irrumpe en la no-vida y se hace presente. tratar todos los temas del trabajo, o de la no-vida con la jaula, hacen que sean más llevaderos y que el perro no olvide que es un perro y no puede aspirar a más que a eso.</div><div style="text-align: justify;">cuando la sumisión del perro, y la dominación del Dueño, coinciden en un momento álgido, la reacción puede producir chispas, pero no siempre es así, y a veces el momento alto es el del Amo y el esclavo está bajo o viceversa. en el primer caso el esclavo se somete y da placer al Amo como si él mismo estuviera en un momento similar. en el segundo, el esclavo aguanta y soporta sus ganas hasta que el Amo decida usarlo a su capricho. realmente lo único importante, de lo único de lo que el esclavo debe estar pendiente, es del ritmo de su Amo. porque desde que se convirtió en esclavo, los ritmos del Amo son los de su propia vida.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

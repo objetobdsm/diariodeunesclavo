@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3195 de esclavitud, 1167 de castidad"
+date: 2018-10-14 22:48:00 +0000
+permalink: /2018/10/dia-3195-de-esclavitud-1167-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">han pasado varias cosas hoy. ayer a última hora el Dueño envió un mensaje al objeto ordenándole que consiguiera por internet unas botas de goma roja, de las de lluvia. ha sido desde hace tiempo un deseo del Dueño y ha decidido que ya es hora de ponerlo en marcha. el objeto buscó por internet y le envió varias sugerencias al Dueño que eligió unas que venían de china, y que son muy humillantes. ese es el sentido de todo eso, que el Dueño considera muy humillantes unas botas de goma, de lluvia rojas, y quiere que el objeto las lleve. por supuesto se hará como el Dueño desea, esto existe para cumplir sus deseos así que está esperando que lleguen a la casa del Dueño a madrid y supone el objeto que en el próximo viaje las llevará puestas y será usado por el Dueño con ellas.<br/>a media tarde pasó otra cosa que sorprendió al objeto. esto expresó al Dueño su preocupación por el nuevo sistema de control que comienza mañana. el Dueño quiere que el objeto le comunique absolutamente todo: lo que hace y donde está en cada momento y esto teme fallar y no estar a la altura. fue muy extraño porque bastó que el objeto lo dijera para que el Dueño contestara que se suspende por ahora el sistema, que mañana el objeto no tiene que hacerlo. eso debe confesar que la primera reacción fue de sorpresa, pero también de decepción. sentía que había fallado al Dueño, que le había hecho dar marcha atrás, aunque tampoco era eso. las sensaciones que más se aproximan fueron sorpresa y vergüenza. el objeto no insistió ni preguntó nada al Dueño. sencillamente se calló y asumió la decisión sintiendo esto el resto de la tarde.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

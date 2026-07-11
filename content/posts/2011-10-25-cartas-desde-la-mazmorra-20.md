@@ -1,0 +1,10 @@
+---
+layout: post
+title: "cartas desde la mazmorra 20"
+date: 2011-10-25 16:55:00 +0000
+permalink: /2011/10/cartas-desde-la-mazmorra-20.html
+tags:
+  - cartas
+---
+
+<div style="text-align: justify;">esta sección del blog nació originariamente para exponer y expresar ideas del mundo bdsm en general, pero hoy este perro va a saltarse un poco este criterio y va a escribir una carta más personal.</div><div style="text-align: justify;">las cosas ocurren y uno no llega a saber realmente cómo, pero pasan. en cierta medida ocure también con la sumisión. una vez comenzado el camino de la esclavitud casi no te das cuenta de como vas yendo cada vez más abajo, como te vas convirtiendo a cada paso en un perro más sumiso, servicial, obediente y devoto.</div><div style="text-align: justify;">algo así está pasando en la vida de este perro. los últimos acontecimientos de su no vida no sólo no lo alejan de su objetivo sino que lo acerca a él. y esto ocurre en dos direcciones. la primera de ellas es que mi Amo, mi Dueño, está ahí, al lado de su perro apoyando, sosteniendo, preocupándose, orientando, dirigiendo, ordenando, acariciando cuando hace falta, sacudiendo cuando es necesario, acompañando, siempre presente. </div><div style="text-align: justify;">por otro lado todo esto que está ocurriendo en mi no vida está poniendo las cosas en su sitio, relativizando, estableciendo prioridades y diciendo lo que es importante y lo que no. hoy este perro puede decir que el Gran Salto está más cerca, más próximo, que es "más fácil". las ataduras, no las buenas, las hechas por mi Amo, sino aquellas que no se ven y que te mantienen realmente esclavos. todo esto está sirviendo para clarifica las cosas y las personas.</div><div style="text-align: justify;">hoy, más que nunca, la posibilidad de escribir efectivamente desde una mazmorra está más cerca.</div><div style="text-align: justify;">sumisión en silencio y obediencia. </div>feliz semana

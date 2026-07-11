@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5594 de esclavitud, castrado permanentemente"
+date: 2025-05-09 22:46:00 +0000
+permalink: /2025/05/dia-5594-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> mi Amo y Señor es humano, y por tanto no es perfecto, aunque para el objeto lo sea. no, los Amos no son superheroes ni tienen sus momentos y sus etapas. mi Señor lleva algunos días con muchos problemas y al objeto le hubiera gustado poder ayudar más pero hace lo que puede. la conexión que hay entre los dos ha funcionado todo el día; y es tan intensa que el objeto ya no distingue cuando se debe al objeto y cuando al Amo. tampoco tiene mucho sentido descifrar esto porque, sea como sea, el objeto tiene que poner de su parte para que su Amo esté bien.</p><p style="text-align: justify;">el objeto ha ido a la oficina, por primera vez esta semana. el resto de los días ha trabajado en casa y ha estado aislado y en silencio. hoy sin embargo ha sido diferente, muy diferente. las compañeras no paraban de hablar y el objeto apenas ha podido concentrarse. además ha recibido varias llamadas que no ha podido contestar porque no hay un mínimo de privacidad en ningún sitio. como ha habido un cambio de jefe esto espera que ese cambio signifique también un cambio en las condiciones de trabajo, aunque esto no lo cree, sencillamente porque no hay medios suficientes.</p><p style="text-align: justify;">por la tarde el objeto tuvo la llamada a capítulo que tiene todos los viernes o sábados. en principio no iba a tener lugar porque mi Señor no podía, pero al final si pudimos hacerla y fue muy gratificante y aleccionadora. el objeto puso bajo las botas de mi Señor sus faltas y éste le adoctrinó sobre algunos aspectos que ayudaron mucho al objeto. </p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega</p>

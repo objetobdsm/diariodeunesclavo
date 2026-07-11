@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 4431 de esclavitud, castrado permanentemente"
+date: 2022-03-03 22:06:00 +0000
+permalink: /2022/03/dia-4431-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<div dir="auto" style="text-align: justify;"><div dir="ltr"><div>el objeto está muy cansado de tanta humanidad. cada vez le resulta más difícil estar una semana codeándose con los humanos y su comportamiento. es como si el Dueño le hubiera abierto los ojos sobre las motivaciones y los comportamientos humanos y ahora el objeto no pudiera soportarlo. cada vez se sorprende más de la fuerza que tiene el ego, de su protagonismo en todas las relaciones, las interacciones de los humanos, en su forma de reaccionar. y cada vez se sorprende más el objeto de cómo pasa desapercibido, de como la gente no se da cuenta de lo que está pasando de como el ego los manipula, de como les hace ver y creer que son lo que no son.<br />el objeto no es nadie para juzgarlos, y mucho menos siendo humanos que los convierte automáticamente en Superiores. el objeto sólo sabe que no quiere volver a ese mundo, a esa forma de vivir y que cada vez es más difícil para esto codearse con los humanos. el objeto solo quiere obedecer al Dueño, y que Éste controle todos y cada uno de los aspectos de su vida, de su existencia. la única forma de hacerlo es viviendo encerrado y aislado del mundo exterior, al menos eso le ha dicho el Dueño, pero no lo ha planteado como una opción sino como un destino inevitable. <br />ese destino lo va a vislumbrar el objeto próximamente porque el Dueño ha ordenado que vuelva a reservar un billete para ir a servirle el fin de semana del 18 al 20 de este mes. en teoría tendría que haber ido en febrero pero el Dueño decidió suspender el viaje debido a aquel contratiempo médico del objeto, que está más o menos resuelto. al menos el objeto se siente mucho mejor y también necesita ponerse bajo sus botas.<br />sumisión en silencio, castidad y obediencia ciega. </div></div></div>  

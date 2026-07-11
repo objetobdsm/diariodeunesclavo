@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1742 de esclavitud, 189 de castidad"
+date: 2014-10-21 22:46:00 +0000
+permalink: /2014/10/dia-1742-de-esclavitud-189-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">un día largo, muy largo, de 14 horas de trabajo. el perro salió de casa a las siete de la mañana y volvió a las nueve y media de la noche. en ese intervalo ocurrió de todo: varios asuntos urgentes, reuniones, emails, llamadas de teléfono, conversaciones importantes y triviales... todo lo que se le pudiera pedir a una no-vida.<br/>sin embargo, y como ya viene siendo habitual, algo hacía que todo esto fuera suficiente: la jaula y las botas. incluso hoy en el trabajo alguien me preguntó. ¿puede que se hayan olvidado que siempre las llevaba apenas en un mes de vacaciones?. es cierto que durante el verano el Dueño ordenó al perro llevar zapas, y la semana de castigo ha prolongado este periodo, pero aún así, unas botas sendra no son fácil de olvidar.<br/>el hecho es que si es verdad que con ellas el perro pisa más fuerte, va más seguro, se siente más apoyado. realmente es una tontería, lo sabe, porque en su mente es consciente de que sólo es un calzado, un trozo de cuero con una forma determinada. sin embargo su ser fetichista dice que no es así, que ese objeto está lleno de significado, que lo lleve porque su Dueño, su Propietario, su Amo, lo quiere así, y quiere que se identificado como un botero, y que no se deje pisar por nadie, ni por nada y que está por encima de los demás, porque así lo desea El.<br/>las botas obran su magia y siendo sólo un objeto, han mantenido en pie al perro durante 14 horas y han hecho que no desfallezca en absoluto y consiga sobreponerse a todo lo que se le presenta.<br/>por todo eso no puede sino darle gracias al Dueño, por estar ahí ¿qué le gustaría justo en estos momentos estar encadenado y amordazado a sus pies? sin duda, pero las botas son un "sustitutivo" de esa vida que es la real y que llegará, tarde o temprano llegará.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,8 @@
+---
+layout: post
+title: "FdD ortodoxia"
+date: 2022-09-12 06:22:00 +0000
+permalink: /2022/09/fdd-ortodoxia.html
+---
+
+<div dir="ltr"><div style="text-align: center;"><a href="/uploads/5d/25/5d251e8d5f63d97f9e4be0175b6ec82123b4464988f0941ff60067de2bb16c78.jpg"><img alt="" border="0" height="640" id="BLOGGER_PHOTO_ID_7143117031345257426" src="/uploads/98/3d/983d7c6f9aa41397320145608310be7648e8739a1e9485e7c76918edd14819eb.jpg" width="640" /></a><br /></div><div style="text-align: justify;">la ortodoxia es seguir los rectos caminos o normas de algo, lo estricto, lo justo, lo tradicional. alguien ortodoxo es que sigue las normas comúnmente aceptadas y no se arriesga a innovar o a alterar esas normas. resulta irónico que podamos hablar de una ortodoxia en el bdsm, que por definición se mantiene fuera o lejos de las normas de la sociedad en general. sin embargo sí que existe, fruto de una historia. la aparición de la ortodoxia tiene que ver con el paso del tiempo y la sucesión de generaciones. normalmente las nuevas quieren innovar, una vez educados en los principios existentes antes de que ellos llegaran. por eso se habla de Old Guard, y de New Guard. por eso se considera el cuero más ortodoxo que el latex y por eso lo ortodoxo es que el esclavo lleve un collar o cadena al cuello. también resulta ortodoxo que el Superior tenga más edad que el inferior y, por ejemplo, si usan gorra, una esté decorada y otra no, mostrando así un estado superior en el escalafón y una mayor autoridad. toda esta reflexión viene a colación porque la foto del día de hoy muestra la más pura ortodoxia en el bdsm, pero como siempre, todo depende del Amo, de Sus deseos y de Sus gustos. no puede ponerse nada por encima de los Amos.</div></div>  

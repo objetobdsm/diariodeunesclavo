@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2931 de esclavitud, 903 de castidad"
+date: 2018-01-23 22:32:00 +0000
+permalink: /2018/01/dia-2931-de-esclavitud-903-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">si normalmente regresar de servir al Dueño es duro, hacerlo en una semana de mucho trabajo lo es mucho más. al menos queda el consuelo del grupo de cuereros. al final, a instancias de goma y con permiso del Dueño, el objeto pudo entrar en el grupo leather que ha organizado la última quedada, y espera el objeto que las futuras también. ya sólo pertenecer a este grupo y ver a gente, casi 50, con los mismos gustos, las mismas tendencias y los mismos apetitos que uno, es gratificante.<br/>la gente piensa que los fetichistas somo gente rara y extraña, sombríos, pervertidos de tomo y lomo que vivimos marginados y una existencia triste. pero no es así. están equivocados. este grupo demuestra que somos gente "normal", sociables, amables, participativos y que podemos formar comunidad, porque salvo por el tema del cuero, podría ser el chat de cualquier grupo con un interés común.<br/>la participación es mucha y hay algunos especialmente activos. el objeto muestra un discreto papel porque, también aquí, intenta vivir en silencio, como si estuviera amordazado. eso es lo que ha ordenado el Dueño y lo que hace el objeto, en sumisión y obediencia.<br/>al objeto le encantan estas dos palabras: sumisión y obediencia. son los pilares sobre los que se asiente su existencia. el Dueño ha ido domando, colonizando, entrenando, modelando al objeto. realmente todos estos verbos son válidos pero insuficientes para expresar lo que ha hecho con esto.<br/>ha sido un trabajo privado, silencioso, durante ocho años, que no ha tenido mayor repercusión que este blog. si fuéramos a las quedadas del grupo leather sería un paso en cuanto a la sociabilidad, y tal vez mayor repercusión hacia el exterior. lo bueno de esto es que tampoco está en manos del objeto gestionarlo ni decidirlo, sino del Dueño.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

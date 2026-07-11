@@ -1,0 +1,10 @@
+---
+layout: post
+title: "Algunas imágenes para animar el lunes"
+date: 2007-05-06 22:15:00 +0000
+permalink: /2007/05/algunas-imgenes-para-animar-el-lunes.html
+tags:
+  - imagenes
+---
+
+<a href="/uploads/b8/a1/b8a1ce88cf9748e8b058144e6353c1eaf383b86f33a436403134c70922928953.jpg"><img id="BLOGGER_PHOTO_ID_5061575796852791842" style="DISPLAY: block; MARGIN: 0px auto 10px; CURSOR: hand; TEXT-ALIGN: center" alt="" src="/uploads/b8/a1/b8a1ce88cf9748e8b058144e6353c1eaf383b86f33a436403134c70922928953.jpg" border="0" /></a><br /><a href="/uploads/23/ff/23ffe0fe9ebef15ea407d2cda5d4e92182f93f510d116f3b4c8fa7235391b7b9.jpg"><img id="BLOGGER_PHOTO_ID_5061575796852791858" style="DISPLAY: block; MARGIN: 0px auto 10px; CURSOR: hand; TEXT-ALIGN: center" alt="" src="/uploads/23/ff/23ffe0fe9ebef15ea407d2cda5d4e92182f93f510d116f3b4c8fa7235391b7b9.jpg" border="0" /></a><br /><a href="/uploads/cc/d3/ccd3c77b15154a3d8da8758b119fe32cb66007f8eda0634e99824bd158e4053c.jpg"><img id="BLOGGER_PHOTO_ID_5061575796852791874" style="DISPLAY: block; MARGIN: 0px auto 10px; CURSOR: hand; TEXT-ALIGN: center" alt="" src="/uploads/cc/d3/ccd3c77b15154a3d8da8758b119fe32cb66007f8eda0634e99824bd158e4053c.jpg" border="0" /></a><br /><a href="/uploads/21/89/218950b3636f44cb97ac95b14ad755439b2a148fd2c07efc4df1d4afbf2dd068.jpg"><img id="BLOGGER_PHOTO_ID_5061575801147759186" style="DISPLAY: block; MARGIN: 0px auto 10px; CURSOR: hand; TEXT-ALIGN: center" alt="" src="/uploads/21/89/218950b3636f44cb97ac95b14ad755439b2a148fd2c07efc4df1d4afbf2dd068.jpg" border="0" /></a><br /><div><a href="/uploads/8a/d3/8ad371bb730aa622fad6cac18d33a7c04ca5e1f850af1c93b82d74e81555b5b1.jpg"><img id="BLOGGER_PHOTO_ID_5061575182672468498" style="DISPLAY: block; MARGIN: 0px auto 10px; CURSOR: hand; TEXT-ALIGN: center" alt="" src="/uploads/8a/d3/8ad371bb730aa622fad6cac18d33a7c04ca5e1f850af1c93b82d74e81555b5b1.jpg" border="0" /></a> todas estas fotos están sacadas de internet, así que supongo que son libres. si no es así ponte en contacto con el blog y las retiro de inmediato.<br /><div></div></div>

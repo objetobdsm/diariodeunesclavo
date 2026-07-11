@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5502 de esclavitud, castrado permanentemente"
+date: 2025-02-06 23:34:00 +0000
+permalink: /2025/02/dia-5502-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> toda la mañana reunido y toda la tarde en clase, así que poco pudo hacer el objeto sobre otras cosas que tenía pendientes, muchas cosas pendiente. pero no se agobia ni se estresa. la reunión fue productiva y la clase muy interesante así que todo estaba en su sitio. lo que sí nota el objeto es el cansancio acumulado de estos viajes de trabajo tan intensos. aunque el hotel está espectacular, y duerme muy bien, a veces un montón de horas, no hay nada como dormir en casa. además ayer pasó algo que merece ser reseñado. en esta ocasión el hotel estaba en obras y al objeto le dieron una habitación que más que habitación era un suite. tenía una entrada que daba al baño y luego otra que daba a un pequeño saloncito y luego estaba la habitación con la cama. no dejaba de ser una habitación de hotel pero el objeto pensó en el espacio y se le ocurrió que podría ser una mazmorra, no por el lujo de la misma sino por la distribución y el espacio en sí. habría sitio para una jaula, para un potro, para todo el material que ya acumula mi Señor. pero también habría sitio para trabajar el objeto en un rincón, tal y como desea mi Señor. el objeto le mandó un video a mi Señor y este le dijo que como pensaba que eso podría ser una mazmorra. posiblemente el objeto se expresó mal y mi Señor pensó que se refería al lujo y a los muebles, pero esto estaba pensando en el espacio. en cualquier caso le sirvió para darse cuenta que había pensado más de la cuenta, que las dimensiones de la mazmorra en la que exitirá el objeto no son de su incumbencia, ni está bajo su control; y que sugerir algo es ir contra natura, porque un objeto no sugiere, acepta y se somete a la voluntad de mi Señor.</p><p>sumisión en silencio, castidad y obediencia ciega.</p>

@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD de cacería"
+date: 2025-05-25 08:24:00 +0000
+permalink: /2025/05/fdd-de-caceria.html
+tags:
+  - FdD
+  - leather
+---
+
+<p> </p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/84/c4/84c4bd7654445654edf058ffc9390f0a35938d8b385509afa12d7698c5687817.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="918" data-original-width="640" height="640" src="/uploads/07/d4/07d4ce24cbb77b851e4f0719ee417984e5594cd080f38f989d418ca221063757.jpg" width="446" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: justify;">los lugares solitarios siempre han sido los preferidos por los seguidores del bdsm: sótanos, callejones, almacenes abandonados, carreteras oscuras donde hacer cruising. son lugares peligrosos pero si uno es temeroso y solo quiere ser cuidadoso, si nunca estás dispuesto a meterte en problemas mejor no te inicies en el bdsm. en cierta medida los Amos son predadores, cazadores, porque son ellos lo s que llevan la iniciativa, y lo que ostentan el poder. nosotros, los sumisos e inferiores, somo apenas presas que estamos a su merced. es cierto que la negociación debe darse al principio y que las dos partes deben estar de acuerdo. si no sería violación. pero no es menos cierto que la asimetría de la relación ya aparece desde el primer momento. en los locales de ambiente leather hay sumisos que van de divas, que llegan allí como si fueran ellos los que eligen. un esclavo de verdad nunca elige, es elegido. y entonces sí que puede aceptar o no, dependiendo de lo que vea, sienta o crea. es así como ocurren las cosas independientemente de que queramos  o no. un Amo puede irse a casa porque la presa que eligió no estaba preparada aún, o no estaba disponible pero nunca será al contrario, el esclavo nunca se irá con el Amo que elija porque eso hace que la relación esté viciada desde el principio y posiblemente acabe mal.</div><br /><p></p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3094 de esclavitud, 1066 de castidad"
+date: 2018-07-05 22:10:00 +0000
+permalink: /2018/07/dia-3094-de-esclavitud-1066-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">cuando el objeto ha enviado una foto suya amordazado la respuesta del Dueño ha sido categórica y determinante: "Así deberías estar siempre. Tu boca me molesta. Es como tu sexo". ya está claro, por su había alguna duda. primero el Dueño castró al objeto con la jaula y ahora le toca el turno a su boca. de hecho lo ha dicho, que buscará un sistema para tener la boca del objeto "enjaulada" todo el tiempo. lo más sorprendente, que no lo es, es que el objeto no rechaza esto, sino que al contrario, lo desea. desea que el Dueño selle su boca con una "jaula" como lo hizo con su apéndice, de forma que ya no lo controle y que no pueda hablar sino cuando El lo desee. uno sabe que se encuentra completamente sometido cuando sus deseos no tienen importancia y siempre antepone los deseos, las ideas y los valores del Superior a los que tenía anteriormente. el objeto sigue teniendo memoria y sabe que este rechazo al habla no fue siempre así, de hecho ni se lo planteó hasta que el Dueño abrió esa puerta, ese camino, y entonces empezó la transformación en un proceso muy similar al que lo llevó a abrazar la castidad y considerarla necesaria. el tiempo entre ambos procesos ha sido menor, lo que prueba el entrenamiento y el control del Dueño. la objeto le costó más aceptar que estaba castrado que entender que sus palabras no tiene sentido. el hecho es que ya sólo queda el silencio porque el objeto ha empezado a sentirse vacío los días que habla más de la cuenta. ahora está castrado y mudo y será así hasta que el Dueño decida.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

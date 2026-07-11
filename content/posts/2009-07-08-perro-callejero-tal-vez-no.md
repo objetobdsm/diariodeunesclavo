@@ -1,0 +1,13 @@
+---
+layout: post
+title: "¿perro callejero? tal vez no"
+date: 2009-07-08 17:26:00 +0000
+permalink: /2009/07/perro-callejero-tal-vez-no.html
+tags:
+  - personal
+  - dominacion
+  - esclavitud
+  - sumision
+---
+
+<div style="text-align: justify;">escribo esta entrada cumpliendo una orden, y por tanto siendo obediente. no por eso lo hago con pena o tristeza, sino al contrario, con alegría y orgullo. ya no soy un perro tan callejero. un Amo se ha fijado en este perro y está tomando en <span class="blsp-spelling-error" id="SPELLING_ERROR_0">consideración</span> tomarlo bajo su protección para ser entrenado y sometido. <span class="blsp-spelling-error" id="SPELLING_ERROR_1">ILARA</span> es un amo que vive en <span class="blsp-spelling-error" id="SPELLING_ERROR_2">madrid</span>, nuevamente la distancia es un <span class="blsp-spelling-error" id="SPELLING_ERROR_3">handicap</span>, pero no siempre se encuentra lo que se busca al lado de casa y cuando lo que se busca te encuentra a <span class="blsp-spelling-error" id="SPELLING_ERROR_4">tí</span>, no se puede rechazar por unos kilómetros. desde hace algunas semanas estamos en contacto diario por diferentes medios y siento como si se hubiera fijado en mi desde siempre, y me conociera mejor que yo mismo, y supiera qué tecla apretar para que mis piernas tiemblen y desee someterme <span class="blsp-spelling-error" id="SPELLING_ERROR_5">radicalmente</span>. es amante del <span class="blsp-spelling-error" id="SPELLING_ERROR_6">bondage</span>, el cuero y las botas, pero lo más importante es que es un <span class="blsp-spelling-error" id="SPELLING_ERROR_7">AMo</span> auténtico, que busca la sumisión real, física y psicológica, del esclavo. todo lo demás va en función de eso. y en eso coincidimos plenamente. no sé cómo lo ha conseguido pero mi mayor temor es ofenderle, molestarle o <span class="blsp-spelling-error" id="SPELLING_ERROR_8">sencillamente</span>, no buscar su bien y su felicidad. aún no hemos firmado contrato, ni nada por el estilo, pero me asusta hacerlo porque las exigencias serán duras y muchas, radicales diría yo. pero EL juega a ese nivel, y es el nivel que este perro busca y necesita. EL me ordenó que comunicara que soy un perro que ya no es callejero. siguiendo con la metáfora soy un perro que está en una jaula en la tienda y que un cliente está sopesando adquirir. siento que en poco tiempo he avanzado como perro más de lo que imaginaba. es como si hubiera retomado el proceso justo donde terminó <span class="blsp-spelling-error" id="SPELLING_ERROR_9">anteriormente</span>. realmente me siento un perro afortunado. </div>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1981 de esclavitud, 68 de castidad"
+date: 2015-06-18 22:28:00 +0000
+permalink: /2015/06/dia-1981-de-esclavitud-68-de-castidad.html
+tags:
+  - personal
+---
+
+hacía mucho tiempo que el perro no se pasaba toda una tarde en la universidad leyendo y escribiendo. hoy pudo hacerlo y fue como reencontrarse con un viejo amigo. el perro fue a trabajar por la mañana y luego comió en la universidad. tenía una reunión a las ocho allí mismo así que se quedó el perro trabajando toda la tarde. se imaginó que estaba encerrado por el Dueño y así estuvo, en silencio, concentrado en los papeles toda la tarde. el perro tiene un tipo de trabajo intelectual. a pesar de lo morboso que podría ser realizar un trabajo manual, eso no es lo que hace el perro. y el Dueño lo sabe y lo explota. de hecho, uno de los argumentos que dice para querer sacar al perro de su no vida y centrarlo en su vida, es decir, tenerlo encerrado y controlado por El en todo momento, es para explotar el "talento" que dice tiene el perro para escribir sin distracciones. hoy el perro pudo vislumbrar de nuevo esa vida y le gustó, le gustó mucho. pensó en el Dueño y en hacer lo mismo todos los días encerrado en una habitación, en una mazmorra tal vez, un sótano donde el perro pasará gran parte de su tiempo, siempre encerrado y dispuesto a ser usado por el Dueño cuando El quiera. mientras tanto, el perro trabajaría y escribiría, leería y estudiaría produciendo para que el Dueño se sintiera orgulloso del perro.<br/>la realidad es que el perro tiene muchas ideas en su mente, muchos proyectos que desearía realizar pero que tiene limitados por la falta de tiempo. la no-vida, la esclavitud a la que nos somete este sistema despiadado, hace que cualquier acto mínimamente creativo requiera un enorme esfuerzo, y no siempre es posible realizarlo.<br/>al menos el perro tiene estos pequeños ratos, estos momentos de dedicación a su vida, con la jaula omnipresente, siempre ahí, dispuesta a recordarle en cada momento, si tiene la imprudencia de olvidarse, lo que el perro es y a quien pertenece.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.

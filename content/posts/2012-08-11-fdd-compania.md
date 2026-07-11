@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD compañía"
+date: 2012-08-11 06:23:00 +0000
+permalink: /2012/08/fdd-compania.html
+tags:
+  - FdD
+  - jaulas
+---
+
+<div style="text-align: justify;"><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/92/4f/924fc886f5f2c57a079b8b447a0b9533844308b09ba46fb9f21ca4db11004551.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/92/4f/924fc886f5f2c57a079b8b447a0b9533844308b09ba46fb9f21ca4db11004551.jpg" /></a></div>la esclavitud no tiene por qué ser un camino en solitario, aunque normalmente lo es. desde luego es imposible que un esclavo pertenezca a dos Amos, a menos que entre éstos haya una relación que les permita compartir sus propiedades. lo que si es muy posible es que un Amo tenga varios esclavos. entonces aparece el concepto de "cuadra", que utilizan algunos, aunque al Dueño le gusta más el concepto de "casa", no como lugar físico sino más en sentido medieval como cuando los nobles se referían a sus propiedades, criados, servidores, caballos, hombres de armas.... así, había gente que pertenecía a la casa de alba, o de montijo, o de medina sidonia. los miembros de una casa se reconocían porque llevaban el mismo distintivo. esta idea también está presente en la antigüedad, cuando la esclavitud era legal. el concepto de "casa" incluía a los esclavos, y había una jerarquía entre ellos. el jefe de los esclavos era normalmente el esclavo de mayor confianza del Amo y él adiestraba y mantenía el orden entre los restantes esclavos. hoy en día en que la esclavitud no es legal, lo cual no significa que no pueda ser real, se utilizan otros conceptos, siendo el de "manada", tal vez el más curioso. en una manada hay una jerarquía, pudiendo ser un esclavo el alfa de la misma. ésta es la única forma de que un Amo pueda tener varias esclavos, porque entrenar a un esclavo es algo agotador y un Amo no tiene necesariamente que encargarse de eso, para eso también están sus servidores.</div>

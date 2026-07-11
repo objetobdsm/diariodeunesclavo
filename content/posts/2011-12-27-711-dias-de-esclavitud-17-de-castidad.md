@@ -1,0 +1,10 @@
+---
+layout: post
+title: "711 días de esclavitud, 17 de castidad"
+date: 2011-12-27 23:30:00 +0000
+permalink: /2011/12/711-dias-de-esclavitud-17-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">sólo han pasado 17 días en castidad ¿sólo? y este perro ha sufrido una experiencia que tenía olvidadas. a veces me siento como un niño, y no sólo por mi dependencia de mi Dueño, sino proque me ocurren cosas que pueden interpretarse como de adolescentes. cualquier otro podría sentirse humillado ante esta afirmación, pero ¿tiene sentido este hecho en un esclavo que aspira a hacer desaparecer su ego?</div><div style="text-align: justify;">el hecho es que, por prisas, fuí al baño a orinar, terminé rápidamente y salí. entonces noté cómo empezaba a supurar ya con los calzoncilloa puestos. efectivamente me los había manchado con lo que parecía líquido preseminal, pero no lo era porque incluso es más denso. este perro se sintió un poco avergonzado, pero inmediatamente pensó que no tenía sentido sentirme así, siendo como soy, un perro esclavo. este es el trabajo interior que tengo que hace, que de hecho estoy haciendo: desaparecer mi ego, desmontarlo, deconstruirlo, dejarlo de lado.</div><div style="text-align: justify;">hoy además, este perro ha pensado en su situación. ante una insinuación de su Amo comenzó a pensar si realmente podría salir de mi situación actual de esclavitud, y creo que no podría. no sé si eso significa que ha llegado al punto de esclavitud interior tal que soy incapaz de vivir como un ser "libre". siento que eso ya ha pasado, que no podría ser libre nunca más. no podría, además, escapar de mi AMO. entre nosotros no ha habido una ceremonia en la que El me impusieran el collar, en sentido esricto. sencillamente ocurrió. lo llamé Amo, Dueño y El me llamó perro, y eso fue otod. pero ya no podré salir, ya no podré quitarme el collar. tendrá que ser El quien me lo quite.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

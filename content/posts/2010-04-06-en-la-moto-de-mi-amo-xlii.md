@@ -1,0 +1,10 @@
+---
+layout: post
+title: "en la moto de mi AMO XLII"
+date: 2010-04-06 06:55:00 +0000
+permalink: /2010/04/en-la-moto-de-mi-amo-xlii.html
+tags:
+  - ficción propia
+---
+
+<div style="text-align: justify;">no sé si era porque el butt-plug era más grande de lo que pensaba o si fue porque mi AMO se deleitaba con mis gemidos mientras lo sacaba, pero tardó una eternidad, extendiendo el dolor hasta el extremo. irónicamente cuando salió del todo el dolor se intensificó haciéndome gritar y agitarme. noté el aire en mi culo dilatado y cómo las gotas de sudor caían por las nalgas. respiraba agritadamente, intentantdo reponerme, cuando noté de nuevo otra presión. supe inmediatamente que era la polla de mi AMO. iba a follarme y me preparé. entró sin ningún problema. me gubiera gustado volver la cabeza para ver su cara de placer pero la correa la mantenía bien sujeta al potro. las embestidas empezaron y yo sólo pude relajarme para que EL pudiera follarme bien. intenté moverme al ritmo de mi AMO pero sólo pude dejar que El hiciera e impusiera el ritmo. pasaron unos minutos en los que fui excitándome cada vez más. entré en una especie de trance que siempre se produce cuando me follan, especialmente cuando lo hace mi AMO. mis genitales se mezclaron con los suyos y las oleadas de placer recorrían mi cuerpo, que se movía al ritmo de las embestidas. cerré los ojos para concentrarme y sentir aún más cómo me poseía. mi respiración era muy agitada y sudaba abundantemente. entonces abrí los ojos y lo vía, allí, al lado mio, mirándome desde arriba. tenía las manos en el cinturón y sonreía maliciosamente. tardé unos segundos en darme cuenta de que noe ra EL quien me follaba. sentí como una mezcla de emociones me inundaba: frustración, impotencia, decepción, sorpresa, y muchas cosas más. pero fue tal vez la humillación el más presente. me sentí muy humillado. no podía hacer nada. me limité a cerrar los ojos de nuevo mientas me seguían follando salvajemente. si EL lo quería así, así sería. se cumpliría su voluntad. lo último que sentí fue su mano sobre mi cabeza mientras oía los últimos gemidos del que se corría.</div>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "un año sin amor 5"
+date: 2012-11-16 14:32:00 +0000
+permalink: /2012/11/un-ano-sin-amor-5.html
+tags:
+  - videos
+---
+
+<div class="separator" style="clear: both; text-align: center;"><object width="520" height="466" class="BLOG_video_class" id="BLOG_video-54ca516bf697e4ab" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=6,0,40,0"><param name="movie" value="//www.youtube.com/get_player"><param name="bgcolor" value="#FFFFFF"><param name="allowfullscreen" value="true"><param name="flashvars" value="flvurl=http://redirector.googlevideo.com/videoplayback?id%3D54ca516bf697e4ab%26itag%3D5%26source%3Dblogger%26app%3Dblogger%26cmo%3Dsensitive_content%253Dyes%26ip%3D0.0.0.0%26ipbits%3D0%26expire%3D1355491493%26sparams%3Did,itag,source,ip,ipbits,expire%26signature%3DA2DF798C0F8DBF7D4BE47A76A4B943BE1C93D99.30BC6ABC38B35F5946E2C67CC0471DF30A781A7E%26key%3Dck1&iurl=http://video.google.com/ThumbnailServer2?app%3Dblogger%26contentid%3D54ca516bf697e4ab%26offsetms%3D5000%26itag%3Dw160%26sigh%3Dg02YXK8RQVcdsuJEJusA3dsDG2Q&autoplay=0&ps=blogger"><embed src="//www.youtube.com/get_player" type="application/x-shockwave-flash" width="520" height="466" bgcolor="#FFFFFF" flashvars="flvurl=http://redirector.googlevideo.com/videoplayback?id%3D54ca516bf697e4ab%26itag%3D5%26source%3Dblogger%26app%3Dblogger%26cmo%3Dsensitive_content%253Dyes%26ip%3D0.0.0.0%26ipbits%3D0%26expire%3D1355491493%26sparams%3Did,itag,source,ip,ipbits,expire%26signature%3DA2DF798C0F8DBF7D4BE47A76A4B943BE1C93D99.30BC6ABC38B35F5946E2C67CC0471DF30A781A7E%26key%3Dck1&iurl=http://video.google.com/ThumbnailServer2?app%3Dblogger%26contentid%3D54ca516bf697e4ab%26offsetms%3D5000%26itag%3Dw160%26sigh%3Dg02YXK8RQVcdsuJEJusA3dsDG2Q&autoplay=0&ps=blogger" allowFullScreen="true" /></object></div><div class="separator" style="clear: both; text-align: left;">en esta escena por fin pablo queda con martín, que lo domina y usa como esclavo.</div><br />

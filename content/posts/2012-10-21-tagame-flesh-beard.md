@@ -1,0 +1,10 @@
+---
+layout: post
+title: "tagame flesh + beard"
+date: 2012-10-21 13:39:00 +0000
+permalink: /2012/10/tagame-flesh-beard.html
+tags:
+  - tagame
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/74/b0/74b0b96777db0b5a4650ab822417f7c66176841d3d53a388a70caaf57db4c21f.png" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/5c/da/5cdac9fcf668845433453d5a2eaf0bf7f711b6b591c639782d335c9f90bfe414.png" width="428" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/fd/6e/fd6e3ead85c3ee0755d90b16c829acd7438d586a4cab6072d35a1967bf053370.png" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/c5/65/c565264bfaac2f5bd15ae4c0c5c866f11afa7ee03fdf0e79652d664867f1e778.png" width="430" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/77/b3/77b31f4e30ee749f66bec0183721c14f3d1686413724e817a7d7f323667610fe.png" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/dc/77/dc77b2fee0252e1290e1ce66a7d30cef5c7133dd2cd0ef536cd3b5d45d44bb46.png" width="426" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/d1/19/d119759274eaf84c31996dbcc2a664bbe3bc5f2e272f1312af571fbf3b5b4ce9.png" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/1a/b5/1ab58f27e6809828240ebbf87156c2f19adb0d9b3b02d096a81b14bdea826105.png" width="432" /></a></div><div style="text-align: justify;">nueve historias de tagame en un solo pdf. algunas ya se han publicado en el blog, pero merece la pena tenerlas todas juntas. altamente recomendable. para descargar el archivo <a href="http://dl.dropbox.com/u/39613625/%5BTagame%5D%20flesh%20%2B%20beard.pdf" target="_blank">pincha aquí.</a></div>

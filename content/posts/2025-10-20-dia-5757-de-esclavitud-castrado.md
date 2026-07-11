@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5757 de esclavitud, castrado permanentemente"
+date: 2025-10-20 22:43:00 +0000
+permalink: /2025/10/dia-5757-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> la esclavitud voluntaria es un camino y un proceso que va pasando por etapas, por momentos. a veces se es consciente de que está cerrándose una etapa y está comenzando otra. el objeto se encuentra en una de ellas, en uno de esos momentos. la característica principal de este momento es la aceptación profunda de su propia naturaleza y el hecho de que está en ataraxia profunda. el objeto puede afirmar, hoy, que solo ha sido feliz estando bajo las botas del Amo y estando sometido a Él. esto no es contradictorio con la ataraxia porque la felicidad no es un sentimiento, es un modo de existir, y ese modo de existir está marcado, en el caso de este objeto, por mi Señor. Él decide que, cuando, como, donde y sobre todo, por qué. el objeto da forma a esto diciendo que mi Señor es quien decide la realidad en que vive su objeto. por supuesto no está tan desequilibrado como para decir que el Amo crea una pared por decisión suya, pero sí tiene el poder de decir que esa pared es un obstáculo, una oportunidad para pintar algo o algo contra lo que el objeto tenga estrellar la cabeza. todos creamos al realidad en la que vivimos pensando y dando sentido a lo que nos encontramos. en el caso del objeto ese sentido lo da el Amo. </p><p style="text-align: justify;">hoy el Amo ha recalcado que el objeto debe vivir en el mayor silencio posible, de la forma más sencilla posible, sometido permanentemente a Su Voluntad y a Sus Deseos. el Amo solo busca lo mejor para su objeto y por tanto el objeto se debe completamente al Amo.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3384 de esclavitud, 1356 de castidad"
+date: 2019-04-21 22:03:00 +0000
+permalink: /2019/04/dia-3384-de-esclavitud-1356-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el objeto fue hoy a entrenar. Fue una sesión doble al terminar, aprovecho para ir a la piscina, a los chorros, porque tenía un ligero dolor de espalda y eso ayuda mucho. la cuestión es que, al quitarse el calzoncillo para ponerse el bañador apareció la jaula. el objeto intenta tapársela lo más posible pero no rechaza que alguien pudiera haberle visto.<br/>el objeto es consciente que algunos Amos y Su­periores, ordenan a mis inferiores en castidad, a no ocultar su jaula en situaciones similares. sin embargo el Dueño no ha ordenado nada al respecto y hay mucha gente conocida en el gimnasio al que va el objeto. incluso tapándose con la toalla, el objeto sabe que el bulto que produce bajo el bañador no era normal así que cualquiera que se fijara se daría cuenta de que algo pasaba ahí abajo. posiblemente solo los bdsmeros, y no todos, podrían decir que se trataba de un dispo­sitivo de castidad. una vez en la piscina de chorros el objeto se encontró rodeada de varios alphas, hombres masculinos, machos dominantes ante los que un objeto se siente incluso más pequeño aún. entre los presentes había uno que tenía el cuerpo más bonito que ha visto el objeto en años. tenía las proporciones perfectas, sin ser exagerado. era pura fibra y se combinaban los genes con un trabajo de gimnasio. después había uno que el objeto creía que entendía, pero tenía sus dudas. parecía que la piscina era suya, por su actitud y por su presencia. el objeto se ha hecho muy sensible a estos comportamientos. ante ellos el objeto solo enmudece, agacha la vista y se muestra mudo y humilde. debería haberse puesto también obediente pero el Dueño ha ordenado que solo debe el objeto obedecer a aquellos que le ordene.<br/>al final el objeto, después de una buena sesión de chorros, salió de la piscina, siendo muy consciente de su naturaleza y de su lugar en el mundo: por debajo de todos los hombres.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

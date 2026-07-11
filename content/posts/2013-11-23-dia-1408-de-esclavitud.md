@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1408 de esclavitud"
+date: 2013-11-23 22:46:00 +0000
+permalink: /2013/11/dia-1408-de-esclavitud.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">69 días de castidad, 13 desde el último ordeño.<br/>10:50 el perro acaba de rasurarse los genitales, como ha ordenado el Dueño. esta frase es la coletilla de toda la vida del perro. todo, en la vida de un perro esclavo, debería ser por orden del Dueño. cuando el perro comenzó este camino quería llegar hasta este punto, pero nunca pensó que lo conseguiría. mientras rasuraba los genitales el perro pensaba en esto, teniendo en cuenta que el Dueño está tirando de la correa desde ayer, en relación a que quiere que el perro tenga la apariencia física que a El le gusta y desea.<br/>además el perro se ha levantado con dolor en los genitales. antes de acostarse anoche no se lo ocurre otra cosa que ver si se había bajado bien el último capítulo de boundgods. por supuesto eso significó una erección que la jaula convirtió en una tortura. parece ser que eso quedó en su subsconciente porque el perro se despertó varias veces por la mañana dolorido por las erecciones.</p><br/><p style="text-align:justify;">20:28 el perro ha llegado a casa después de estar con un amigo tomando café. el Dueño dio permiso al perro para que saliera con él. él es un sumiso que necesita un Amo que lo oriente y le aplique la disciplina que necesita. aún así estuvimos hablando un rato y tomamos café en el yumbo. durante toda la salida el perro casi ni sintió la jaula, salvo cuando se sentó en el coche. es como si formara parte de su cuerpo ya, como un apéndice más que está integrado. con ella y el "uniforme" que ha puesto el Dueño, el perro se siente mucho más controlado, más condicionado, en permenente estado de sumisión.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

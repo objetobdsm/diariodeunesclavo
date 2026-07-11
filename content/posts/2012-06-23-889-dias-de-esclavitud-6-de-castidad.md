@@ -1,0 +1,10 @@
+---
+layout: post
+title: "889 días de esclavitud, 6 de castidad"
+date: 2012-06-23 22:05:00 +0000
+permalink: /2012/06/889-dias-de-esclavitud-6-de-castidad.html
+tags:
+  - personal
+---
+
+<br />ha sido un día extraño, algo contradictorio. por la mañana después de haber hecho algunas cosas en casa, este perro ha obedecido la orden de su Amo y se ha ordeñado. ha sido un ordeño en toda ragla, en el sentido de que prácticamente ni ha sentido placer. estaba este esclavo más preocupado por obedecer a su Dueño y dejar constancia tal y como El quería, que en el hecho en sí de eyacular. la afirmación de que no este perro ya no se masturba, sino que se ordeña, es toda una realidad que tomó cuerpo en el día de hoy. ni placer, ni gusto, sólo obediencia, eso fue lo que imperó esta mañana. con pinzas, amordazado, con el collar de esclavo y las botas puestas. de rodillas, este perro se ordeñó y ofreció su ordeño a su Amo.<br /><div style="text-align: justify;">por la tarde tenía un cumpleaños que se prolongó hasta por la noches, y en un momento dado hubo un problema de comunicación con mi Amo. este perro presupuso cosas que no estaban tan claras y le hizo pensar si el ego, subterfugiamente, no estaría tomando cartas en el asunto. este perro teme haber enfadado a su Amo con su comportamiento. por ahí dicen que cuanto más cerca estás de la luz, más claras se ven las manchas. y este perro teme haberle fallado a su Dueño. es perfectamente posible porque llevo dos semanas de locura, sin parar. de hecho incluso el blog ha estado desatendido, pero llegaba tan agotado a casa que era incapaz de articular idea alguna. un esclavo no debe dar por supuesto, debe obedecer y en caso de duda preguntar. espero poder resolver esto con mi Dueño pronto. sentir que le he fallado es algo que corroe por dentro a este esclavo. es algo imperdonable.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

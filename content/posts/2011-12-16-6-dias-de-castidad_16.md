@@ -1,0 +1,10 @@
+---
+layout: post
+title: "6 días de castidad"
+date: 2011-12-16 23:00:00 +0000
+permalink: /2011/12/6-dias-de-castidad_16.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">también parece poco tiempo (ver el post anterior), pero al igual que la esclavitud, se necesita tiempo, pero es más una cuestión de intensidad y de control. hasta la fecha este perro no ha conocido una forma de controlar y dominar a un esclavo que esta. es de una intensidad asombrosa, ya no sólo por el deseo sexual que tenemos todos dentro y que sale cuando menos te lo espera; sino porque basta que te prohíban una cosa, y especialmente una cosa que te da placer, para que prácticamente no puedas dejar de pensar en ella. así la castidad y tu vida sexual, que en otro momento te haces una paja y olvidas durante un rato, hasta la próxima, se hace omnipresente y te martiriza y mortifica. como no puedes realizar tu deseo entras en una especie de contradicción. en el caso de este perro, que mantiene una castidad sin dispositivo, se produce una especie de cortocircuito interno, porque o no atiende a sus deseos o no atiende la orden de su Amo. en estos momentos, y estoy convencido que seguirá así, la orden de mi AMO tiene en el interior de este perro una fuerza que impide que me ordeñe. hoy precisamente, estaba viendo una película porno bdsm que me había bajado, para comprobar si sería del agrado de mi Dueño, y me sorprendí tocándome la polla. tenía todos los ingredientes para que me hubiera vuelto loco, y sin embargo apenas reaccionó físicamente. estaba pendiente, para no llegar a ningún punto que pusiera en peligro la obediencia de este perro, y es punto no sólo no llegó, sino que ni siquiera se acercó. El me tiene controlado, de esto no tengo ninguna duda, y no necesito dispositivo, aunque no estería mal llevarlo. una orden suya es suficiente.</div>obediencia ciega para el esclavo, poder absoluto para el Amo.

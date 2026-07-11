@@ -1,0 +1,27 @@
+<!DOCTYPE html>
+<html lang="es">
+<head>
+  <meta charset="utf-8">
+  <meta name="viewport" content="width=device-width, initial-scale=1">
+  <title>{{ if .Title }}{{ .Title }} | {{ end }}{{ site.Title }}</title>
+  <link rel="stylesheet" href="/css/style.css">
+</head>
+<body>
+  <div class="site">
+    <header class="site-header">
+      <h1 class="site-title"><a href="/">{{ site.Title }}</a></h1>
+      {{ with site.Params.description }}
+        <p class="site-description">{{ . }}</p>
+      {{ end }}
+    </header>
+
+    <main class="site-content">
+      {{ block "main" . }}{{ end }}
+    </main>
+
+    <footer class="site-footer">
+      <p>Generado con Hugo</p>
+    </footer>
+  </div>
+</body>
+</html>

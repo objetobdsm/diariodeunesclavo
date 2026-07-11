@@ -1,0 +1,12 @@
+---
+layout: post
+title: "un amo en germen"
+date: 2009-11-27 08:04:00 +0000
+permalink: /2009/11/un-amo-en-germen.html
+tags:
+  - personal
+  - dominacion
+  - amos
+---
+
+<div style="text-align: justify;">estaba tomando café con un amigo. él no sabe que publico este blog, tal vez lo descubra ahora si lo lee, pero sí sabe que me va el rollo bdsm. estábamos hablando de la gente en general y de como hay muchos que tienen unos complejos increíbles y que se quedan no son capaces de tener una conversación medianamente aceptable. de pronto mi amigo dijo que esto de dar órdenes, en sus citas, le estaba dando buen resultado porque cada vez encontraba más gente dispuesto a someterse. estuve completamente de acuerdo con él. inmediatamente después, medio en broma, me dio en serio, me dijo que no podía seguir por ese camino porque le gustaba demasiado. aquello me activó una neurona de esas que están adormecidas y una palabra o una acción las despierta, y recordó una reflexión que tengo desde hace tiempo y que ahora comparto con ustedes.</div><div style="text-align: justify;">nosotros, los esclavos, debemos hacer nuestro propio camino de descubrimiento. tenemos que ir pasando etapas de aceptación, desmontando las ideas preconcebidas que tenemos sobre la libertad, la autonomía, la independencia, etc. pero los Amos deben hacer otro tanto, algo importantísimo. ellos deben aceptar que tienen derecho a usar a los esclavos. nuestra cultura represiva nos enseña dos cosas: que somos radicalmente libres y que nuestra libertad termina donde comienza la del otro. los esclavos tenemos que romper el primer mito, los Amos el segundo. porque cuando un esclavo se somete a un Amo está rompiendo esa barrera y entregando su libertad para que el Amo la gestione a su deseo y conveniencia. y debo decir que no todos los Amos están preparados, o dispuestos a asumir esa responsabilidad, que no es una carta blanca para hacer cualquier cosa, sino una forma de que los dos se realicen como personas. reconocer que se tiene ese derecho, usar ese derecho y explotarlo para el mutuo beneficio creo que es la tarea que los Amos tienen que hacer en su proceso de hacerse Amos. hay algunos que les sale de forma más natural, a otros les cuesta más; depende de lo profundamente que te haya afectado estas ideas de nuestra cultural. </div><div style="text-align: justify;">mi amigo, el del café de hoy, se encuentra precisamente en esa tesitura: ¿sigo adelante o no me permito ser así? espero que su respuesta sea la adecuada. necesitamos más Amo en el bdsm </div>

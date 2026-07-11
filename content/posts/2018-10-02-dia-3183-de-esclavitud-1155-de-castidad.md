@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3183 de esclavitud, 1155 de castidad"
+date: 2018-10-02 22:33:00 +0000
+permalink: /2018/10/dia-3183-de-esclavitud-1155-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">ha sido uno de esos días inesperado que se convierte de día horrible en hito en el proceso de entrenamiento. como siempre ocurrió como quien no quiere la cosa en una conversación con el Dueño. El estaba diciendo que quería un objeto inerte, atado permanentemente. y entonces salió, a partir de ahora, cuando esté en casa a solas, además del colar y la mordaza del objeto deberá estar esposado y aprender a hacer todo así, porque cuando esté en casa del Dueño llevará los grilletes permanentemente. el objeto no tiene derecho a tener las manos libres.<br/>aquí no tiene el objeto grilletes pero sí esposas de cuero que será lo que use para empezar este entrenamiento que sabe el objeto será duro. eso es lo que el Dueño quiere y por tanto es lo que el objeto tiene que hacer.<br/>al principio será complicado porque significa una nueva forma de gestionar y organizar el espacio vital: hacer la comida, escribir, recoger la ropa, limpia son actividades cotidianas que se complican si estas esposado. una cadena facilita algo porque da más margen pero las esposas, y los grilletes son difíciles.<br/>esta dificultad precisamente es la que produce el efecto psicológico deseado: no eres libres, no hay posibilidad de escape, eres una propiedad; ese es el mensaje que transmite vivir esposado.<br/>la reacción del cuerpo del objeto fue casi inmediata: dolor, porque el apéndice intentó una erección que fue inmediatamente reprimida por la jaula. es un nuevo paso, uno lógico aparentemente pero tan radical como la mordaza o la jaula. el objeto tiene cierto temor porque es un cambio muy fuerte, pero confía ciegamente en el Dueño y aunque no fuera así no tiene otra opción que obedecer. su vida es obediencia.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

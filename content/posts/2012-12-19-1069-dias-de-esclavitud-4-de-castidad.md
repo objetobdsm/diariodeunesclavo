@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1069 días de esclavitud, 4 de castidad"
+date: 2012-12-19 22:39:00 +0000
+permalink: /2012/12/1069-dias-de-esclavitud-4-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">están siendo unos días de trabajo muy intenso, excesivamente intensos, en la no-vida. hoy ha sido el primer día de la semana que el perro ha podido comer en casa, y ha tenido que salir inmediatamente para la facultad. ayer se puso a intentar poner el blog en orden, con ya casi dos semanas de retraso, y algo avanzó, pero no demasiado. el Dueño está siento paciente, muy paciente, pero El sabe todas y cada una de las circunstancias, y el perro agradece su consideración.</div><div style="text-align: justify;">pese a todo la vida de esclavo sigue presente. el perro sobre todo lo nota cuando por la noche, después de haber estado todo el día de un lado para otro, tiene que quitarse las botas que ha llevado puestas todo el día. a veces los calcetines están llenos de sudor y el pie siente de nuevo un poco de aire fresco. en el fondo es otra forma de encierro, una forma de bondage. por supuesto se está cumpliendo el deseo del Dueño, ser reconocido como un botero por donde el perro se mueve ya que hace unos tres meses que no usa otro calzado.</div><div style="text-align: justify;">de igual forma el perro ya no usa el urinario de los baños, se mete en los reservados para orinar sentado. el perro no sabe si el Dueño le está preparando para cuando lleve un dispositivo de castidad, con los cuales prácticamente sólo se puede orinar sentado a riesgo de producir un desastre. en cualquier caso tampoco le corresponde al perro saberlo, solo tiene que obedecer a su Amo y así lo hace el perro, incluso, y especialmente, en los días donde la no-vida está más presente.</div>obediencia ciega para el esclavo, poder absoluto para el Amo.<br />

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1960 de esclavitud, 47 de castidad"
+date: 2015-05-28 22:16:00 +0000
+permalink: /2015/05/dia-1960-de-esclavitud-47-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el perro estuvo en casa trabajando hoy y recibió una llamada de esas que te sorprenden. como saben los lectores el perro termina el mes que viene de ocupar un puesto intermedio en la organización donde trabaja. aceptar ese cargo tuvo algún problema porque el perro, como esclavo sumiso que es, no se veía mandando o estando a cargo de subordinados. el Dueño le dio permiso para aceptarlo, hace un año ya, con la condición de que no alterara la no-vida del perro. el resultado es que el perro vivió el cargo como una forma de servicio y eso ha tenido resultados espectaculares en el trabajo. irónicamente ha ayudado al perro a sentirse más sumiso y a que el puesto no se le subiera a la cabeza. ocupar un puesto de mando lo ha hecho más humilde y sumiso.<br/>hoy la llamada que recibió el perro era para ocupar ese mismo puesto pero en otro lugar. Dueño y perro ya habían hablado sobre el tema así que el perro rechazó el ofrecimiento, incluso sin haberlo consultado. al rato le surgieron las dudas y llamó al Dueño para hablar sobre el tema. el Dueño confirmó que el perro había hecho bien, porque aunque había sido una experiencia provechosa y una fuente de aprendizaje, también había ocasionado en el perro mucho estrés y trabajo, demasiado como para repetir.<br/>lo más llamativo fue cuando el Dueño le dijo al perro que no iba a consentir que ocupara otro cargo de nuevo, que su esclavo no estaba hecho para eso y que no lo iba a permitir. la decisión, por tanto, estaba tomada pero no la había tomado el perro, sino el Dueño. eso produjo en el perro una sensación de dependencia grande, acompañada por una oleada de gratitud hacia el Dueño. esta es la base de una relación de Dominación/sumisión: uno decide y el otro obedece, incluso en temas tan importantes como este, porque nadie mejor que el Dueño sabe lo que es bueno para su perro.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

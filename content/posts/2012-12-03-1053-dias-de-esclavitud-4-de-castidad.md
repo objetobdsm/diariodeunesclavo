@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1053 dias de esclavitud, 4 de castidad"
+date: 2012-12-03 20:55:00 +0000
+permalink: /2012/12/1053-dias-de-esclavitud-4-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">hoy, como una especie de premonición, el Amo me dijo que no me dejara pisar por nadie en el trabajo, que sólo me pisa El y aquel a quien Él le de permiso para hacerlo. y ocurrió. un "compañero" intentó pisar al perro y el perro se revolvió y contestó como el Dueño había ordenado. fue una especie de pelea sin llegar a las manos. ¿el motivo? un ego como una casa de ese "compañero". analizándolo no puedo dejar de admirar lo útil que es dejar al ego de lado. a medida que avanzaba la disputa y el "compañero" iba perdiendo la razón, su incapacidad de aceptar que se había equivocado, hizo que llegara a una situación insostenible. era el ego el que hablaba, gritaba más bien. cuando todo terminó este perro estaba nervioso, pero a la vez tranquilo, calmado, seguro de haber sido obediente. el "compañero" estaba solo, con los demás compañeros en contra y manteniendo una postura insostenible. ¿todo para que? para sentirse mejor, para creer que puede más, que controla más, que es mejor. inutilidad total. es en estas situaciones donde el bdsm demuestra todo su potencial. hay auténticos problemas, auténticos conflictos, no aquellos creados por el ego que pretende imponerse. el perro ya no necesita imponerse, ser más o mejor. el perro sabe que ha encontrado su sitio a los pies de su Dueño, lo demás ni merece la pena planteárselo. eso si, sentirse bajo las botas de su Amo significa que nadie está por encima de ellas. tal vez ese "compañero" debería haberlo sabido.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

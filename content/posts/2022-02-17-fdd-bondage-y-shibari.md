@@ -1,0 +1,8 @@
+---
+layout: post
+title: "FdD bondage y shibari"
+date: 2022-02-17 08:55:00 +0000
+permalink: /2022/02/fdd-bondage-y-shibari.html
+---
+
+<div dir="ltr"><div></div><div style="text-align: center;"><a href="/uploads/6e/72/6e72646c743ef993b1d7e38f93701c2398f9bf361c797def196b37c25534c12c.jpg"><img alt="" border="0" height="480" id="BLOGGER_PHOTO_ID_7075990055806960418" src="/uploads/c6/c1/c6c1cb85afcdf88fc6c848dcf00e3e028a68cf2d0131124e52141fe010954530.jpg" width="640" /></a></div><div style="text-align: justify;">cuando el bondage se convierte en un arte se le llama shibari. más concretamente habría que decir que el shibari es el arte japonés de atar mediante cuerdas y nudos. desde antiguo se dieron cuenta en las islas del sol naciente de la sensualidad que encierra un cuerpo atado con cuerdas y puesto en determinada posición. como hemos comentado en ocasiones en el blog, parece que su origen está en la imposibilidad de mantener encerrados a los criminales debido a la forma de las casas en aquel archipiélago. entonces se consiguió, mediante esta práctica, que la prisión estuviera en cualquier sitio y que el criminal se la llevara consigo. por supuesto esto abrió todo un mundo en el bdsm occidental donde hay auténticos fanáticos de esta práctica. para el objeto es una forma muy eficaz de mantener sujeto a un inferior, e incluso de torturarle, haciéndole pasar por diferentes posturas y situaciones dolorosas.  pero como siempre, el mayor efecto es el psicológico, cuando el atado se ve obligado aceptar que no tiene escapatoria y que está completamente indefenso en manos de su captor.<br /></div></div>  

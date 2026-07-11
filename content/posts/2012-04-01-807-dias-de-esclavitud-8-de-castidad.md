@@ -1,0 +1,10 @@
+---
+layout: post
+title: "807 días de esclavitud, 8 de castidad"
+date: 2012-04-01 22:02:00 +0000
+permalink: /2012/04/807-dias-de-esclavitud-8-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">hoy he tenido unas ganas enormes de masturbarme, y he tenido que recordar que está prohibido que haga tal cosa, que ya no me masturbaré nunca más. a lo más que se le permite a este perro es ordeñarse. son dos cosas distintas. en la masturbación busco la satisfacción personal, el placer. en el ordeño sencillamente cumplo una función fisica, para mantener el cuerpo de este perro sano para su Dueño. en la masturbación puedo dar rienda suelta a mis deseos y a mis manifestaciones de placer; en el ordeño no debo gemir, ni mostrar en ningún momento ninguna explicitación externa de placer. de hecho, cuando a veces este perro se ordeña con las pinzas por orden de su AMo, siente más dolor que placer. mi Dueño quiere que así sea, y a este perro sólo le queda obedecer</div><div style="text-align: justify;">tal vez estas ganas vengan de que esta mañana este perro se ha rapado y se ha afeitado los genitales, dos muestras de sumisión y de obediencia. sigue siendo humillante afeitarme mis partes íntimas, tanto que no he podido evitar una erección mientras lo hacía. éste será un nuevo ritual en la vida de este perro, el afeitado regular de sus genitales para poder llevar el cockring ahora, y posiblemente un dispositivo de castidad en el futuro. poco a poco siento que voy perdiendo control sobre mi, o dicho de otra forma, que hago cosas que hace unos años ni se me hubieran ocurrido, como afeitarme los genitales. son pasos hacia la sumisión, hacia la entrega, paso en obediencia a mi Dueño que es quien sabe lo que a este perro le conviene.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

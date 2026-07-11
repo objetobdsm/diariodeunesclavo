@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2223 de esclavitud, 195 de castidad"
+date: 2016-02-15 22:22:00 +0000
+permalink: /2016/02/dia-2223-de-esclavitud-195-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">la castidad ha sido dura hoy, especialmente porque ha empezado a hacer un poco de frío y eso ha hecho que las pelotas de 402 se contraigan y sea más doloroso de lo habitual llevar la jaula. parece que es normal y que le ocurre a otros esclavos que viven en castidad. en alguna ocasión le había pasado a 402 pero nunca como hoy. además por la tarde ha tenido que ir a la universidad, que hace aún más frío que donde trabaja 402, y eso ha empeorado la situación. sin embargo lo lleva con dignidad, sobre todo porque sabe que en menos de una semana estará bajo las botas de su Dueño.<br/>ayer 402 estuvo leyendo varios blogs sobre este tema, el de la castidad, que tenía algo abandonados y no deja de sorprenderse de la enorme cantidad, cada vez más, de ellos que hay. proliferan como setas. algunos lo hacen en un momento dado y desaparecen pero otros se mantienen y van construyendo todo un sistema de información, normas, consejos, rituales y valores sobre la cuestión que resultan enormemente emocionantes para 402.<br/>ayer se quedó en la mente de 402 una idea a la que ha estado dando vueltas todo el día de hoy y es que la utilización de una jaula de manera constante y sistemática produce un encogimiento del pene. anteriormente había leído que eso no era así, o que al menos el pene recuperaba su tamaño habitual tras unos días sin usar una jaula. la cuestión es que 402 se planteó si eso le preocupaba o estaba pensando en ello ¿porque no quiere que su pene encoja o porque le parece un hecho curioso?. grande o pequeño ¿de qué sirve un pene que no sirve para nada? en otro blog decía que después de más de 650 días sin un orgasmo, su pene se había convertido exclusivamente en un instrumento para orinar.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

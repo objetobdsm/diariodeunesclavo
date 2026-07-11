@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FFddDD Amos y esclavos reales"
+date: 2014-09-01 07:35:00 +0000
+permalink: /2014/09/ffdddd-amos-y-esclavos-reales.html
+tags:
+  - FdD
+  - dog-training
+---
+
+<p style="text-align:justify;">no siempre las mejores imágenes son las imágenes de estudio. la de hoy está tomada en algún encuentro, posiblemete folsom street europa. ver a un perro humano puede ser muy impactante, pero también gratificante para el perro.<br/>en toda relación llega un momento en que debe hacerse pública. el Amo quiere mostrar su propiedad y la propiedad quiere ser mostrada.</p><br/><p style="text-align:center;"><img class="aligncenter" alt="" src="/uploads/ef/a0/efa047bcf60af504cfdd1260472f49d78b59b9d0be8181e7549de4f35d59f990.jpg" width="657" height="492" /></p><br/><p style="text-align:center;">puede ser un perro que olisquea a otros Amos en una cafetería en medio del encuentro.</p><br/><p style="text-align:center;"><img class="aligncenter" alt="" src="/uploads/8f/ce/8fcec43e57a0ccf3193186f99347bde16deccf36fcad115cf98e67520a8f18e4.jpg" width="491" height="640" /></p><br/><p style="text-align:center;"><span style="line-height:1.5em;">o un esclavo que es mostrado en la marcha junto a otros Amos y esclavos</span></p><br/><p style="text-align:center;"><img class="aligncenter" alt="" src="/uploads/ed/dc/eddca04c726bb50f4fbe09a636f4ca8276deda60dcc2caeb23a8f480cee1ef2b.jpg" width="657" height="437" /></p><br/><p style="text-align:center;">y que muestra su sumisión y obediencia caminando a cuatro patas.</p><br/><p style="text-align:justify;"><img class="aligncenter" alt="" src="/uploads/c6/8c/c68c8c715b4293450a70285eafd24608e9dcdb87ae50ea46211f5673c6281b10.jpg" width="642" height="428" />pero sobre todo el perro siente la humillación (y la admiración) de los que le miran y ven su verdadera naturaleza. puede llevar pantalones, pero está mostrando lo que realmente es, sin tapujos, sin esconderse, gracias a su Amo. su entrenamiento le ha llevado a eludir y retirar toda la mentira. ahora todos pueden ver que es un perro esclavo.</p>

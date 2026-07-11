@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD violencia"
+date: 2025-02-02 08:27:00 +0000
+permalink: /2025/02/fdd-violencia.html
+tags:
+  - FdD
+  - dominacion
+  - leather
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/07/7a/077a2d37cbdd74f31c037ae341b2169d1f4241d7018532efcda6bcac2c3fbbb3.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="1252" data-original-width="1852" height="432" src="/uploads/9d/ae/9dae6b6b05ba15eed3080d1335fd41b7f8bb98e767dc10e85b36d10ed79b38e4.jpg" width="640" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: justify;">¿tiene derecho un Amo a ejercer la fuerza sobre su esclavo? la tiene. por supuesto una respuesta tan tajante a una pregunta tan complicada merece o necesita de matices. el primero de ellos es el grado de sumisión que Amo y esclavo hayan consensuado. la negociación, no lo olvidemos, es la base de una relación de Dominación/sumisión y en ella se establecen los límites de la misma. a medida que el grado de implicación es mayor, menos poder tiene el sumiso y más poder tiene el Dominante por lo que a medida que profundizamos en la sumisión la respuesta cobra más peso. sin duda la violencia ejercida por un Daddy sobre su boy será diferente que un Amo sobre su objeto, porque el intercambio de poder es menor y la cesión de este por parte del inferior menos reducida. sin embargo a medida que ese poder fluye hacia el Dominante, puede Éste ejercerlo de la mejor manera posible. la cuestión aquí no es si se ejerce la violencia, sino para qué se ejerce. estamos viviendo en un mundo muy violento, excesivamente violento, pero es una violencia egoísta de a ver quién se impone. el Amo no tiene que usar la violencia para eso, ya se ha impuesto. en una relación bdsm la violencia es, primero para producir placer al Dominante y, segundo, para guiar al sumiso a su mayor desarrollo y capacidad. la disciplina, el castigo, la tortura, son formas de enseñar al inferior lo que puede hacer, lo que debe hacer, lo que no se cree capaz de hacer pero que es necesario que  haga. la violencia es una forma de entrenamiento y sirve para que el inferior no se desvíe de su camino. en una relación bdsm, castigar a un esclavo puede ser un profundo acto de amor, confianza y compromiso. </div><br /><p><br /></p>

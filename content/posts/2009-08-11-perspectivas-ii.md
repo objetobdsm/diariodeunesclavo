@@ -1,0 +1,11 @@
+---
+layout: post
+title: "perspectivas"
+date: 2009-08-11 17:40:00 +0000
+permalink: /2009/06/perspectivas-ii.html
+tags:
+  - botas
+  - imagenes
+---
+
+<a onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}" href="/uploads/ce/f1/cef1187f8cb57a7636e09a7e86a359f847b8e42d4a103d44cfb224efcbe04e1d.jpg"><img style="float:left; margin:0 10px 10px 0;cursor:pointer; cursor:hand;width: 266px; height: 400px;" src="/uploads/ce/f1/cef1187f8cb57a7636e09a7e86a359f847b8e42d4a103d44cfb224efcbe04e1d.jpg" border="0" alt="" id="BLOGGER_PHOTO_ID_5345971736289892162" /></a><div style="text-align: justify;">de nuevo una cuestión de perspectiva, la de un perro que no puede ser otra sino esta. además me seduce la combinación engañosa de la foto. botas y cuero en primer témino, corbata y traje en segundo. ¿intencional o casual? da igual. el hecho es que está. en uno de los capítulos de queer as folk, el único en el que se trata del bdsm, uno de los protagonistas se encuentra con un antiguo compañero que es amo y que triunfa en los negocios. en una charla que mantienen ambos éste le dice que una cosa le sirve para la otra, que la seguridad y la autoridad que vive en la mazmorra la utiliza para ser alguien de éxito y conseguir lo que desea. esta idea me gustó mucho e intento vivirla porque no sólo es una cuestión que afecte a los amos, también le pasa la los esclavos. a mi al menos. que me someta en la mazmorra,y fuera de ella a un amo, no significa que me someta a cualquiera, al contrario. someterme sumisamente a mi jefe en el trabajo, por ejemplo, es minusvalorar a mi amo, decir, en cierta forma, que cualquiera puede dominarme. no. sólo mi amo me domina y por eso es especial, único, y por eso me someto a él. el resto de los mortales están a mi lado, pero no por encima. la existencia de mi amo garantiza que nada me puede pasar, que siempre estará ahí y que puedo afrontar la vida de frente. ¿que la vida me dará golpes? por supuesto, pero mi amo me enseña que puedo soportarlos y que sobrevivo a situaciones que antes no imaginaba. para mi esta es una parte fundamental del bdsm, sin ella pocas cosas tienen sentido.<br /></div>

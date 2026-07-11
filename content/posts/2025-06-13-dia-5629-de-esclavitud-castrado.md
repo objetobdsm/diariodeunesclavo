@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5629 de esclavitud, castrado permanentemente"
+date: 2025-06-13 22:42:00 +0000
+permalink: /2025/06/dia-5629-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el objeto se ha levantado hoy excitado, sexualmente excitado. cuando lo puso bajo las botas del Amo no dudó ni un segundo en decirle que es porque lleva varios días sin la jaula. cuando el objeto llegó de su último viaje para servir a mi Señor tenía el escroto irritado y desde el domingo se ha quitado la jaula y las botas porque también tenía una herida. por supuesto esto no ha decidido nada, todo ha sido orden del Amo. es curioso como de natural ocurren las cosas y el objeto sigue las órdenes de mi Señor sin cuestionar. solo obedece y ya está, no hay más que eso. tampoco necesita el objeto más. sabe el objeto que está en medio de un proceso de profundización, de entrenamiento aún más duro. los altibajos emocionales y la pérdida de la ataraxia han sido achacados por el objeto y el Amo a que tiene que convivir con humanos y eso hace que, en determinadas ocasiones el ego le haga creer al objeto que es humano aún. la única solución que ve mi Señor es que el objeto tenga en mente lo que es en todo  momento, en la oficina, en el transporte, en el supermercado. cuando siente o piensa o se imagina creyendo que es humano empieza a desviarse del camino y a perderse. tirarse bajo las botas de mi Señor es la única salida, la únca solución, la única posibilidad. por supuesto mi Señor ha ordenado que el objeto se pusiera la jaula y como la irritación casi había desaparecido, pues todo fue bien.</p><p style="text-align: justify;">por la mañana el objeto fue a la oficina y por la tarde tuvo que quedarse a cuidar un familiar, pasando allí también la noche. aprovechó para estudiar y para teclear algunos trabajos que el objeto había hecho a mano. se sorprende que le funcione más eso que hacerlo directamente en el ordenador. debe ser que el objeto es muy analógico aún.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

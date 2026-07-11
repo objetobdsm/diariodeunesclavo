@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1078 días de esclavitud, 2 de castidad"
+date: 2012-12-28 22:52:00 +0000
+permalink: /2012/12/1078-dias-de-esclavitud-2-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">la tarde en casa, encerrado bajo la autoridad del Amo, pero por la mañana tuvo el perro que salir y suplicó permiso. es algo ya natural. a veces el perro se pregunta si el Gran Salto, sería tan grande. en estos momentos toda su vida está limitada y condicionada por el Amo, controlada por El. no puede quedar con nadie sin su permiso, no puede masturbarse, ni tiene control sobre su cuerpo, ni sobre sus relaciones sociales. la correa está muy apretada. lo irónico es que el perro desee más, aún más. estar más limitado aún, más controlado, porque en el fondo ambos saben que sólo así será feliz, sólo cediendo el control al Amo podrá el perro desarrollarse plenamente. esta es la única certeza que tiene en estos momentos, y la promesa que el Amo le ha hecho, que ya no será libre nunca más.</div><div style="text-align: justify;">hoy además el Amo envió un mensaje al perro diciendo que hubiera sido un buen día para llevarlo encuerad y encapuchado a un local, a un sitio público. el Dueño tenía ganas hoy de mostrar su propiedad, de presumir de lo que era suyo, de enseñarlo. la socialización de la sumisión es necesaria, que haya un grupo de personas que compartan tus ideas, tu forma de vida, lo que se llama una comunidad, vaya. muchas veces es necesario alguien que te diga que está bien lo que sientes, haces y deseas vivir, que no para nada, que eso forma parte de la vida y que puedes vivir asi. por supuesto el perro habría ido gustoso, aunque hubiera sido humillante, pero así se conseguiría controlar un poco más al ego.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

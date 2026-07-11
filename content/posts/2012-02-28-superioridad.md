@@ -1,0 +1,11 @@
+---
+layout: post
+title: "superioridad"
+date: 2012-02-28 19:40:00 +0000
+permalink: /2012/02/superioridad.html
+tags:
+  - imagenes
+  - dominacion
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/2f/1d/2f1d56b43cd1c4ecd0432b7b577ef3a3679696638c792d502e2e24c7e57086e9.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/51/56/51564df074696acf912439b968e3075495bec184e3da92d19cb9d0287da80aa7.jpg" width="426" /></a></div><div class="separator" style="clear: both; text-align: justify;">el diccionario de la real academia define la superioridad como la "preeminencia, excelencia o ventaja en alguien o algo respecto de otra persona o cosa", y también como "persona o conjunto de personas de superior autoridad". a este perro le parecen dos definiciones muy acertadas porque justo expresan una verdad que intentamos obviar constantemente: que hay seres superiores a otro, y en el caso del bdsm, que los Amos son superiores a los esclavos. hay hombres que tiene ventaja, que son excelentes, que tienen cualidades de mando, de organización, de disposición que los situa por encima de otros. los esclavos somos seres que tomamos conciencia de esta realidad, la asumimos y vivimos con ella. en este sentido tanto AMos como esclavos comprendemos realmente la dinámica y la naturaleza de la vida social, y no nos engañamos con respecto a ella. la mayoría de las veces esa superioridad se expresa de forma natural, porque no es posible fingirla, o si se consigue fingir solo se puede hacer durante un corto perídodo de tiempo. al superioridad está en la base de las relaciones de D/s y  las convierte en algo natural. pensar que todos somos iguales es quitarle valor tanto a Amos como esclavos. cada uno intenta, en una relación de Dominación/sumisión, perfeccionarse, hacerse mejor siendo lo que realmente es. eso no significa que haya una diferencia de valor. cualquier Amo que se precie sabe que su esclavo es la posesión más valiosa que tiene y lo cuida en consecuencia.</div>

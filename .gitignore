@@ -1,0 +1,10 @@
+/public/
+/resources/_gen/
+/.hugo_build.lock
+
+*.pyc
+__pycache__/
+.DS_Store
+Thumbs.db
+
+/backups/

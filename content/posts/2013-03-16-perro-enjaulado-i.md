@@ -1,0 +1,11 @@
+---
+layout: post
+title: "perro enjaulado I"
+date: 2013-03-16 21:17:00 +0000
+permalink: /2013/03/perro-enjaulado-i.html
+tags:
+  - imagenes propias
+  - castidad
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/ce/56/ce564c749e1f64949a1cd934c84f80899e60a69119460eb587a28d7ba466058e.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="480" src="/uploads/ba/c0/bac0b77f5db74db34aebcfffb555eb3b0dd56a92521937f1038eba584aeb2733.jpg" width="640" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/e9/7f/e97f495e5122dd6a148eb8fa2aaf61bea0c754ef552c9890c301432aa6e3284a.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="480" src="/uploads/7a/e7/7ae7a85dace3322d45ce699018811f3f37742ae0d23a301ffb8f0e894421e753.jpg" width="640" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/92/7c/927c07aa8d9af50455b0c65aaab1d646ad5230313a86de4eb58ddbb6c3a3efa7.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="480" src="/uploads/f4/0e/f40eaa6c6fd5fc805c4a6a6e7d4a7e46c71737cb50fc9b57b0a7cdbae40b142b.jpg" width="640" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/69/d1/69d127bca193e08ba2673e568181957cfec54a2b5f42c4c6fdea7b8fb59c51d4.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="480" src="/uploads/15/b1/15b1edeea68ac4d20f1bd30f05912cda5eea12fb20ada64e87de156d4f446243.jpg" width="640" /></a></div><div style="text-align: justify;">los perros domesticados no pueden andar por ahí sueltos, deben estar controlados con correa. de igual forma este perro no puede permitirse estar sin control. por eso, aunque ha tardado un poco, este perro está ahora enjaulado, sin poder hacer uso de sus genitales. por ahora está limitado por la distancia y porque aún necesita aprender a vivir con la jaula puesta, pero no hay marcha atrás. lo ha dicho el Dueño. a partir de ahora esta será la vida del perro.</div>

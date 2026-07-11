@@ -1,0 +1,10 @@
+---
+layout: post
+title: "683 días de esclavitud, 10 de castidad"
+date: 2011-11-29 23:29:00 +0000
+permalink: /2011/11/683-dias-de-esclavitud-10-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">las castidad es un proceso físico, pero sobre todo mental. y lo dice este perro con conocimiento de causa, no sólo porque lleva diez días en castidad sin dispositivo alguno, sólo por obediencia a su AMO, sino porque las mayores tentaciones que tiene no son precisamente físicas, que son fácilmente evitables, sino mentales. es como si en vez de una erección física tuviera deseos irrefrenables de ordeñarse, o suplicar a su AMO que le permita hacerlo, lo cual quebrantaría una de las normas de su esclavitud, establecidas por su Dueño. su AMO, consciente de la lejanía y del tiempo que, por motivos personales, no hemos podido encontrarnos, ha estipulado que si surge la oportunidad de tener algún encuentro, por ejemplo en el yumbo, que aproveche pero con unas condiciones: nunca debo someterme a nadie, como mucho llevar la voz cantante o en igualdad de condiciones. dicho en otras palabras. mi AMO y este perro nunca tienen sesiones. los encuentros nuestros, hasta que llegue el Gran Salto, son concreción de una relación de Dominación/sumisión, pues mi AMO permite a este perro tener sesiones pero nunca sometiéndome a nadie. esta situación es nueva para este perro y no sabe como reaccionará, porque ha tenido sesiones en otros momentos, incluso llevando la voz cantante, pero la sumisión está demasiado desarrollada en mi. en cualquier caso eso ha bastado para que no desee tener las sesiones y para que la castidad se convierta en un "precipicio más alto que escalar", algo que tiene más mérito, por ser más difícil. no sé cómo será esto. desde luego lo que sí le gustaría a este perro es practicar algo más el bondage, pero es casi imposible encontrar gente con este fetiche en gran canaria. habrá que esperar a estar en presencia de mi Señor de nuevo. </div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

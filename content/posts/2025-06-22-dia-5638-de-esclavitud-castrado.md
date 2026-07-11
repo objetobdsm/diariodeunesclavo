@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5638 de esclavitud, castrado permanentemente"
+date: 2025-06-22 22:52:00 +0000
+permalink: /2025/06/dia-5638-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> pertenecer a alguien es pertenecer a alguien, ser de su propiedad. mucha gente lo dice en sentido figurado, dos novios por ejemplo, o un matrimonio. en el bdsm lo de decimos en sentido literal. en un contexto de esclavitud voluntaria el esclavo es propiedad del Amo. mucha gente toma equivocadamente el término "voluntaria", creyendo que es algo que puede revocar cuando quieras pero, si te tomas en serio ésta, no es así. de hecho pensar en abandonar la esclavitud, una vez alcanzada, crea mucho malestar a los sumisos naturales. el objeto se vive, se sabe y existe como una propiedad del Amo y Señor. le pertenece en cuerpo, alma y espíritu y Él puede hacer con su objeto lo que quiera. sin condiciones, sin limitaciones. pero evidentemente esto no ha sido de pronto sino se ha construido desde la certeza de que esto es lo mejor para el objeto, de que todo es por su bien, de que el Amo solo quiere la felicidad del objeto, los miedos y las incertidumbres han desaparecido.</p><p style="text-align: justify;">esto puede llegar a entender lo que significa para un neófito comienzan un camino que lo puede llevar a convertirse en propiedad. da miedo. da vértigo. asusta. pero también es cierto que no hay nada como eso y, sobre todo, no hay nada más que pueda darnos la paz. esa intranquilidad que sientes, esa incomodidad de sentir que no encajas en ningún sitio desaparecerá, pero lo hará solo cuando estés completamente sometido por un ser Superior a ti que te entrenará para llevarte a lo más profundo de la sumisión.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega</p>

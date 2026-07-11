@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1808 de esclavitud, 255 de castidad"
+date: 2014-12-26 22:19:00 +0000
+permalink: /2014/12/dia-1808-de-esclavitud-255-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">dejar de luchar, de enemistarse con uno mismo, dejar de plantearse ser como no se es, eso es lo que desea el perro. y tampoco es que esté en una lucha permanente de no aceptación, pero a veces se olvida lo que es. hoy el perro se ha pasado parte de la mañana y de la tarde viendo blogs de esclavos que viven en castidad.<br/>algunos funcionan estableciendo períodos de castidad más o menos largos, tras los cuales vuelven a su actividad normal. sin embargo hoy vio el perro uno donde se veía una jaula y un cartel que ponía en inglés: 650 días sin orgasmo. casi dos años sin un orgasmo es mucho tiempo.<br/>el perro ha notado dos cosas, la primera es la abundancia de estos blogs, y la segunda, que casa vez más blogs de esta clase abogan por una castidad permanente, definitiva. la diferencia entre ellos es que los primeros "usan" la castidad como una nueva forma de excitación. retrasando el placer se consigue mayor satisfacción.<br/>el otro tipo de blogs ve la castidad como una forma de sumisión, de sometimiento, de control. parece ser un paso obvio en cualquier relación de Dominación/sumisión.<br/>como ha dicho el perro en otras partes de este blog, su castidad es de este segundo tipo. forma parte de un proceso más amplio de servidumbre de esclavitud.<br/>el perro vio otro cartel, en otro blog, que decía: "tu pene no es ahora sino un instrumento para controlar tu comportamiento". de eso se trata, de usar la castidad para controlar al perro.<br/>tal vez el perro pueda llegar a 650 días sin orgasmo. ya lleva 255 y no sabe si el Dueño querrá que llegue a tanto. lo que si es cierto es que han sido esos días, y han sido sin orgasmo. de hecho cuando el Dueño ha querido "liberar" al perro premiándolo con su orgasmo, pues el perro no lo ha conseguido. de hecho el perro cree que es´ta desarrollando cierta incapacidad para tener un orgasmo.<br/>sumisión en silencio y obediencia ciega.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "perfiles boot floripa"
+date: 2012-10-17 11:59:00 +0000
+permalink: /2012/10/perfiles-boot-floripa.html
+tags:
+  - perfiles
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/8a/a8/8aa8aceee5d59d7230c6f4746ddadb517088ffefe25c32d2985f4dde7fbbd9aa.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/5b/a1/5ba1a54bdb71d367bc843f04e9a3d5fc20ce9c787cb47bb111666c4ca7230e2f.jpg" width="572" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/da/13/da135872c1381ecb425fd86f4bef22a0e375183cb165c6ddc463096233a09d09.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/4d/ac/4dac51bac09906e24cd4aafcec36635d4b484864b21bf343f61c704117a2ed3c.jpg" width="536" /></a><a href="/uploads/b1/23/b12310a9f29c00b6ce2aaeeb13bb3af8411c91cc962c3ce90be1ba88e93e9b59.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/96/0c/960c2e2e8ec669c8c69912569d30798626adc562060681db1a7a8b6aa0e227ca.jpg" width="480" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/67/7b/677bf3f6eb3a2647e8be96f06ff31eeb48905594c77ce8eaf4c8f927cd5ed7f9.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="542" src="/uploads/a9/9e/a99e41687fd55d31def6c82b79b823fcb14a99e8428cb1ad82db2a6f47d6c516.jpg" width="640" /></a><a href="/uploads/15/2b/152bd2ca62871dbd9c6a7e520468cbdf7f36c8ff6f4119fcd602d148736f28bf.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="460" src="/uploads/90/0a/900a7382693eba12d653dd672926097616a470f20dbf26a62e6c61b2c0f05938.jpg" width="640" /></a></div>esta semana una novedad, un perfil de flickr, la red social de fotos, que merece la pensa visitar. para ir allí <a href="http://www.flickr.com/photos/leatherboots/" target="_blank">pincha aquí.</a>

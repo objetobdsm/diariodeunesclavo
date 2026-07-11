@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD bien sujeto"
+date: 2010-07-17 08:42:00 +0000
+permalink: /2010/07/fdd-bien-sujeto.html
+tags:
+  - imagenes
+  - bondage
+  - esclavitud
+---
+
+<div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/81/d5/81d585cfd53bfc70f7cacf77a3b209265cc0156f249c1bd02181bfa204c030d0.jpg).jpg" imageanchor="1"><img height="420" src="/uploads/fc/5f/fc5f86fc5d871c4a606afcd9bbbd3561d47810888e31bf366ccdcca39bae53e7.jpg" width="640" border="0" /></a></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify">esta sería una foto perfecta para definir mi estado vital en este momento de mi existencia.no deseo más, no aspiro a más, sencillamente a esto: llevar un pantalón de cuero, y estar atado indefenso ante mi AMO. pero incluso lo primero es prescindible, sería deseable pero también podría vivir sin el cuero. lo que no podría vivir es sintiéndome de nuevo libre. sería una condena, un castigo, una desgracia. ahora puedo decir que nací para ser un esclavo, para servir y someterme a otro hombre, para destruir mi ego y existir sólo bajo la autoridad de El. aunque no tengan esposas mis manos no son libres, no pueden ser libres. ya ni puedo decir que "no deseo ser libre" porque eso implica un deseo, una voluntad, algo cuyo destino, en la vida de un esclavo, no es otro que desaparecer.</div><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify">mi AMO me dijo una vez que mi fin último, el objetivo, era no tener voluntad. al principio en mi mente me pareció excesivo, pero ahora comprendo poco a poco el sentido de todo esto y a lo que El se refería. EL me ha dicho que ya no soy libre y que no volveré a ser, que es algo inexorable e inevitable, pero mi mente sigue temiendo que así sea, que me queda descolgado, que me salga del camino, que no pueda seguir, que no sepa seguir. en estos momentos es lo único que deseo, a lo único que aspiro, a ser su esclavo, a ser su boy, su perro, lo que El quiera que sea. si es con cuero mejor, con botas, aún mejor, pero lo que no puedo prescindir es del collar al cuello, de la esclavitud, de vivir sometido, de que EL decida, ordene, mande, controle, estipule, organice, apruebe o niegue, determine, condicione, restrinja, permita, censure y valide todo en mi vida.</div>

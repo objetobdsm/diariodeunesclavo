@@ -1,0 +1,11 @@
+---
+layout: post
+title: "585 días de esclavitud, 9 de castidad"
+date: 2011-08-23 22:10:00 +0000
+permalink: /2011/08/585-dias-de-esclavitud-9-de-castidad.html
+tags:
+  - personal
+---
+
+<br />
+<div style="text-align: justify;">con respecto al tema de la castidad y al dispositivo salió el tema de esclavitud interna. en fetlife encontré una discusión sobre el tema y me gustaría introducir una cita:</div><div style="text-align: justify;">"The original meaning of "internal enslavement", from the man who coined it, is a technique whereby a slave is conditioned to not be mentally able to disobey their master. (....) . It's not an attitude. It's a form of mental conditioning that some masters use."</div><div style="text-align: justify;">"<i>El significado original de "esclavitud interna o interior", según quien la acuño, es una técnica donde un esclavo es condicionado mentalmente a que no pueda desobedecer a su Amo. (....). no es una actitud. es una forma de condicionamiento mental que algunos Amos utilizan</i>."</div><div style="text-align: justify;">la esclavitud interna es el dispositivo de castidad más seguro que existe. algunos esclavos tienen como fetiche el dispositivo mismo y no sólo desean no masturbarse, sino sentir que no pueden hacerlo aunque quisieran. este perro se encuentra atado por la voluntad de su Dueño y eso es suficiente.</div><div style="text-align: justify;">hoy la castidad ha empezado a hacer efecto y por esto me refiero a sentirme más sumiso, más obediente, con más deseos de servir. no he tenido ni una erección, pero sí impulsos de arrodillarme delante de mi Dueño, obedecerle, someterme, hundirme en sus deseos. </div><div style="text-align: justify;">este perro ha estado gran parte del día por fetlife, leyendo aportaciones y haciendo algunas. cada vez me gusta más esa red social. creo que hay muchísima gente con experiencia y es una fuente casi inagotable de conocimientos. no queda casi ningún aspecto ni fetiche sin tratar. tal vez no haya sido buena idea ponerse a leer esos debates y aportaciones, igual que tampoco fue leer los comics de tagame ayer, pero de eso se trata, de probar la resistencia y la sumisión de este esclavo. si todo fuera fácil me dedicaría a otra cosa.</div>

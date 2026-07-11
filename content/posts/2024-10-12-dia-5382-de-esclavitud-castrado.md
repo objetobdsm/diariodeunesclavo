@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5382 de esclavitud, castrado permanentemente"
+date: 2024-10-12 22:03:00 +0000
+permalink: /2024/10/dia-5382-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> ha hecho muchísimo calor y muchísima humedad, al menos aquí, mientras en la península están en pleno temporal de lluvias. el objeto hoy ha cumplido con su ritual de higiene: raparse el pelo al #3 y afeitarse los genitales, para lo que ha tenido que quitarse la jaula durante unos minutos. es una experiencia desagradable al máximo, incómoda y que el objeto intenta que dure lo menos posible. además se ha arreglado la barba. esto debe hacerlo el objeto cada semana, para que siempre esté como mi Señor desea que esté, sin presumir, sin preocuparse por el peinado y sabiendo que tiene los genitales de un inferior. hoy, además, se ha producido un añadido. siguiendo órdenes de mi Señor, el objeto ha encargado una jaula nueva para sustituir a la actual. la verdad es que desde hace años se ha sentido muy cómodo con la holytrainer, en sus diferentes modelos que es la que lleva ahora. sin embargo la última innovación es un cambio en el cierre, que ha pasado a ser por presión y la verdad es que, no sabe por qué el objeto, se ha abierto un par de veces. ademas ya ha dejado constancia en el blog que se ha salido el apéndice en alguna ocasión, cree el objeto porque se ha reducido tanto que no puede contenerse con los modelos existentes. por eso mi Señor ordenó al objeto que buscara una alternativa y así ha sido. ha comenzado por tanto la búsqueda de una nueva jaula que tiene que ser ya una jaula negativa, de esas que no permiten ver el apéndice porque el "tubo" por llamarlo de alguna forma, está por debajo de la anilla. el objeto encontró una que se denomina innie y que estaba barata, así que la encargó. llegará cuando llegue y mientras tanto usará esta, que además como la llave no entra en el guardallaves, no puede el objeto usarla con los candados. espera que con la nueva se arregle esta situación.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

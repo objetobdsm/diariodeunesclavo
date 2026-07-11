@@ -1,0 +1,10 @@
+---
+layout: post
+title: "682 días de esclavitud, 9 de castidad"
+date: 2011-11-28 23:30:00 +0000
+permalink: /2011/11/682-dias-de-esclavitud-9-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">este perro nota un aumento de la presencia del bdsm o al menos del fetichismo en las series "normales". hoy ha visto, bajada de internet, el capítulo 8 de la serie american horror story y hay una escena de uno de los protagonistas en una tienda de fetichismo. el motivo es que uno de los figuras que aparecen, y utilizo esta palabra porque encierra truco, es un tio vestido completamente con un traje de latex, capucha incluída. en esa escena se explica la aparición y procedencia del traje y el empleado le dice al personaje. "es una forma de deshumanizar al sumiso, de convertirlo en un juguete sexual". no me produjo una erección, pero la respiración de este perro se hizo más pesada y sacudió algo dentro de mi. porque precisamente eso es lo que busca y desea este perro.</div><div style="text-align: justify;">hoy también este esclavo leyó el último post de jack rinella en su blog (puedes leerlo pinchando aquí). este perro considera que es uno de los autores más importantes y estimulantes en esto del bdsm y precisamente contaba que iba a introducir dos nuevas figuras a su leather family, un "animal" y una "cosa", así los nombra. define al objeto como "un hombre que se ha rendido y entregado completamente y a quien puedo tratar como "mi cosa". Además establece los principios por los que ambos, su "animal" y su "objeto" se regirán por los mismos principios: objetificación, subyucación, dominación, control y humillación. </div><div style="text-align: justify;">ambas cosas han hecho hoy mella en este perro.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

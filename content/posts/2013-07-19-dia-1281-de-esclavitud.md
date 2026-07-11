@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1281 de esclavitud."
+date: 2013-07-19 21:22:00 +0000
+permalink: /2013/07/dia-1281-de-esclavitud.html
+tags:
+  - personal
+---
+
+114 días de castidad, 114 desde el último ordeño.<br /><div style="text-align: justify;">muchas cosas para un sólo día. a última hora de la mañana el Dueño encargó al perro buscar información sobre un sumiso. el Dueño lo había visto por internet y quería información. el perro hizo la gestión y resulta que era un esclavo que tenía Amo. el Dueño no se mete en relaciones establecidas entre un esclavo y su Amo, pero el Dueño abrió la puerta para otro esclavo. dijo al perro que quería que buscara otro esclavo para El, qu eya podía introducir alguien nuevo en la casa del Dueño. así que el perro se encuenra en estado de búsqueda de un nuevo esclavo para el Dueño.</div><div style="text-align: justify;">además de esta búsqueda el Dueño ordenó que el perro tuviera una sesio de reprogramacíón: estar 45 minutos escuchando un mantra, vestido con botas, collar de bondage, mordaza y esposas. hacía mucho tiempo que el perro no se sometía a una sesión así y no dejó de impresionarle la fuerza de la dinámica. además de todo eso, el perro llevaba una capucha de cuero sin orificios. oscuridad y la voz omnipresente del Dueño, taladrando su cerebro de perro, toda una experiencia.</div><div style="text-align: justify;">al terminar, el perro envió el video que había grabado con toda la sesión al Dueñoy fue a ducharse. fue entonces cuando empezó a supurar como hacía tiempo no supuraba. no sabe el perro si es por la propia sesión de reprogramación, o por los días de castidad pero es mucha casualidad que fuera precisamente hoy. el hecho es que el perro tuvo que estar sentado bastante tiempo, hasta que dejó de supurar. si seto es unas eñal de que vendrá una tetapa de líbido alta, el perro lo va a pasar mal. después de tantos días de castidad, sin ni siquiera ordeñarse, cada nuevo embate del deseo se hace más duro.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo</div>

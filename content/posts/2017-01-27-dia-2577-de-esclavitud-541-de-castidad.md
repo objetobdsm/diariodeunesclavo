@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2577 de esclavitud, 541 de castidad"
+date: 2017-01-27 22:52:00 +0000
+permalink: /2017/01/dia-2577-de-esclavitud-541-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">este objeto parece que está comenzando un tiempo emocional bajo, de esos que lo mantienen en contacto con la sumisión más profunda. lo extraño es que coincide con un momento de excitación en la no-vida en el que tiene que estar muy atento y muy activo. cuando esta contradicción se produce, normalmente y por razones de supervivencia inmediata, gana la no-vida y 402 tiene que afrontar lo inmediato. sin embargo esta vez no es así. la certeza de ser un inferior, que todos los demás están por encima y de ser un objeto propiedad del Dueño han hecho que ambas cosas puedan llevarse. de hecho se ha dado el extraño fenómeno de que tenga que "liderar" un poco alguno de los procesos de cambio que hay en el trabajo, y a la vez, al llegar a casa, y en la intimidad más profunda, sentirse más unido al Dueño que nunca y más sometido a su voluntad. la razón sea posiblemente el último viaje y el trabajo que hizo el Dueño en la mente de 402. es como si la hubiera colonizado y ahora ni siquiera esa mente fuera suya. El puede entrar cuando quiera, hacer con ella lo que quiera, y 402 se siente completamente indefenso e impotente. es el control definitivo y diría que absoluto del Dueño sobre su objeto. es una dinámica que se ha producido en otras ocasiones y que parece ser la dominante en nuestros encuentros. el Dueño los utiliza para "sembrar" y luego eso va creciendo en el interior de 402 sin que éste se de casi cuenta, hasta que ya es demasiado tarde y no puede evitarlo, si quisiera evitarlo, claro. pasó con la castidad, con la propia esclavitud, con convertirse en perro, y ahora en ser un objeto. y cuando parece que ya no se puede ir más lejos, o más abajo, entonces ocurre algo que descoloca a 402 y lo deja nuevamente, en manos del Dueño, sabiendo que está a su merced y que no puede evitar estarlo.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

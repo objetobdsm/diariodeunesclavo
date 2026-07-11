@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1929 de esclavitud, 16 de castidad"
+date: 2015-04-27 22:43:00 +0000
+permalink: /2015/04/dia-1929-de-esclavitud-16-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">desde que el perro volvió de madrid se siente especialmente sumiso, sometido, controlado. y eso a pesar de no llevar la jaula. el perro sabe que la próxima está en camino, pero también sabe que es un accesorio, que tiene su función, pero es la obediencia y el miedo a decepcionar al Dueño lo que hace que el perro viva en castidad. aunque debe admitir que hay un elemento más, que ha salido a menudo en el blog: el hecho de que, cree que debido al entrenamiento del Dueño, el perro ya no disfruta de los orgasmos que tiene o que se le pueden producir. no es sólo la culpa por infligir una norma o una orden, es el sentimiento de rechazo que produce en el perro. tampoco sabe muy bien de donde viene o por qué se produce, pero el hecho es que ocurre, o al menos le ha ocurrido en las dos ocasiones que el Dueño le ha permitido sacarse la leche sin la jaula.<br/>lo que pasó en el último viaje, cuando el perro se sacó la leche con la jaula de metal puesta, es otra historia. en algunos blog se habla de eso como de un orgasmo arruinado, ese donde la leche sale pero no sientes placer. sin embargo no es el caso del perro. en este caso es una tortura, porque sale la leche pero de una manera muy dolorosa. el perro se lo explicó al Dueño diciendo que era como si le dieran una patada en los huevos justo cuando salía la leche.<br/>todos estos pensamientos rondaban la mente del perro hoy, mientras en su no-vida tenía un día horrible, con muchas cosas pendientes, mucho movimiento, muchas decisiones que tomar. el perro no quiere hacerlo, tomar las decisiones. sencillamente quiere obedecer, quiere que el Dueño decida por él y él sólo haga lo que el Dueño quiera. esa sí sería una vida.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

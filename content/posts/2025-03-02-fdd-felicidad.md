@@ -1,0 +1,14 @@
+---
+layout: post
+title: "FdD felicidad"
+date: 2025-03-02 10:57:00 +0000
+permalink: /2025/03/fdd-felicidad.html
+tags:
+  - FdD
+  - dominacion
+  - sumision
+  - leather
+  - cadenas
+---
+
+<p> </p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/f6/e7/f6e7756316c60293aef1be5da8f84011340f34591aa7576998277f6ec73e90bd.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="2730" data-original-width="1999" height="640" src="/uploads/c3/01/c301ef74674b0a610d82a19003462a6eb2b54260a5e283458aefadcbf27369ef.jpg" width="468" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: justify;">cuando sacamos a nuestra mascota o cuando llevamos un caballo o cualquier otro animal, no nos extraña que estén al final de una correa que normalmente está atada a un collar que llevan al cuello. ese sencillo gesto no sólo indica propiedad sino que también muestra la Superioridad de uno sobre el otro, de que quien lleva las riendas dirige y el animal obedece. una escena típica es que el perro o el caballo quiera ir por un sitio pero su Amo lo lleve por otro, precisamente tirando de la correa. con los esclavos pasa exactamente lo mismo. poco importa lo que piense, quiera o desee el esclavo. al someterse a su Amo renunció a cualquier atisbo de autonomía y, por tanto, a elegir qué, donde, cuándo o cómo ir a ningún sitio, o de qué, cuándo, cómo o donde nada. un esclavo no tiene, por definición, derechos ni autonomía. lo único que tiene es obediencia. en otros, y en este, momentos de la historia, es una crueldad obligar a alguien a hacer esto, a convertirse en esclavo. sin embargo desde el bdsm defendemos el derecho a hacerlo voluntariamente. las razones pueden ser muchas, y no le incumben más que al Amo y al esclavo, pero esa es la diferencia fundamental entre la esclavitud histórica y la esclavitud voluntaria que defiende el bdsm. un individuo, en el ejercicio de su libertad, decide entregar esta a otra persona y convertirse en su esclavo. rechazar esto es rechazar el principio mismo de la libertad en sí, la capacidad y posibilidad de hacer con tu existencia lo que quieras, desees o necesites. seguro que algún normal preguntará por qué razón alguien desearía eso. la respuestas es obvia: porque así es feliz. solo los esclavos voluntarios sabemos lo que ocurre en nuestro interior cuando el Amo tira de la cadena, de la correa, y nos encaúza por el buen camino que habíamos abandonado en algún momento. sin duda esa cadena es la que nos mantiene vivos, la que nos permite seguir buscando nuestra felicidad y realización.</div><br />

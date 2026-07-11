@@ -1,0 +1,10 @@
+---
+layout: post
+title: "sobre el blog"
+date: 2009-09-27 16:17:00 +0000
+permalink: /2009/09/sobre-el-blog.html
+tags:
+  - comunicados
+---
+
+<div style="text-align: justify;">siguiendo con mi café con g. (ver post más abajo), la <span class="blsp-spelling-error" id="SPELLING_ERROR_0">conversación</span> me sirvió para <span class="blsp-spelling-error" id="SPELLING_ERROR_1">cuestionarme</span> cosas sobre este blog.  hay una especia de <span class="blsp-spelling-error" id="SPELLING_ERROR_2">contradicción</span> entre el número de personas que lo visitan, alrededor de 100 diarias, con el número de comentarios que dejan esas visitas, <span class="blsp-spelling-error" id="SPELLING_ERROR_3">prácticamente</span> ninguno. entiendo que es un blog muy <span class="blsp-spelling-error" id="SPELLING_ERROR_4">voyeur</span>, y que a muchos no les gusta participar. sin embargo les animo a que lo hagan y comenten aquellas cosas que les agradan y aquellas que no. hay cosas <span class="blsp-spelling-error" id="SPELLING_ERROR_5">innegociables</span>, por supuesto, pero, por ejemplo, g. me dijo que era una decepción cuando abría el blog y se encontraba otro post del vocabulario. y lo entiendo. fue algo que introduje para garantizar mantener el diario activo, pero creo que en estos momentos sobra. así que es la primera cosa que presento a su <span class="blsp-spelling-error" id="SPELLING_ERROR_6">consideración</span>. ¿dejo las palabras del vocabulario programadas para que se publiquen? ¿o las borro y no publico más? se aceptan comentarios al final de este texto, donde pone comentarios.</div><div style="text-align: justify;">mantener un blog como este cuesta, y siempre lo consideré, y lo considero, algo que hago en honor a mi AMO. aún así saber su opinión, recibir comentarios o peticiones, resulta agradable y me anima a seguir adelante y a buscar cosas nuevas para publicar. un diálogo siempre resulta mejor que un monólogo.</div>

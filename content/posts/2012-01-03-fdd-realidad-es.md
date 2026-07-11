@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD realidad-es"
+date: 2012-01-03 07:16:00 +0000
+permalink: /2012/01/fdd-realidad-es.html
+tags:
+  - leather
+  - FdD
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/c5/8c/c58cc72913d394ce1c7c92c2b7948b33c70702d137648ab180c48fc746e8b9fb.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/c5/8c/c58cc72913d394ce1c7c92c2b7948b33c70702d137648ab180c48fc746e8b9fb.jpg" /></a></div><div style="text-align: justify;">a este perro le gusta ver las fotos de los múltiples encuentros que se producen a lo largo del mundo: san francisco, berlin, el iml....la principal razón es que los tíos que salen ahí son personas reales, de carne y hueso, no como los actores pornos que parecen salidos todos de un molde. sin embargo es cierto que cada vez la gente real se parece más a los actores pornos. mi Dueño me ha dicho muchas veces que El no tiene aspecto de Amo, y es cierto; pero este perro tampoco tiene aspecto de esclavo. ¿qué aspecto tienen un Amo y un esclavo? en el fondo la pregunta es intrascendente porque, lo parezcamos o no, de hecho lo somos. El es mi AMO y yo soy su esclavo, su perro. con que conozcas un poco cualquier ambiente gay de cualquier ciudad del mundo, lo primero que llama la atención es la superficialidad, como la gente se queda en lo evidente, y en lo aparente. mi escasa experiencia me ha enseñado que el tio más tímido puede ser el Amo más duro con el que te puedas enfrentar; y que el tio más seguro y masculino empieza a gemir como una niña ante la primera bofetada. ni mi AMo ni yo tenemos pinta de Amo y esclavo, como tal vez los de la imagen, pero le pertenezco, me posee, controla mi vida, mi existencia... que ya no es mia. decide qué, cuándo, cómo y dónde. me pude dejar años sin un orgasmo, u ordenarme que me ordeñe cinco veces en un día, hasta que me sangre la polla. El decide si vivo o si mi existencia es un triste reflejo de una vida. mi cuerpo reacciona ante El, poniéndome aún más perro, sus botas son el sabor de mis labios y sus cuerdas me cortan la circulación, aún en la distancia. viviendo eso ¿a quien le importan las apariencias?</div>

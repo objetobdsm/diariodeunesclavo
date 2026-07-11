@@ -1,0 +1,11 @@
+---
+layout: post
+title: "¿vaqueros clásicos?"
+date: 2009-07-17 04:13:00 +0000
+permalink: /2009/07/vaqueros-clasicos.html
+tags:
+  - imagenes
+  - vaqueros
+---
+
+<a onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}" href="/uploads/8d/43/8d43ba327e29ae18f7dcc0d059840259733ddfc26928e4449e66c7afe0d6ca38.jpg"><img style="display:block; margin:0px auto 10px; text-align:center;cursor:pointer; cursor:hand;width: 329px; height: 400px;" src="/uploads/8d/43/8d43ba327e29ae18f7dcc0d059840259733ddfc26928e4449e66c7afe0d6ca38.jpg" border="0" alt="" id="BLOGGER_PHOTO_ID_5354082913580147074" /></a><br /><a onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}" href="/uploads/e6/36/e63678fa373fbb4eab8f4cec4666dbc64aef9fa40610c9866988c89d43820961.jpg"><img style="display:block; margin:0px auto 10px; text-align:center;cursor:pointer; cursor:hand;width: 301px; height: 400px;" src="/uploads/e6/36/e63678fa373fbb4eab8f4cec4666dbc64aef9fa40610c9866988c89d43820961.jpg" border="0" alt="" id="BLOGGER_PHOTO_ID_5354082907915776610" /></a><br /><a onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}" href="/uploads/8a/b3/8ab316cae61737684a8b955d9e34a92da8301fd53cd89dd9e42c115065b16a29.jpg"><img style="display:block; margin:0px auto 10px; text-align:center;cursor:pointer; cursor:hand;width: 278px; height: 400px;" src="/uploads/8a/b3/8ab316cae61737684a8b955d9e34a92da8301fd53cd89dd9e42c115065b16a29.jpg" border="0" alt="" id="BLOGGER_PHOTO_ID_5354082901582993074" /></a><br /><a onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}" href="/uploads/90/0e/900e819d6cbc671a9192e0d0109b27075807ade53feccbbf0da1023fa0795d0a.jpg"><img style="display:block; margin:0px auto 10px; text-align:center;cursor:pointer; cursor:hand;width: 285px; height: 400px;" src="/uploads/90/0e/900e819d6cbc671a9192e0d0109b27075807ade53feccbbf0da1023fa0795d0a.jpg" border="0" alt="" id="BLOGGER_PHOTO_ID_5354082900196250914" /></a><div style="text-align: justify;">a veces no es la realidad sino lo que imaginamos sobre la propia realidad lo que se impone. estas fotos se me antojan antiguas pero ¿los vaqueros del XIX eran realmente así? supongo que no. ni eran tan felices, ni posiblemente tuvieran esta ropa. de lo que no hay duda es de que si llevaban sus botas de montar. a mi Señor le gustan mucho las botas vaqueras. ¿hay que decir más?</div>

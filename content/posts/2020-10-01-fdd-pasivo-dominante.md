@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD pasivo Dominante"
+date: 2020-10-01 08:58:00 +0000
+permalink: /2020/10/fdd-pasivo-dominante.html
+tags:
+  - FdD
+  - leather
+---
+
+<p> </p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/6a/13/6a138936e77bfbe674c38d3a7232104c761f1b289393ad4b5eab52b3fa8bc907.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="695" data-original-width="563" height="640" src="/uploads/47/7a/477a244ea3aa78b0e628f55cec926b71d631717d26112fe7520387eed2e86fe9.jpg" width="518" /> </a></div><div class="separator" style="clear: both; text-align: justify;">a pesar de que el bdsm está muy estructurado, muy organizado, con símbolos claros y evidentes, la misma existencia de esos símbolos implica una polisemia que puede llevar a confusión. el cuero, por ejemplo, es un material que siempre se referencia a Dominantes, a Superiores, a Amos; mientras que el latex es más usado por inferiores y sumisos. sin embargo eso no siempre es así. muchos Amos gustan de vestirse de latex y a muchos les favorece sin duda este material. sin embargo en el imaginario colectivo seguimos utilizando los marcadores, los símbolos de una manera determinada. debemos fijar un sentido para que la comunicación sea posible. sin embargo siempre debemos dejar un cierto margen para la sorpresa. la FdD de hoy puede servirnos. incluso vestido de cuero, la cremallera en el culo de este lederón indica que es un pasivo, al que le gusta ser penetrado. no es algo que apliquemos a menudo a un Amo, pero eso no significa que un Dominante no pueda disfrutar con el sexo anal. la gran diferencia es que, elija lo que elija, desee lo que desee, le guste lo que le guste, tiene todo el derecho del mundo, toda la necesidad del mundo, de ser satisfecho y los inferiores tenemos la obligación de satisfacer esos deseos. no por penetrarle somos Dominantes, no por ser activos somos Superiores. eso va más allá de las meras prácticas. la clave aquí es quien manda y quien obedece, en definitiva, quien tiene el control. <br /></div><br /><p></p>

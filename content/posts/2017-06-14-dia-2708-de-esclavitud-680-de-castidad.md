@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2708 de esclavitud, 680 de castidad"
+date: 2017-06-14 22:22:00 +0000
+permalink: /2017/06/dia-2708-de-esclavitud-680-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">desde hace unos días el objeto siente que está entrando en estado bajo, una de esas etapas de decaimiento que regularmente afectan al objeto. se lo comunicó al Dueño como era su obligación. tras el trabajo de la mañana el objeto estuvo en casa toda la tarde, en silencio, trabajando. en un momento dado Dueño y objeto comenzaron una conversación, que como viene siendo habitual últimamente, fue subiendo de tono. fue utilizando el messenger así que todo fue escrito. a medida que iban a pareciendo las palabras en la pantalla, el objeto se sentía cada vez más y más en subspace.... hasta que cayó definitivamente. por segunda vez en menos de una semana el objeto estaba en ese estado extraño similar a la hipnosis, o hipnótico, que el objeto ha llamado "apagar la mente". el objeto queda completamente incapaz de moverse, de pensar, de elegir, de reaccionar. se convierte en una especie de muñeco, autómata que responde a las órdenes del Dueño, no a las propias. porque ya no tiene voluntad. apenas podía seguir leyendo, porque los mensajes seguían llegando.<br/>los minutos fueron pasando y el objeto no podía hacer nada, apenas respirar porque no podía moverse. cuando pasaron lo que después dijo el Dueño que habían sido diez minutos, el Dueño llamó al objeto, pero éste no pudo responder porque no pudo descolgar el móvil. estaba completamente inmovilizado.<br/>entonces el Dueño volvió a enviar mensajes por el ordenador y el objeto pudo leerlos, lo que le hizo salir lo suficiente de ese estado como para poder contestar la siguiente llamada del Dueño. ya hablando, el Dueño sacó definitivamente al objeto de ese estado. cuando terminó con él, el objeto estaba completamente tranquilo y había desaparecido cualquier rasgo de tristeza o malestar previo. fue un encuentro terapeútico completamente.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

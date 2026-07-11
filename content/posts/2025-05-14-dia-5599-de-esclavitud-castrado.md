@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5599 de esclavitud, castrado permanentemente"
+date: 2025-05-14 22:00:00 +0000
+permalink: /2025/05/dia-5599-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el objeto ha tenido varias formaciones online que han hecho que se quede en casa. están pasando muchas cosas a su alrededor que el objeto no puede, ni tiene que, controlar pero que sin embargo le afectan: temas familiares, laborales y hasta cierto punto existencial. el objeto preveía que algo como esto ocurriría. no se puede cambiar las reglas del juego y espera que luego puedas participar mínimamente. el objeto lo expresa de una forma muy concreto y es, si dejas de ser humano, cada vez será más difícil participar en el mundo de lo humano, hasta que prácticamente sea imposible hacerlo. no puedes tomar decisiones en el trabajo cuando tu naturaleza más profunda es obedecer, especialmente si mi Señor desarrolla esa naturaleza cada día. </p><p style="text-align: justify;">cuando se llega a un punto de sumisión determinado, resulta cada vez más difícil hacerse pasar por humano, cada vez resulta más complicado, y entonces vienen las crisis: momentos de destrucción pero también de oportunidad de crecimiento. la sociedad actual huye de las crisis, sobre todo porque no quiere sufrir la destrucción pero también porque en esa sociedad no se aprovechan para crecer. solo tienen que ver lo que ha ocurrido con las últimas crisis económicas o lo que pasó con el covid. parece que no hemos aprendido nada. no es así con la esclavitud voluntaria, donde las crisis son necesaria, fundamentales. tal vez sea porque el proceso de entrenamiento no es sino un proceso de destrucción de todo lo que han superpuesto sobre ti para dejar brillar tu auténtica naturaleza.</p><p style="text-align: justify;">el objeto intuye el comienzo de una de estas crisis. hasta que punto sea y como lo aproveche dependerá más del Amo que del objeto, pero no puede huir de ella sino afrontarla como viene.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

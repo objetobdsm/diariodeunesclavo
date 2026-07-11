@@ -1,0 +1,10 @@
+---
+layout: post
+title: "dia 2420 de esclavitud, 392 de castidad"
+date: 2016-08-31 22:10:00 +0000
+permalink: /2016/08/dia-2420-de-esclavitud-392-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">mañana empieza de nuevo 402 a trabajar. después de estas vacaciones cualquiera diría que no tiene ganas pero no es así. a 402 no le preocupa el trabajo, y de hecho le gusta el suyo, tanto como para preocuparse más por él que por el día de cobrar el sueldo. el problema no es ese. el problema es que en su trabajo 402 tiene que elegir, decidir, incluso a veces ordenar cosas y, como dice el Dueño, eso va en contra de su auténtica naturaleza, de su auténtica vida. el Dueño lo sabe y por eso hoy le dijo a 402 que le gustaría que "mañana fuera con botas, pero que hace demasiado calor aún". es una forma de darle fuerzas a su objeto. 402 agradeció el detalle del Dueño, tanto que fuera consciente de su situación como de que aún hace un calor terrible para llevar botas.<br/>en cualquier caso, incluso aún sin botas, 402 llevará la jaula física y el collar que no es físico, porque se sabe, se siente y es de hecho, una propiedad del Dueño. eso es algo que es así con botas o sin ellas, cubierto de cuero y latex o desnudo completamente. uno es lo que es, y le ha costado a 402 demasiado descubrirlo para ahora ponerlo en cuestión.<br/>después de este verano, y del anterior, todo ha cambiado de alguna forma. el Dueño ha colonizado no sólo el cuerpo de 402 sino también su mente y ahora sí que puede afirmar con todas las letras que no es nada y que vive a merced del Dueño. ese es lo que siempre deseó y lo que vive, incluso mañana en el trabajo en un contexto de no-vida. como elemento simbólico 402 se ha rapado hoy, otra muestra de su naturaleza sumisa y esclava.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

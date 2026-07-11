@@ -1,0 +1,10 @@
+---
+layout: post
+title: "762 días de esclavitud, 5 de castidad"
+date: 2012-02-16 23:17:00 +0000
+permalink: /2012/02/762-dias-de-esclavitud-5-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">en las primeras conversaciones con mi Dueño me presentó un escenario intrigante. me dijo qeu, cuando diera el Gran Salto, la primera cuestión a tratar sería romper mi voluntad para que pudiera quedar as u merced y El pudiera entrenarme, adiestrarme y modelarme a su gusto. ¿la forma de hacerlo? manteniéndome encerrado, aislado durante al menos tres meses. </div><div style="text-align: justify;">aquello me pareció de una radicalidad extrema y, por supuesto, me sedujo inmediatamente. algo en el interior de este perro se movió al oir esas palabras. me hizo descubrir que había alguien que era capaz de hacerlo, porque lo decía completamente en serio.</div><div style="text-align: justify;">esto viene a mi mente porque hoy he añorado esta experiencia, sentir que rompían la voluntad de este perro mediante el encierro y el ejercicio de la violencia. la "normalidad" me aburre comoe sclavo, hace olvidad lo que soy, cual es mi sitio. poco a poco, casi imperceptiblemente me lleva hacia un estado donde llego a olvidar lo fundamental.</div><div style="text-align: justify;">el mismo retraso en publicar en este blog, la superficialidad de las entradas, marcadas con la etiqueta "esclavitud"·, todo es no son sino síntomas de un mal que, si no se ataja, puede producir problemas: la pérdida de la centralidad mi ser de esclavo. la no-vida puedes ser como una pequeña gotera, casi imperceptible, pero que poco a poco puede ir calando y, cuando te das cuenta, tienes un problema de humedades que afecta a la integridad estructural de la casa. ¿le está pasando eso a este perro?</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

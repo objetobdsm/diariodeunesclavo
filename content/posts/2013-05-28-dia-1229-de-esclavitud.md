@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1229 de esclavitud"
+date: 2013-05-28 21:33:00 +0000
+permalink: /2013/05/dia-1229-de-esclavitud.html
+tags:
+  - personal
+---
+
+62 días de castidad, 62 desde el último ordeño<br /><div style="text-align: justify;">últimamente todos los días parecen ser días muy duros. por la mañana el trabajo fue intenso y por la tarde metido en la facultad. a primera hora de la tarde el perro fue al baño. ya no recuerda cuando orinaba de pie. el perro siguió el ritual. orinó y se secó. se colocó la jaula y se puso los pantalones, salió del baño y se fue a comer. justo estaba saliendo cuando notó como supuraba. fue una sensación extraña, como si se orinase encima; y humillante, muy humillante. el perro pensó que esa era su vida ahora, una vida de humillación.</div><div style="text-align: justify;">el perro estuvo toda la tarde con los calzoncillos manchados con ese líquido preseminal. manos mal que no fue gran cantidad porque podría serlo ya que son 62 días sin sacar la leche. si se cumplen los deseos del Dueño no volverá el perro a correrse bien hasta que esté en su presencia. y el perro dice "si se cumplen" no porque dude de que ocurra sino que el Dueño decide si llega a entonces o el perro lo hace antes. la voluntad del Dueño es la ley para el perro. si el Dueño decidiera que el perro se masturbase todos los días no sería el perro quien para cuestionar nada. sencillamente obedecería. la castidad no es un logro del perro, sino del Dueño, de su férreo control y de su adiestramiento. el perro ya no decide cuando, o cuánto o como, eso queda lejos de su control. es el Dueño quien controla y quien decide, quien marca y quien ordena. de hecho el nuevo paso de la microsupervisión hace esto una realidad.</div>obediencia ciega para el esclavo, poder absoluto para el Amo.

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1916 de esclavitud, 3 de castidad"
+date: 2015-04-14 22:30:00 +0000
+permalink: /2015/04/dia-1916-de-esclavitud-3-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">para cualquiera el día de hoy sería un día de éxito, de triunfo porque el perro tuvo que "presentar resultados" y estos fueron, sinceramente, espectaculares. hubo mucho reconocimiento y mucho valoración, pero esto es solo alimento del ego, y un esclavo tiene, o debe tener, un ego muy reducido. el trabajo está intenso, con días muy duros, pero el perro no se siente especialmente afectado porque ha regresado a la no-vida lleno de energía.<br/>esta semana comienzan a aclararse las condiciones del perro para el año que viene, si seguirá en su mismo puesto de trabajo o cambiará. pero independientemente de donde esté, su camino sigue claro porque en su último viaje ha confirmado su lugar en el mundo y que la no-vida es accesoria. lo importante es que sabe que ha nacido para obedecer a su Dueño y vivir bajo sus botas.<br/>el perro no ha llevado hoy la jaula. el pasado fin de semana el perro le comunicó al Dueño que la jaula de metal, la única que puede ponerse ya porque la de plástico se rompió, empieza a descascarillarse. ambas fueron compradas por internet y traídas de china, algo que no garantizaba su nivel. eran las primeras que Dueño y perro compraban y sabían que no eran las definitivas. la de plástico se rompió porque los aros no aguantaban. la de metal duró mucho más tiempo pero poco a poco se ha ido descascarillando, con lo que no es de acero inoxidable. en cuanto se lo dijo al Dueño este priorizó la seguridad sobre cualquier otra cosa, así que ordenó al perro que no se la pusiera más. el perro obedeció.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

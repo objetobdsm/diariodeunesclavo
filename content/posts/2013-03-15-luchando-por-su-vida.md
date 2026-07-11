@@ -1,0 +1,11 @@
+---
+layout: post
+title: "luchando por su vida"
+date: 2013-03-15 18:04:00 +0000
+permalink: /2013/03/luchando-por-su-vida.html
+tags:
+  - bondage
+  - videos
+---
+
+<div><br /></div><div class="separator" style="clear: both; text-align: center;"><object width="420" height="366" class="BLOG_video_class" id="BLOG_video-af3026720459fc18" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=6,0,40,0"><param name="movie" value="//www.youtube.com/get_player"><param name="bgcolor" value="#FFFFFF"><param name="allowfullscreen" value="true"><param name="flashvars" value="flvurl=http://redirector.googlevideo.com/videoplayback?id%3Daf3026720459fc18%26itag%3D5%26source%3Dblogger%26app%3Dblogger%26cmo%3Dsensitive_content%253Dyes%26ip%3D0.0.0.0%26ipbits%3D0%26expire%3D1365574459%26sparams%3Did,itag,source,ip,ipbits,expire%26signature%3D7A95A8B2607BE190993C4040E41EF9512987BED1.315F9262D2A3D98A89D3C71F9A4DB34C5B47D3BF%26key%3Dck2&iurl=http://video.google.com/ThumbnailServer2?app%3Dblogger%26contentid%3Daf3026720459fc18%26offsetms%3D5000%26itag%3Dw160%26sigh%3DJVHDBw8PvoS0zaGfD5a5zPnoyeY&autoplay=0&ps=blogger"><embed src="//www.youtube.com/get_player" type="application/x-shockwave-flash" width="420" height="366" bgcolor="#FFFFFF" flashvars="flvurl=http://redirector.googlevideo.com/videoplayback?id%3Daf3026720459fc18%26itag%3D5%26source%3Dblogger%26app%3Dblogger%26cmo%3Dsensitive_content%253Dyes%26ip%3D0.0.0.0%26ipbits%3D0%26expire%3D1365574459%26sparams%3Did,itag,source,ip,ipbits,expire%26signature%3D7A95A8B2607BE190993C4040E41EF9512987BED1.315F9262D2A3D98A89D3C71F9A4DB34C5B47D3BF%26key%3Dck2&iurl=http://video.google.com/ThumbnailServer2?app%3Dblogger%26contentid%3Daf3026720459fc18%26offsetms%3D5000%26itag%3Dw160%26sigh%3DJVHDBw8PvoS0zaGfD5a5zPnoyeY&autoplay=0&ps=blogger" allowFullScreen="true" /></object></div><div style="text-align: justify;">con este título encontré el video en internet "struggling for life". al perro le pareció un poco excesivo pero aún así lo mantuvo porque tiene cierta dosis de verdad. los esclavos, a veces, luchamos por una vida que no nos satisface, sencillamente porque no nos damos cuenta que rindiéndonos y abandonando esa vida, seremos más felices.</div>

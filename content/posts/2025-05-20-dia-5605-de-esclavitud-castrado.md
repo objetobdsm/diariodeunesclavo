@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5605 de esclavitud, castrado permanentemente"
+date: 2025-05-20 22:13:00 +0000
+permalink: /2025/05/dia-5605-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el objeto no sabe qué ha pasado ni como ha pasado. solo sabe que el domingo estaba hundido anímicamente y que hoy está tranquilo y en paz. lo único que ha habido en medio ha sido la intervención de mi Señor siendo Él mismo, tomando las riendas, ejerciendo su poder. esto necesitará una reflexión más profunda sin duda pero el hecho es ese. no hay más. no hay discusión ni duda. mi Señor le ha dicho que no recordaba haber visto al objeto tan mal y que le costará un poco recuperarse pero que no piensa volver a dejar que caiga en el mismo estado, que no lo permitirá. como siempre el objeto ha agachado la cabeza y aceptado que la única realidad es la que dice mi Señor.</p><p style="text-align: justify;">hoy el objeto ha tenido que ir a la oficina y ha empezado a usar unos auriculares con cancelación de ruido, lo que le permite aislarse del mundo y centrarse en trabajar y estudiar, que es lo único que debe hacer ahora que las formaciones más o menos han terminado ya que solo le queda una. mi Señor ha estado presente todo el día preguntando cómo se encontraba, que tal iba todo, etc. el objeto aprovechó mucho la mañana, y algo menos la tarde pero no ha dejado de pensar en el pasado fin de semana y especialmente en lo ocurrido ayer. si alguien quisiera preguntarle al objeto qué ha sido, no podría decirle, sencillamente el Amo empezó a hablar y a ordenar cosas y el objeto se centró, la angustia y la tristeza desaparecieron y el equilibrio volvió. no fue nada violento pero tampoco nada empalagoso o sentimental. el Amo recordó al objeto lo que era, para qué existía, por qué estaba aquí, y eso fue suficiente.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega. </p>

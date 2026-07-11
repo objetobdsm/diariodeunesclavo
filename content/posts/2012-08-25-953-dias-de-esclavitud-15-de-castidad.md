@@ -1,0 +1,10 @@
+---
+layout: post
+title: "953 días de esclavitud, 15 de castidad"
+date: 2012-08-25 22:00:00 +0000
+permalink: /2012/08/953-dias-de-esclavitud-15-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">este perro ha estado hoy un poco triste. es plenamente consciente de sus estados de humor, que van cambiando según los días. hoy el calor, la sociabilidad de ayer, que cada vez me sienta peor, y la posibilidad de volver al trabajo la semana que viene, se superponen hasta dejar una situación anímica no muy agradable. este perro, al ser plenamente consciente de su ciclotimia, no le da más importancia que la que tiene, es decir, hay que esperar a que pase y así ha estado todo el día, sin salir de casa, y ya ha perdido la cuenta.</div><div style="text-align: justify;">hoy se cumplen 15 días en castidad y prácticamente ya supuro cada vez que voy al baño. sin embargo no se siente este perro especialmente caliente ni cachondo. más bien al contrario, está tranquilo y relajado. supone que la ciclotimia también se puede aplicar a la actividad y la vivencia sexual. o a lo mejor es sencillamente que efectivamente el cuerpo de este perro ha sido tan entrenado y dominado por su Amo que ya está domado y sólo responde a sus órdenes. este es el objetivo, el ideal de este esclavo, pero no desea cantar victoria demasiado pronto, porque basta que lo haga para que caiga de alguna manera. lo que sí es evidente es que, si aún no lo ha domado del todo, el Amo ha domesticado el cuerpo de este perro. de una situación de descontrol absoluto ha pasado a una de control absoluto. como todos los lectores saben ahora sólo puede ordeñarse este perro cuando el Dueño lo ordena y en las condiciones que El establece. </div><div style="text-align: justify;">el Amo ha estado pendiente de este perro por cuanto desde primera hora supo que anímicamente no estaba del todo bien. su atención y su consideración sobrecogen a este perro y le confirman en que está en el lugar correcto, allí donde siempre quiso estar y de donde no quiere marcharse nunca.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo</div>

@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD no es un juego"
+date: 2021-11-02 07:01:00 +0000
+permalink: /2021/11/fdd-no-es-un-juego.html
+tags:
+  - control respiración
+  - FdD
+  - vaqueros
+---
+
+<div dir="ltr"><div></div><div style="text-align: center;"><a href="/uploads/bc/79/bc79606b170af42dfdb91feeaccba662b0f3c3c6b51226388cd6556126fb9dee.jpg"><img alt="" border="0" height="640" id="BLOGGER_PHOTO_ID_7028462316769210194" src="/uploads/1f/6a/1f6af45e011930bc33a95a33ca38b96c991773c2d5c765157bc065a25662a931.jpg" width="480" /></a> </div><div style="text-align: justify;">la sumisión no es un juego, al menos no lo es si te lo tomas seriamente. someterte, entregarte, implica una serie de cosas que tiene sus consecuencias. esto es algo que intuimos desde el principio. se expresa en las típicas frases de temor ¿y si me gusta demasiado? ¿y si luego no puedo hacer otra cosa? ¿y si...?. es cierto que al principio es excitante, sexual, caliente.... pero a medida que el Superior va ganando terreno lo vas perdiendo tú y entonces para lo que pasa, que te das cuenta de que puedes perder el control, pero perderlo de verdad, que pasarás a depender de Él, de sus deseos, de sus órdenes, de lo que Él decida. tú irás desapareciendo y cada vez decidirás menos. es justo en este punto cuando mucha gente abandona, o se estanca. quieren someterse, pero seguir manteniendo el control. porque para seguir adelante hace falta un salto de fe, un salto en el que puedes perderlo todo sin esperar nada a cambio. y así es. si lo das, te sometes, pero de verdad. el Superior se convierte en el centro de tu existencia y pierdes todo lo anterior. lo que pocos son conscientes es que, entonces, te das cuenta de que eso anterior que tanto valorabas, que tanto valía para ti, no era realmente nada, no tenía valor. tras ese salto te das cuenta de que habías vivido una mentira y que solo ahora eres realmente tú, justamente cuando Él es todo para ti. entonces tu vida le pertenece, tú le perteneces y el Superior, si es un buen Superior, te cogerá en sus manos y evitará que vuelvas a caer en la infelicidad en la que vivías antes del salto y de la que no te dabas cuenta. siendo un esclavo natural, hasta que tu vida no dependa del Superior, no sabrás lo que es vivir.<br /></div><div></div></div>  

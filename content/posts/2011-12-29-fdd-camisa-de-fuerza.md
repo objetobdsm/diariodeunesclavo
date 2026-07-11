@@ -1,0 +1,13 @@
+---
+layout: post
+title: "FdD camisa de fuerza"
+date: 2011-12-29 07:09:00 +0000
+permalink: /2011/12/fdd-camisa-de-fuerza.html
+tags:
+  - bondage
+  - leather
+  - capucha
+  - FdD
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/d4/4a/d44aef297fcf93940be349ce1b626276ae44c336a9feb6428c633ebe06de057d.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/d4/4a/d44aef297fcf93940be349ce1b626276ae44c336a9feb6428c633ebe06de057d.jpg" /></a></div><div style="text-align: justify;">a veces los términos son interesantes, como el de camisa de fuerza.  a este perro le llama sobre todo la atención el hecho de la fuerza. cambiar, transformarse, liberarse para convertirse en esclavo necesita de fuerza, de mucha fuerza. por un lado requiere un ser con la fuerza suficiente como para recorrer este camino, a pesar de las dificultades que se presentan, los desánimos y los obstáculos. sin una gran fuerza interior es imposible perseverar en la sumisión.</div><div style="text-align: justify;">pero también es necesaria la fuerza del Amo, en este caso no sólo consigo mismo, sino con el propio esclavo. el esclavo debe ser deconstruído y desinstalado; deconstruído porque su vida, hasta ese momento, ha sido un adoctrinamiento constante de ideas que han ido en contra de su naturaleza sumisa. las creencias, los valores, las ideas se han acumulado y se han hecho una parte importante de su ser, pero siempre se ha sentido un extraño, alguien viviendo una vida que no le corresponde, buscando desesperadamente su sitio en el mundo. </div><div style="text-align: justify;">de igual forma el esclavo debe ser desinstalado, movido del sitio donde ha desarrollado toda su actividad, precisamente para que ésta se ponga en cuestión y entre en crisis. ambas cosas no se pueden hacer sin ejercer un poco, o un mucho, de fuerza por parte del Amo. mi Dueño lo expresa diciendo que, cuando de el Gran Salto, cuando cierre la celda, El me dará el último empujón. ese empujón es un concepto metafórico para expresar esa fuerza que empleara, y que puede encontrar resistencia por parte del esclavo. el éxito de todo el proceso radica sobre los hombros del Amo, de su capacidad de tirar sin romper, de empujar sin lanzar al suelo, de mantener el equilibrio entre la fuerza y la posibilidad y capacidad del esclavo de cambiar. el objetivo no es otro que el esclavo viva con una camisa de fuerza permanente y una capucha constante para que su Amo sea sus brazos, sus ojos, su boca, y sus oídos.</div>

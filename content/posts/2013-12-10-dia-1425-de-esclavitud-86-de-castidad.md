@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1425 de esclavitud, 86 de castidad"
+date: 2013-12-10 22:17:00 +0000
+permalink: /2013/12/dia-1425-de-esclavitud-86-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el perro se levantó y lo primero que hizo fue rasurarse los genitales. la jaula estaba ya tirando de los incipientes pelos. es una rutina que el perro realiza regularmente. luego vino el trabajo y el perro se sintió cómodo. sin embargo por la tarde el perro tuvo unas ganas enromes y permanentes de quitársela. no es que estuviera el perro caliente, o quisiera quitársela para masturbarse. sencillamente quería quitársela, sacarla, liberar el pene.<br/>en un momento dado el deseo de quitárse la se convirtió en encesidad y el perro se planteó suplicárselo al Dueño para estar sin ella. pero no era más que una tentación, un intento del ego de que el perro se aleje de su objetivo. últimaemnte hay demasiadas ocasiones que pasa eso, el ego siempre sigue estando ahí.<br/>al final el perro aguantó y resistió. sigue con la jaulay no suplicó al Dueño que lo liberara. ya no hay libertad para el perro. la jaula será una constante en su vida, ya es una constante en su vida. durante el camino habrá muchos momentos como esta, momentos de tentación para abandonar el objetivo que se ha planteado y que el Dueño ha ordenado.<br/>es curioso como visitando algunos blogs de internet sobre castidad, muchos sumisos son enjaulados durante un determinado período de tiempo, y realizan una cuenta atrás hasta el momento de ser liberados y poder mastubarse. la perspectiva de poder masturbarse es lo que los mantiene excitados. el perro ya no hace cuenta atrás, no tiene la esperanza de masturbarse más, salvo que el Dueño lo ordene. sólo queda delante un camino de obediencia.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,13 @@
+---
+layout: post
+title: "FdD claridad"
+date: 2025-05-03 07:29:00 +0000
+permalink: /2025/05/fdd-claridad.html
+tags:
+  - FdD
+  - leather
+  - amos
+  - esclavos
+---
+
+<p></p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/bb/55/bb5539c8d1b3c30af565349d84f9cee7f640e6f9ca7171e80efc85028823335d.png" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="803" data-original-width="637" height="640" src="/uploads/28/22/282214f6911c12e5414894054187853afde14df9cabc95693947ae5b911f1197.jpg" width="508" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: justify;">las cosas pueden ser fáciles o complicadas, sencillas o difíciles, oscuras o evidentes. a veces hay que interpretar, deducir, suponer, con el consiguiente peligro de que se confunda y haya problemas. uno puede plantearse el tipo de relación que tiene una pareja, no saber claramente quién es el Amo y quien el esclavo, quién el sumiso y quien el Dominante. pero hay veces, como hoy, en que todo está claro y transparente. todo está lúcido. se sabe perfectamente quién es el Amo, quien el esclavo, quién está al mando y quien obedece. se aprecia quien tiene el Poder, aunque solo se por la forma en que lo sujeta por la espalda. no es una mera cuestión estética. en este caso la estética expresa y manifiesta una ética determinada, una forma de comportarse, de relacionarse y de vivir.</div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: justify;">las cosas pueden ser fáciles o complicadas, sencillas o difíciles, oscuras o evidentes. a veces hay que interpretar, deducir, suponer, con el consiguiente peligro de que se confunda y haya problemas. uno puede plantearse el tipo de relación que tiene una pareja, no saber claramente quién es el Amo y quien el esclavo, quién el sumiso y quien el Dominante. pero hay veces, como hoy, en que todo está claro y transparente. todo está lúcido. se sabe perfectamente quién es el Amo, quien el esclavo, quién está al mando y quien obedece. se aprecia quien tiene el Poder, aunque solo se por la forma en que lo sujeta por la espalda. no es una mera cuestión estética. en este caso la estética expresa y manifiesta una ética determinada, una forma de comportarse, de relacionarse y de vivir.</div><br /><p></p>

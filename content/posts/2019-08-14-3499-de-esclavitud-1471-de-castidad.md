@@ -1,0 +1,10 @@
+---
+layout: post
+title: "3499 de esclavitud, 1471 de castidad"
+date: 2019-08-14 22:16:00 +0000
+permalink: /2019/08/3499-de-esclavitud-1471-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">la mañana fue como ayer. el objeto la pasó todo el tiempo con el collar puesto y las esposas unidas por delante. así trabajó toda la mañana en el ordenador, escribiendo al Dueño, siguiendo las fórmulas que había establecido. el objeto se sentía muy objeto, muy sumiso y sometido.<br/>por la tarde por fin hablamos Dueño y objeto. fue una conversación larga y a veces difícil que hizo que se expresaran cosas. como siempre tener que ponerles nombre a las cosas hace que nos hagamos una idea de ellas.<br/>en resumidas cuentas lo que pasó el lunes fue que el Dueño trató al objeto como no lo había tratado nunca. se centró en Él y se olvidó del objeto y eso es lo que es ser un objeto. nunca antes esto se había sentido tan nada, tan sin derechos, tan mudo, tan sin pensamiento. ante cualquier otro habría sido una conversación injusta pero fue la definición misma de una relación de D/s extrema.<br/>el objeto se sintió hundido en la más profunda sumisión. y al objeto le encantó hasta el punto de tener una erección contenida por la jaula. cuando el Dueño y el objeto llegaron juntos a esta conclusión. fue como llegar a casa, como si todo cobrara sentido. el Dueño había sido Dueño y el objeto objeto, así de simple y así de profundo.<br/>cuando parece que no puedes ir más abajo en la sumisión ocurre algo que hace que bajes más. aún el objeto se siente dolorido por dentro y cree que es por lo mucho que lo del lunes afectó al ego. todo nacimiento es doloroso y el lunes algo nació en el objeto.<br/>todavía quedan cosas por pulir pero el objeto cree que la relación entre Dueño y objeto va a cambiar a partir de ahora.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

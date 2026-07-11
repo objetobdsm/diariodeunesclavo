@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2833 de esclavitud, 805 de castidad"
+date: 2017-10-17 22:27:00 +0000
+permalink: /2017/10/dia-2833-de-esclavitud-805-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">un nuevo día intenso de trabajo, aunque en esa ocasión las horas fueron sólo diez. aún así lo más significativo es que el objeto tuvo de nuevo que usar las zapas debido al calor, que por otro lado tiene a todo el mundo alterado, algo normal hasta cierto punto. las relaciones sociales se vuelven entonces una especie de campo de minas, y esto hace añorar al objeto el bondage, el silencio y la obediencia. ahí sabes a lo que atenerte: a lo que diga el Dueño. no hay dobles sentidos, ni nadie se puede ofender. obedeces y punto. el calor, el exceso de trabajo, el tiempo juntos hace que algunos compañeros de trabajo piensen que el mundo, el universo gira alrededor de ellos, lo cual es un efecto del ego. pues no. el universo no gira alrededor nuestro, ni siquiera somos el centro de nada. el objeto lo tiene muy claro, completamente claro, el Dueño se lo ha enseñado. en todo caso El es el centro del universo del objeto, y eso le da al objeto una perspectiva increíble desde la que afrontar todo, el trabajo, su vida, su propia existencia.<br/>cada tanto tiempo, y de forma recurrente, el objeto o bien escribe o bien recibe del Dueño una serie de frases que, básicamente se pueden reducir a dos: "No eres nada. No tienes derecho a nada". luego hay otras que aparecen de vez en cuando: "Eres mio y puedo hacer contigo lo que quiera". como una gota de agua va minando tranquila y pausadamente una roca hasta romperla, estas frases ejercen el mismo efecto en el objeto. no permiten que el contexto, el entorno, se apropie del objeto y le haga perder la perspectiva. centran al objeto y eliminan los estímulos externos que le pueden desviar de su entrenamiento. además son la forma más directa y concreta del Dueño para mantenerlo focalizado en El. realmente el objeto se siente muy afortunado.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

@@ -1,0 +1,11 @@
+---
+layout: post
+title: "nuestra historia"
+date: 2010-07-29 09:50:00 +0000
+permalink: /2010/07/nuestra-historia.html
+tags:
+  - imagenes
+  - old guard
+---
+
+<div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/fe/8e/fe8ef525d8c04e3e0d21fbc7f0c385d4fa3c2e9040858a6b357ed3a08a60e16b.jpg" imageanchor="1"><img height="400" src="/uploads/fe/8e/fe8ef525d8c04e3e0d21fbc7f0c385d4fa3c2e9040858a6b357ed3a08a60e16b.jpg" width="253" border="0" /></a></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify"><br /></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify">no venimos de la nada, otro nos precedieron, vivieron lo que vivimos nosotros a veces de una forma más difícil y dura, otras de forma más sencilla porque tenían las cosas más claras y estaba menos comercializado todo esto. el hecho es que abrieron el camino y eso merece respeto por nuestra parte.</div><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><br /></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/82/10/821059bacff70aee3af0fcbc5676a294f087858729c4e54a109842e4bd4fb10a.jpg" imageanchor="1"><img height="400" src="/uploads/82/10/821059bacff70aee3af0fcbc5676a294f087858729c4e54a109842e4bd4fb10a.jpg" width="321" border="0" /></a></div><br />si para nosotros no es fácil, me imagino cómo sería para ellos. pero, como decía, la marginalidad implica un cierto grado de autenticidad. no era una broma ser leather hace 20, 30 o 40 años. era duro y difícil. es cierto que alguien como yo, o hubiera emigrado o nunca habría realizado su sueño de esclavitud, algo que hoy es posible.<br /><br /><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/df/eb/dfebd8501633357aee768eccaf0b74d78f132db6a24e144383aa8a00fd7c1a4e.jpg" imageanchor="1"><img height="400" src="/uploads/df/eb/dfebd8501633357aee768eccaf0b74d78f132db6a24e144383aa8a00fd7c1a4e.jpg" width="312" border="0" /></a></div><br /><br />en cualquier caso ello vivieron con valores que casi hemos olvidado: honor, responsabilidad, disciplina, compañerismo, servicio.... a veces añoro vivir esos momentos hoy en día.

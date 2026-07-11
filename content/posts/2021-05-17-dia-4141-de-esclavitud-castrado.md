@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 4141 de esclavitud, castrado permanentemente"
+date: 2021-05-17 21:20:00 +0000
+permalink: /2021/05/dia-4141-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;">el trabajo que el Dueño ha realizado con el objeto durante estos once años, su entrenamiento, ha dado sus frutos, al menos eso dice el Dueño. el objeto no puede dar una opinión o emitir un juicio, algo eminentemente humano, pero sí que nota que su ego está cada vez más debilitado y que cada vez está menos presente. esto es evidente en situaciones en las que los humanos intentan conseguir algo del objeto utilizando algunas de las herramientas del ego: el orgullo, la envidia, el egoísmo.... ellos mismos se sorprenden cuando el objeto no entra en el juego y se comporta de una manera completamente diferente: reconociendo errores, dándoles la razón, etc. eso produce que se queden sin poder, sin control sobre el objeto. esto tiene otra lectura ya que el único que tiene que tener control y poder sobre el objeto es el Dueño. así, paradójicamente, la sumisión y la obediencia han ayudado al objeto a poder sobrellevar determinadas situaciones que, en otros contextos, le hubieran producido ansiedad y sufrimiento. <br />el Dueño lo ha expresado de otra forma cuando ha dicho que al objeto no debe afectarle lo que le rodea porque está más allá, en el sentido de más abajo, de  lo que le rodea. sin embargo hoy se ha sentido decepcionado por el comportamiento de alguien a quien tenía cierto aprecio y a quien apoyó en determinados momentos. no ha sido tanto una cosa puntual, como suele ocurrir en estos casos, sino que ha sido un cúmulo de pequeñas cosas que se han ido acumulando y que hoy, al ocurrir otra cosa concreta y aparentemente sin importancia, han rebosado y encajado, dando una visión global que no le ha gustado nada al objeto. así, a pesar de ser una decepción, el objeto lo ha vivido como una confirmación de que la única fortaleza, lo único que va a mantenerse y que se mantiene estable en su vida es el Dueño.<br /></p><p style="text-align: left;">sumisión en silencio, castidad y obediencia ciega.</p>

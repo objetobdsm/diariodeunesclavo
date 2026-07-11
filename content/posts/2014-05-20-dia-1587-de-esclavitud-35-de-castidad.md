@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1587 de esclavitud, 35 de castidad"
+date: 2014-05-20 23:38:00 +0000
+permalink: /2014/05/dia-1587-de-esclavitud-35-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">tal y como el perro esperaba y preveía, un día muy largo en el que ha dormido muy poco. tenía que sacar mucho trabajo adelante y el día sólo tiene pocas horas. la cuestión interesante es que parece haber una sintonía Dueño-esclavo, de forma que cuando a uno se le tuerce el día o pasa una etapa mala, el otro siente lo mismo.<br/>no es cuestión de hacer elucubraciones raras o un ejercicio pseudomístic0, pero el hecho es que s eproduce. sin duda el vínculo que se establece entre un perro y su Deño, entre un Amo y su esclavo es especia, igual que se establece entre una mascota y quien le da de comer o entre un animal y su entrenador.<br/>independientemente de la valoración moral de la esclavitud histórica, aquella que es forzosa y que siempre es negativa, el perro supone que hubo algún vínculo entre Amos y esclavos igual que el que tiene el Dueño con su perro. hoy el perro ha sentido esa vinculación, y es extraño porque tampoco intercambiamos mensajes o llamadas, más de lo habitual, incluso menos. el perro siempre manda un saludo inicial al Dueño y luego va comunicando lo que va haciendo durante el día. el Dueño a veces contesta y a veces no, y cuando no lo hace el perro sabe que está en un día horrible de mucho trabajo.<br/>eso no significa que el perro se sienta poco atendido u olvidado. el vínculo es demasiado fuerte, el collar está demasiado apretado, la cadena es demasiado ancha. un Amo no debe estar pendiente de su esclavo, pero un esclavo vive y existe para estar pendiente de su Amo. es es la diferencia, y el perro la tiene muy clara.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

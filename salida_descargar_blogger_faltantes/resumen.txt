@@ -1,0 +1,8 @@
+RESUMEN DESCARGA BLOGGER FALTANTES
+============================================================
+URLs intentadas: 10
+Descargadas y reemplazadas: 0
+Fallidas: 10
+
+CSV OK: /home/gustavo/Escritorio/Descargas/blogger2static/migration_blog/salida_descargar_blogger_faltantes/descargadas_y_reemplazadas.csv
+CSV fallidas: /home/gustavo/Escritorio/Descargas/blogger2static/migration_blog/salida_descargar_blogger_faltantes/fallidas.csv

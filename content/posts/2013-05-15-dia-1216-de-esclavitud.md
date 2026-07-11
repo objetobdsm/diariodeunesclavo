@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1216 de esclavitud"
+date: 2013-05-15 21:19:00 +0000
+permalink: /2013/05/dia-1216-de-esclavitud.html
+tags:
+  - personal
+---
+
+<br />49 días de castidad, 49 días desde el último ordeño.<br /><div style="text-align: justify;">un nuevo día donde el orgullo, la mayor manifestación del ego, ha estado presente en la no-vida del perro. cada vez se da más cuenta de lo inútil que es intentar aparentar lo que no se es, intentar quedar por encima de los demás, pisándolos y humillándolos. la contradicción viene en que el perro desea y busca eso, pero sólo bajo la autoridad del Dueño. el problema viene cuando otros quieren hacerlo pisando por encima de los demás, sin su permiso y sobre todo guiados por su ego. al final no es más que una manifestación de su debilidad. la competición, el medrar, el intentar ascender y quedar bien pese a quien pese y pisando a todo el mundo. de nuevo vienen a la mente de este esclavo las palabras que leyó tiempo atrás, que la humildad viene de la aceptación de uno mismo y la mansedumbre, la paz, la calma y la tranquilidad, provienen de la aceptación de lo que son los otros. si alguien no es humilde y no está en paz es porque tiene un problema de aceptación y proyecta hacia los demás lo que él mismo no puede hacer.</div><div style="text-align: justify;">el perro se trabaja para que esto no sea así y cuenta con la inestimable ayuda del Dueño para conseguirlo. cada vez que el ego intenta hacer de las suyas y subirse demasiado, ahí está la bota del Dueño para evitarlo y mantenerlo donde debe estar, hundido en la miseria, desaparecido, amedrentado. con esta dinámica el perro consigue ser feliz, vivir realizado. de hecho cuando no ocurre así, como esta semana, hace dos días, ha sido porque precisamente el ego estaba envalentonado y hay que vigilarlo. de hecho la vigilancia del ego es una de las principales tareas a las que debe dedicarse un esclavo. sólo así conseguirá su objetivo de vivir de acuerdo con su naturaleza.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

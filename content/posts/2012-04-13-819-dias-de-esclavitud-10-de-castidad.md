@@ -1,0 +1,10 @@
+---
+layout: post
+title: "819 días de esclavitud, 10 de castidad"
+date: 2012-04-13 22:30:00 +0000
+permalink: /2012/04/819-dias-de-esclavitud-10-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">después del día de ayer, casi cualquier cosa parece tranquila. el día de trabajo se fue rápido y la tarde la pasé tranquilo en la facultad, metido entre libros, en silencio, aislado, con el cordón que dice que soy propiedad de mi AMo y el cockring que me recuerda mi lugar en el mundo:bajo las botas de mi Amo. mi Dueño y este perro intercambiamos mensajes viendo la posibilidad de que fuera a servirlo próximamente. ambos lo necesitamos y ocurrirá pronto.</div><div style="text-align: justify;">la marejada emocional de ayer se va calmando y se van colocando las cosas en su sitio. curiosamente ha servido para reafirmar a este perro en que va por el camino correcto y en que la sumisión y el entrenamiento como esclavo es lo único que lo salvará de convertirse en un auténtico estúpido. el espectáculo de ayer fue decepcionante en muchos sentidos y sirvió para poner las cosas en su sitio y clarificar cosas. de todas formas esto, cuando antes se olvide, mejor. son cosas que pasan y tienen sentido para este perro sólo en la medida en que ayudan a ver que ser esclavo no sólo tiene que ver con el morbo y el sexo, con el placer y la autosatifacción, sino que puede ser un valor en tus relaciones con los demás, puede ayudar a convertirte en un ser mejor, con mejores relaciones, mejor disponibilidad, mejor actitud ante la vida, en definitiva, puede ser una forma de ser feliz y de hacer feliz a otros. los miembros de la reunión de ayer piensan que están en la cúspide de la sociedad, que han evolucionado tanto que son mejores que el resto. mis ojos de esclavo lo vieron justo al contrario.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

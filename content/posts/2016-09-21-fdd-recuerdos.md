@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD recuerdos"
+date: 2016-09-21 06:30:00 +0000
+permalink: /2016/09/fdd-recuerdos.html
+tags:
+  - botas
+  - FdD
+---
+
+<img class="aligncenter size-medium" src="/uploads/52/47/5247669da9652192cd9e88f093b34835a61741d78761bdcd65a6dc3f22f8b5c0.jpg" alt="" width="884" height="884" /><br/><p style="text-align:justify;">402 no llegó al Dueño, o mejor dicho, no fue encontrado por el Dueño en un estado "puro". había tenido sesiones e incluso había servido y pertenecido a otro Amo. cualquiera podría decir que eso es una desventaja, un inconveniente, pero, salvo que cojas a un sumiso en la adolescencia o juventud y lo entrenes de cero esto es inevitable. la alternativa es ver las cosas desde otra perspectiva. en bdsm la experiencia es un grado porque tener que enseñar todo desde el principio puede resultar agotador. además hay cosas que tienen que ser maduradas, reflexionadas y que requieren tiempo. es cierto que controlar todo el proceso desde los inicios puede ser enriquecedor pero también es muy difícil llevarlo a buen término.<br/>cuando el Dueño encontró a 402 ya había un camino recorrido, unas cosas aceptadas y asumidas, y el Dueño comenzó de ahí. rechazar todo lo anterior hubiera sido deshonesto y falso porque gracias a esos Amos y a esas experiencias, 402 estaba en el punto en el que estaba cuando el Dueño lo tomó bajo su autoridad. nunca debemos avergonzarnos del pasado, sólo aprender de él y no dejar que nos condicione negativamente el futuro. cada uno vive lo que tiene que vivir en el momento en el que lo vive, y lo hace con las herramientas que tiene.<br/>todo esto viene porque el Amo al que 402 servía tenía unas botas como las de la imagen de hoy, y unas botas como esas fueron lamidas por el esclavo que fue 402 en un momento dado. gracias a eso 402 lame hoy las botas del Dueño y gracias a eso, y a que el Dueño lo encontró cuando lo encontró, 402 pudo comenzar su camino como objeto, como propiedad. el pasado podemos verlo como bueno o como malo. el tema es que esa concepción va cambiando con el tiempo. esta es la prueba de que las cosas no son, sino que las vemos de una manera determinada.</p>

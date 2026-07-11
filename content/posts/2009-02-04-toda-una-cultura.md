@@ -1,0 +1,10 @@
+---
+layout: post
+title: "toda una cultura"
+date: 2009-02-04 04:02:00 +0000
+permalink: /2009/02/toda-una-cultura.html
+tags:
+  - imagenes
+---
+
+<a onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}" href="/uploads/10/63/1063c42749fb2abbd4eb41d0025128509a6715321cdab46e66744b0b177898f0.jpg" style="text-decoration: none;"><span class="Apple-style-span" style="color: rgb(0, 0, 0);"><br /></span><img style="text-decoration: underline;display: block; margin-top: 0px; margin-right: auto; margin-bottom: 10px; margin-left: auto; text-align: center; cursor: pointer; width: 400px; height: 256px; " src="/uploads/10/63/1063c42749fb2abbd4eb41d0025128509a6715321cdab46e66744b0b177898f0.jpg" border="0" alt="" id="BLOGGER_PHOTO_ID_5290453892515029650" /></a><span class="Apple-style-span"   style="border-collapse: collapse;   font-family:arial;font-size:13px;"><div style="text-align: justify;">el bdsm, el cuero, es una cultura; no en el sentido de grandes conciertos, exposiciones o grandes monumentos. es una cultura porque poco a poco vamos creando un pensamiento, una explicación de lo que sentimos y somos. hay libros escritos, cientos de páginas donde no sólo hay fotos sino textos, experiencias, vida en acción. tenemos nuestros códigos, nuestras protocolos, elementos comunes que son compartidos. es cierto que a veces la literatura nos puede, pero también tenemos que saber dar razón de lo que vivimos. explicar por qué someterte a la autoridad de otro hombre está bien; decir por qué el honor, la sinceridad y la coherencia son valores en un mundo donde parece que a todo el mundo le da igual todo. en una relación D/s no da igual todo. el respeto, la virtud, el coraje, siguen siendo valores que un esclavo y un AMO tienen y ejercitan. pero sobre todo esto se impone el respeto, un elemento cada vez más abandonado por todos pero que fundamenta cualquier relación bdsm, algo que los no iniciados no entienden. por eso creo que debemos darlo a conocer, por eso escribo este diario. para honrar a la persona más honorable y respetuosa que conozco: mi AMO.<br /></div></span>

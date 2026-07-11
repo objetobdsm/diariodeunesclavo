@@ -1,0 +1,10 @@
+---
+layout: post
+title: "cartas desde la mazmorra"
+date: 2014-04-29 18:08:00 +0000
+permalink: /2014/04/cartas-desde-la-mazmorra.html
+tags:
+  - cartas
+---
+
+<p style="text-align:justify;">en muchas ocasiones el perro ha dicho que el bdsm lleva al límite: al límite físico, pero también al límite de lo que eres y al límite de lo que piensas. forzar al cuerpo, forzar la mente, de eso se trata. la mayoría de la gente quiere comodidades, vivir bien, no sufrir. sin embargo la vida del esclavo es una vida al límite y no porque tenga que vivir peligrosamente, como los viejos rockeros. forzar al cuerpo, vivir al límite puede ser estar momificado durante horas, atado y amordazado, al igual que estar sin hablar o con una capucha un tiempo determinado.<br/>la mente también se lleva al límite en la obediencia, en la sumisión.... cumplir las órdenes del Dueño, del Amo, lleva al límite todo lo que te han enseñado, lo que has creído, lo que te han dicho que es correcto. el común de la sociedad tiene miedo al límite, porque ellos están cómodamente sentados en su centro, en su idea de lo correcto.<br/>el fist, el bondage, los waters-sports... lo mires como lo mires, el bdsm cruza los límites. por eso muchos creen que el 24/7 es imposible, porque eso es vivir prácticamente al límite de manera permanente... y eso es demasiado para algunos. pero también es demasiado ser atado, privado de visión o que te metan cosas por el ano.<br/>la propia relación bdsm tiene límites que son negociados en los primero momentos y que ambos miembros deben respetar. son los límites de al límite.<br/>una mazmorra tiene límites muy definidos, sus paredes y su puerta marcan el mundo en el que vive el esclavo.<br/>a veces esos muros y esa puerta no son físicos, sino son los que establece el Amo: sus órdenes,la vida que quiere para su esclavo, aquello que está permitido y aquello que no lo está.<br/>desde luego, incluso viviendo días, semanas o meses encerrado en una mazmorra, el bdsm te hace vivir al límite.<br/>feliz semana</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1460 de esclavitud, 31 de castidad"
+date: 2014-01-14 22:53:00 +0000
+permalink: /2014/01/dia-1460-de-esclavitud-31-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">un día muy especial. hoy hace cuatro años que el perro conoció en persona a su Dueño. cuatro años... no sabe el perro si es mucho o es poco, porque esos criterios dependen de la perspectiva. la realidad es que ese encuentro cambió y trnasformó la vida entera del perro. a partir de ese encuetnro el perro ha entrado en una dinámica de sumisión, que no ha terminado, y que lo ha llevado a donde está ahora: lleva botas y jaula permanentemente,y el Dueño ha tomado posesión de él hasta el punto de tener que suplicar permiso para casi todo.<br/>el Gran Salto está ahí, como posibilidad, como horizonte vital y sólo depende de ciertas circunstancias que deben resolverse. mientras tanto el entrenamiento continua, avanza y se desarrolla, primero convirtiendo al esclavo en un perro, y luego, al perro en un objeto.<br/>para celebrar el día el perro le hizo una ofrenda al Dueño. sabiendo que le gustan las bandas sonoras el perro suplicó que le permitiera regalarle una a su elección. el Dueño eligió y el perro hizo la ofrenda. cree el perro que nunca nada es suficiente para el Dueño. el merece eso y más.<br/>han pasado 1460 días desde que el perro vio a su Dueño con pantas de cuero y botas sendra en una fría noche de enero a la puerta de su casa. tantos dias desde la entrevista inicial en la que, como único recuerdo, o mayor recuerdo, tiene el perro las botas de su Amo de las que no podía apartar la vista.<br/>más adelante el Dueño diría al perro que en el primer momento qu eme vio, supo que sería de su propiedad. el perro no estaba tan seguro, y ahora se ve donde se ve, loq ue demuestra que el Dueño consigue todo lo que se propone. esto lleva hacia el futuro porque si el Dueño quiere que su perro acaba encerrado bajo llave en una mazmorra, el perro sabe que acabará encerrado en una mazmorra. es sólo cuestión de tiempo.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

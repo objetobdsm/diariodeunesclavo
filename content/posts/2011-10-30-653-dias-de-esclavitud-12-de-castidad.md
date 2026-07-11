@@ -1,0 +1,10 @@
+---
+layout: post
+title: "653 días de esclavitud, 12 de castidad"
+date: 2011-10-30 23:30:00 +0000
+permalink: /2011/10/653-dias-de-esclavitud-12-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">otro día que pasé en casa trabajando, sin salir para nada. estuve todo el día pensando en enfundarme mis cueros, calzarme las botas e ir al sur por la noche. necesitaba sumergirme en un ambiente leather, ver a otros como yo, sentirme parte de algo. supliqué permiso a mi Dueño que me lo concedió y la sóla idea me estimuló y animó durante todo el día. el fin de semana pasado comprobé que estaba lleno de lederones y la semana que viene se va a celebrar la black&blue party, un intento de encuentro leather a nivel europeo y supongo que algunos ya estarán por aquí. era plenamente consciente de que no podría hacer nada, además mi AMO especificó que la "castidad" no consiste sólo en no correrme, sino que además no puedo tener ningún contacto fetiche con nadie, sólo hablar. iba convencido de honrar a mi Señor con mi comportamiento, aunque entendía que podrían producirse tentaciones. si no es así ¿qué mérito tiene mantener la castidad? un eunuco no tiene mérito, incluso ese mérito se ve reducido ante los que llevan un dispositivo porque si no puedes, no estás venciendo ningún deseo, no estás poniéndote por encima de tus impulsos más básicos, no estás entrenándote en la sumisión. el hecho es que estaba a punto de prepararme para salir cuando recibí una llamada que tiró todo por tierra. la no-vida volvió a imponerse y a marcarme. tuve una conversación tan desagradable que sólo deseé quedarme en casa e irme a acostar pronto. mi Dueño fue informado y estuvo conforme. a cada problema que tengo El responde adecuadamente, de forma que su figura es cada vez mayor en mi horizonte vital. hoy tomé conciencia de lo mucho que dependo de El,y cada vez más. me considero un perro muy afortunado, extremadamente afortunado.</div>obediencia ciega para el esclavo, poder absoluto para el Amo

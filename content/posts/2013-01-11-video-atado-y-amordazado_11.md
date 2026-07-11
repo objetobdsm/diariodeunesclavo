@@ -1,0 +1,10 @@
+---
+layout: post
+title: "video atado y amordazado"
+date: 2013-01-11 18:07:00 +0000
+permalink: /2013/01/video-atado-y-amordazado_11.html
+tags:
+  - videos
+---
+
+<div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: center;"><object width="420" height="366" class="BLOG_video_class" id="BLOG_video-77d1448e9e941913" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=6,0,40,0"><param name="movie" value="//www.youtube.com/get_player"><param name="bgcolor" value="#FFFFFF"><param name="allowfullscreen" value="true"><param name="flashvars" value="flvurl=http://redirector.googlevideo.com/videoplayback?id%3D77d1448e9e941913%26itag%3D5%26source%3Dblogger%26app%3Dblogger%26cmo%3Dsensitive_content%253Dyes%26ip%3D0.0.0.0%26ipbits%3D0%26expire%3D1360949818%26sparams%3Did,itag,source,ip,ipbits,expire%26signature%3D44AE951A167A862394B5E225D131010D4EF7BA43.298212D8213FDEE64B2364EE3DBE460E321A4386%26key%3Dck1&iurl=http://video.google.com/ThumbnailServer2?app%3Dblogger%26contentid%3D77d1448e9e941913%26offsetms%3D5000%26itag%3Dw160%26sigh%3DdR20U08wLeF5EkXORAaed9-nlvg&autoplay=0&ps=blogger"><embed src="//www.youtube.com/get_player" type="application/x-shockwave-flash" width="420" height="366" bgcolor="#FFFFFF" flashvars="flvurl=http://redirector.googlevideo.com/videoplayback?id%3D77d1448e9e941913%26itag%3D5%26source%3Dblogger%26app%3Dblogger%26cmo%3Dsensitive_content%253Dyes%26ip%3D0.0.0.0%26ipbits%3D0%26expire%3D1360949818%26sparams%3Did,itag,source,ip,ipbits,expire%26signature%3D44AE951A167A862394B5E225D131010D4EF7BA43.298212D8213FDEE64B2364EE3DBE460E321A4386%26key%3Dck1&iurl=http://video.google.com/ThumbnailServer2?app%3Dblogger%26contentid%3D77d1448e9e941913%26offsetms%3D5000%26itag%3Dw160%26sigh%3DdR20U08wLeF5EkXORAaed9-nlvg&autoplay=0&ps=blogger" allowFullScreen="true" /></object></div>este no es un video personal, es uno encontrado en internet, pero al perro le pareció tan excitante que no ha podido resistirse a publicarlo. espero que les guste.

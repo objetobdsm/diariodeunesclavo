@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD por qué"
+date: 2024-11-06 07:50:00 +0000
+permalink: /2024/11/fdd-por-que.html
+tags:
+  - FdD
+  - IA
+  - leather
+---
+
+<p> </p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/96/4c/964c3767fc9efe9555d52be97d681f09d54aeaabd07d0df63a41c04918b17d0e.png" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="1024" data-original-width="680" height="640" src="/uploads/d0/4a/d04ae9b331dfb1c763b7c10493f3eeaaa667f54d6f53f96c3b90c61618c92326.jpg" width="426" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: justify;">tener un cuerpo de gimnasio parece haberse convertido ahora en la cumbre de la masculinidad. pasar horas y horas haciendo ejercicio para poder lucir un cuerpo escultural. al final sigue siendo otra esclavitud, porque es existir para que los otros te digan quien eres, o lo que eres. muchos esclavo e inferiores no tenemos cuerpos de gimnasio, ni los necesitamos la verdad. porque tener un cuerpo perfecto guiado por el ego es como no tener nada. pongamos un ejemplo. eres un esclavo con un cuerpo "perfecto" según los cánones establecidos. resulta que aparece un Amo que es alucinante, que te cautiva y ante el que deseas desesperadamente someterte, pero quiere, porque así es su deseo, un esclavo con sobrepeso. ¿qué ocurriría entonces? pensamos que el cuerpo normativo, el que se supone que es estéticamente triunfador, es el cuerpo que todo el mundo desea. pero no sólo no es así sino que en la mayoría de los casos, tener un cuerpo perfecto implica también tener un ego perfecto. estar orgulloso de lo que has conseguido, de lo que "tu" esfuerzo ha hecho, a la larga, hará que tu Amo tenga que trabajar más porque tendrá que desmontar todo ese ego que va aparejado a los músculos. otra cosa muy distinta es lo contrario, que tu Amo te coja siendo una persona normal y te imponga una disciplina de gimnasio y alimenticia por salud o sencillamente porque lo desea. en ese caso el ego no está presente porque lo haces por obediencia. en el fondo no es el hecho sino el por qué lo haces.</div><br /><p></p>

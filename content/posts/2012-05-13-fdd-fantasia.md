@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD fantasía"
+date: 2012-05-13 05:39:00 +0000
+permalink: /2012/05/fdd-fantasia.html
+tags:
+  - leather
+  - FdD
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/63/58/6358565ec96dedaeb30d9371878e0ba780d7653da3fbfe992146b49191fa7212.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/63/58/6358565ec96dedaeb30d9371878e0ba780d7653da3fbfe992146b49191fa7212.jpg" /></a></div><div style="text-align: justify;">para muchos el bdsm es una fantasía, una ilusión, un deseo que no se realiza nunca. el cuero, el bondage, la sumisión quedan restringidos al interior de sus mentes, de sus deseos más profundos sin que nunca tomen forma real. a veces, cuando lo hace es de manera "estética": pulseras, muñequeras, incluso el cuero se convierte en una prenda de "alta costura". en determinados momentos ha sido "cool" vestir así. en algunas corrientes del bdsm se critica la "new guard" porque hay practicantes del bdsm que se quedan a ese nivel, en lo puramente estético y las sesiones son "sexo un poco fuerte", pero sin que duela mucho y sin ningún compromiso posterior. este perro no es quien para criticar las opciones de nadie pero creo que ha quedado claro que esa no es la relación que este perro mantiene con su Amo, o mejor dicho, que su Amo mantiene con su perro. aquí los collares no son para adornar, son para controlar, las muñequeras no son estéticas, sino para atarme más fuerte y el cuero es una muestra de una sumisión que pretende ser radical, absoluta, definitiva. las sesiones no son sesiones, son momentos donde mi Amo hace uso de su derecho natural sobre su propiedad. y la palabra tiene entre nosotros un valor absoluto, una vez dada no se puede dar marcha atrás, se hace y se obedece. lealtad, fidelidad, honor, responsabilidad, sumisión, obediencia.... son valores en decadencia en el "mundo normal". sin embargo en el bdsm son revitalizados y adquiren una significación nueva.</div>

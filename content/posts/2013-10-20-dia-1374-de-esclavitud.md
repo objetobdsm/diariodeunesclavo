@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1374 de esclavitud"
+date: 2013-10-20 22:42:00 +0000
+permalink: /2013/10/dia-1374-de-esclavitud.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;"><span style="font-size:13px;line-height:19px;">35 días de castidad, 1 desde el último ordeño</span><br/>la mañana fue tranquila, relajada, en casa intentando trabajar algo. sin embargo por la noche el Dueño quería sentir a su perro cerca, de su propiedad, así que mandó un mensaje. tenía que encuerarme: pantalones, chaleco, botas altas, con la jaula debajo por supuesto. debía ponerme el collar de perro, atarme los pies, amordazarme con seis tiras de cinta y esposarme las manos a la espalda. así debía estar al menos diez minutos, reflexionando y pensando en mi verdadera naturaleza, en lo que era interiormente. debía repetirme que era una propiedad y que existía para mi Dueño, que era un objeto de cuero y que sólo así conseguiría realizarme y desarrollarme. además todo debía ser grabado y enviado al Dueño.<br/>costó un poco hacerlo, porque la máquina se empeñaba en dejar de grabar a los diez minutos, pero al final el perro pudo conseguirlo. antes de enviarle los videos al Dueño los comprobó. fue un poco extraño verse de esa forma. realmente el perro se sintió un objeto de cuero, sometido y anulado. no puede decir si fue efecto del material o el material fue la manifestación externa de algo interior, pero el hecho es que ahí estaba. junto con eso se hizo evidente una realidad: el perro no tiene escapatoria, no tiene salida, vive la vida que el Dueño quiere que viva que es la vida que el perro siempre soñó. viéndose en los videos, arrodillado, amordazado, esposado y completamente vestido de cuero, el perro no pudo sino desear pasar el resto de su vida de esa manera.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

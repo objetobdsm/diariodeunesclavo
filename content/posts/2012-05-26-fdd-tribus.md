@@ -1,0 +1,13 @@
+---
+layout: post
+title: "FdD tribus"
+date: 2012-05-26 05:39:00 +0000
+permalink: /2012/05/fdd-tribus.html
+tags:
+  - botas
+  - esclavos
+  - amos
+  - FdD
+---
+
+<br /><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/8f/3d/8f3d60c0d2cceee4b32f0f22f05faed4b9de8adf62994aabb259f2b8ffe93816.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/8f/3d/8f3d60c0d2cceee4b32f0f22f05faed4b9de8adf62994aabb259f2b8ffe93816.jpg" /></a></div><div style="text-align: justify;">en el mundo bdsm, igual que en otras culturas, hay subculturas, tribus las llaman los sociólogos. están los osos, como los de la imagen, lo lederones, los skins, los amantes del latex, los de la vieja guardia frente a los de la nueva guardia, etc. en el fondo todos necesitamos identificarnos y agruparnos, unirnos, en este caso, por aquello que nos excita, que nos gusta o que nos hace disfrutar. en el fondo es un juego de identidades, pero unas identidades dinámicas, no estáticas, porque este perro tiene en su exsistencia, que conjugar muchos aspectos. por supuesto no va a trabajar en cuero o latex, pero sí va con botas. para sus compañeros de trabajo es un elemento exótico, pero no deja de ser entendido como un gusto peculiar. sin embargo si fuera completamente vestido de cuero, eso indicaría algo más que un gusto, indicaría una forma de exsitencia y de comportamiento. me catalogarían inmediatamente dentro de una tribu. por eso los símbolos externos son importantes, son indicativos, catalogadores, señaladores. una cadena al cuello con un candado puede ser estéticamente bonita, pero este perro cataloga inmediatamente al que lo lleva como esclavo, y si el candado está cerrado, que además tiene dueño.</div><div style="text-align: justify;">es como la imagen. podemos suponer que son una simple pareja de gays a punto de comenzar un juego sexual, pero las botas, la gorra y el suspensorio nos trasladan a un nivel superior, a un estrato mayor donde deducimos que no es sencillamente eso. entre ellos hay algo más que un simple juego. esto forma parte de lo que son. y además eso se manifiesta en lo que hacen, porque, a pesar de que uno está de pie y el otro sentado, o precisamente porque uno está de pie y el otro sentado, podemos establecer quien es quien en esta relación asimétrica. irónicamente el Dominante es el que está sentado, a un nivel inferior, mientras el sumiso está de pie. tal vez la gorra sea el elemento determinante para esta interpretación. un simple objeto marca la diferencia.</div>

@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD de punta en blanco (o negro)"
+date: 2011-10-31 07:17:00 +0000
+permalink: /2011/10/fdd-de-punta-en-blanco-o-negro.html
+tags:
+  - leather
+  - FdD
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/29/ee/29eed06e853167b2211cccbad8ee8fe3cf6fbf8750315afcc8cb01e1359a43fa.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/29/ee/29eed06e853167b2211cccbad8ee8fe3cf6fbf8750315afcc8cb01e1359a43fa.jpg" width="421" /></a></div><div style="text-align: justify;">la existencia es una sucesión de elementos antagónicos: bien/mal, fuerza/debilidad, salud/enfermedad, blanco/negro, amor/odio. también la vida de un esclavo puede entenderse a partir de estas polaridades: sumisión/Dominación; Amo/esclavo; obediencia/desobediencia; perro/Duño; disciplina/indisciplina; control/descuido....... muchas veces no somos tan radicales como para estar en uno de estos extremos, pero si nos movemos constantemente entre ellos. lo curioso es que ambos son necesarios, precisamente para que todo vaya teniendo sentido. igual que en la imagen el cuero brilla aún más por estar en un fondo blanco, la obediencia, la sumisión, la disciplina y la esclavitud brillan más en un contexto donde prima lo contrario o en un mundo que valora justo el extremo opuesto. nuestra sociedad prima la libertad frente a la dependencia, la autonomía frente a la sumisión, el seflmade man frente a unir tu destino al de otros. por eso nuestra vida es peligrosa para "los otros" y nos critican y censuran cuando nos arrodillamos y nos sometemos. para ellos es un cuestionamiento de sus seguridades, de esas que precisamente son las que los hacen esclavos. cada vez siento más honorable arrodillarme ante mi AMO y obedecerle, cumplir sus deseos, hacer su voluntad. y lo encuentro honorable no sólo porque hace feliz a este perro, sino porque creo que si estas relaciones fueran más comunes, muchas cosas irían mejor a nuestro alrededor.</div>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2435 de esclavitud, 407 de castidad"
+date: 2016-09-15 22:06:00 +0000
+permalink: /2016/09/dia-2435-de-esclavitud-407-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el ego es el gran enemigo de un sumiso, de cualquier esclavo voluntario. ese es algo que hemos dicho muchas veces en ese blog. incluso podemos aplicar esto a la no-vida. una forma de relacionarse con los demás sin el ego facilita mucho las relaciones.<br/>sin embargo a veces no es suficiente. un mensaje de un hermano esclavo recibido hace poco por la red social del blog decía que lo intentaba pero que a veces se encontraba con la sensación de estar padeciendo una injusticia. es una sensación comprensible, pero fruto, aunque en menor medida, del propio ego.<br/>ser tratado injustamente implica que crees que tienes algún derecho, alguna prevenda, algún tipo de beneficio, en definitiva que mereces algo. y no es así, no merecemos nada, al menos llegados a un punto de nuestra evolución como inferiores. eso no significa que seamos el felpudo de todo el mundo. hay gente que se excede con el ego y se vuelven egocéntricos. igual que no debemos arrodillarnos ante cualquier Amo, tampoco debemos ser utilizados y humillados por cualquiera. hay una diferencia entre quien nació Dominante y sabe que debe ser obedecido y un sumiso frustrado que se deja llevar por el ego y que necesita que otros estén mal para que él esté bien. encontrar el equilibrio entre ambos es un arte, al igual que encontrar la diferencia entre los dos y servir a los primeros, cortándole el rollo a los segundos.<br/>es cierto que el Dueño ha ordenado a 402 "que nadie te pise salvo yo y aquellos a quienes yo de permiso", y eso hace que en la no-vida, 402 deje las cosas claras. lo que hay que tener en cuenta es que si hubiera ordenado "deja que todos te pisen", 402 lo haría y estaría orgulloso de hacerlo, feliz de obedecer a su Dueño. para 402 eso es ser un esclavo, un objeto, y vivir sin ego.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

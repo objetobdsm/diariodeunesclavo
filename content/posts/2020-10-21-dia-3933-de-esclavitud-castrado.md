@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3933 de esclavitud, castrado permanentemente"
+date: 2020-10-21 21:53:00 +0000
+permalink: /2020/10/dia-3933-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el objeto trabajaba desde casa hoy. después de varias reuniones estuvo hablando con el Dueño, y el Dueño le dio lo que necesitaba para cambiar el estado anímico del objeto. en un sentido metafórico el Dueño le puso al objeto la bota encima y lo hundió más en la sumisión. eso fue suficiente para que el estado anímico del objeto cambiara. la conversación fue normal hasta que el objeto se dio cuenta de que se había dejado influir por el entorno, que simular durante tanto tiempo ser humano le había llevado a dejarse influir por eso, y entrar en la dinámica del poder y de éxito de los humanos. en definitiva creyó que tenía el control.<br />inmediatamente el Dueño situó al objeto en su lugar. volvió a ponerlo donde le correspondía e inmediatamente empezó a sentirse mucho mejor. el objeto entró en subspace casi instantáneamente y quedó como en shock. nuevamente el malestar y el sufrimiento habían venido por olvidar lo que era. el Dueño le dijo que era inevitable, que ya no podía ser de otra forma y que siempre que se apartara el objeto sufriría. entonces el objeto cayó en la cuenta de que puede llegar el momento en que se bloquee completamente, en que sea incapaz de elegir más. el Dueño le dijo al objeto que entonces se vería obligado a encerrarlo definitivamente porque bajo su control el objeto no tendrá que elegir nada más, nunca más. y además el Dueño dijo que ese era el objetivo de todo esto, llegar a ese punto. ayer lo expresó el Dueño de otro modo, dijo que "Quería controlar cada segundo de la vida del objeto". el objeto sabía que lo decía literalmente cada segundo.<br /></p><p>sumisión en silencio, castidad y obediencia ciega.</p>

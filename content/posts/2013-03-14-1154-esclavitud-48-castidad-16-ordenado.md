@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1154 esclavitud, 48 castidad, 16 ordeñado"
+date: 2013-03-14 22:58:00 +0000
+permalink: /2013/03/1154-esclavitud-48-castidad-16-ordenado.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">los días se suceden casi sin darse cuenta. hoy el perro se ha levantado triste, de vez en cuando le ocurre eso. entra en un proceso de melancolía muy intensa, que le impide ver las cosas con claridad. es algo ciclotímico, a veces siente que puede comerse el mundo, y otras veces lo inunda una melancolía muy fuerte. hoy el perro estaba melancólico y, nada más levantarse, envió un email al Dueño diciéndoselo. la respuesta del Dueño fue impresionante. bastaron dos o tres palabras para que el ánimo de su perro cambiara. además el perro suplicó no volver a tener un orgasmo si no es en Su presencia y si no es por Su deseo. suplicó vivir una vida y existencia de perro en castidad radical, sometido a la voluntad del Dueño. en una de nuestras conversaciones el Amo dijo al perro que quería llevarme la límite, y hoy el perro suplicó vivir en ese límite para el Dueño. la castidad, hoy en día, es uno de esas situaciones donde te mueves al límite.</div><div style="text-align: justify;">el Dueño concedió al perro todas sus súplicas.</div><div style="text-align: justify;">el pero ha vuelto a supurar hoy, igual que ayer. cuando llegas a un punto de la vida en castidad, sin tener un orgasmo desde hace 47 días y la leche en los genitales desde hace dos semanas, parece que no se puede controlar. algunos lo llaman precum, líquido preseminal y cosas por el estilo. volví a sentir los calzoncillos ligeramente mojados, en medio del trabajo. fue humillante sentirse así mientras intentabas mantener la "normalidad" en el trato con los compañeros.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

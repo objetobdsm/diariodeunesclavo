@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1921 de esclavitud, 8 de castidad"
+date: 2015-04-19 22:30:00 +0000
+permalink: /2015/04/dia-1921-de-esclavitud-8-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">los fines de semana son peligrosos, especialmente si no llevas una jaula que te disuada de tocarte o de hacer algo peor. mientras estás trabajando durante la semana la cosa es más llevadera porque tu mente está ocupada en cosas, qué hacer, cómo hacerlo, etc. irónicamente el despiadado sistema capitalista que explota como esclavos a los trabajadores hacer que evites pensar siquiera en la tentación de faltar a la castidad.<br/>sin embargo los fines de semana es diferente porque tienes más tiempo y, por tanto, tu mente puede estar gestando un intento de caer, potenciado por el ego, sin duda, para que creas que no importa, que total, no se va a enterar, y toda esa serie de cosas. el perro mentiría si hoy no ha tenido, al menos, una ligera sombra de tentación alrededor suyo. sin embargo ha sido bien entrenado por el Dueño y la mera obediencia ha impedido que pase nada. de hecho el perro ha empezado a repulsar la idea de correrse, de tener un orgasmo. es una idea que se ha vuelto algo extraña, como si no quisiera hacerlo. desde luego ya ha quedado constancia que las últimas veces que se vació fue algo negativo. las dos veces que se ordeñó con la jaula puesta fueron prácticamente, una forma de tortura, nada gratificante en cualquier caso. lo ideal sería que ya no pudiera sacarse la leche si no es con una jaula puesta, así evitaría cualquier intento de autogratificación. el Dueño ha conseguido que el perro prefiera la castidad a una vida sexual activa. no duda el perro que también conseguirá que sólo pueda sacarme la leche como medida higiénica, llevando la jaula y así, además, que sea una tortura.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "reprogramación II"
+date: 2011-11-10 16:49:00 +0000
+permalink: /2011/11/reprogramacion-ii.html
+tags:
+  - ficción propia
+---
+
+<div style="text-align: justify;">la situación se había vuelto insostenible para él. la visión de aquellas botas le había producido una fortísima erecciónque intentaba disimular bajo sus vaqueros. auqneu también llevaba botas de motero, en su caso había una jerarquía y las de EL estaba en el punto más alto. las suyas eran marrones, discretas; las de EL negras, oscuras, llamativas. como ocurre en la naturaleza, sintió que le atraían de una forma irrresistible, a pesar del peligro que significaban, y que se encaminaba a un callejón sin salida si seguía por ahí, pero no podía evitarlo, era algo más fuerte que él mismo. en cuando se dio cuenta cayó en que se había encogido. los hombros habían caído y casi tocaba su pecho con la barbilla, lo que le obligaba a mirar de reojo aquellas botas de las que no podía apartar la mirada.</div><div style="text-align: justify;">hizo un esfuerzo y levantó la vista hacia la cara del botero, pero en cuanto sus ojos se encontraron, notó como un descarga lo recorría, dejano caer sus manos a los lados. no pudo reaccionar, no podía moverse. el otro tio se había dado cuenta de todo y lo estaba taladrando con la mirada, fijamente, sin apartarla ni un sólo instante, sin petañear. supo que lo estaba sondeando y perdió; perdió desde el primer momento porque agachó aún más la cabeza mientras notaba como su cara se ponía colorada. tenía 30 años y se sintió  como un vulgar adolescente. empezó a sudar y aquello se volvió una tortura, pero no podía levantarse, ahora no. su polla estaba a punto de reventar, su corazón a salirse por la boca y el agua fría que tenía en su mesa no le quitaba la sed.</div><div style="text-align: justify;">"y todo por unas sendra", pensó. pero inmediatamente volvió a fijar su mirada en las botas. el botero no le quitaba la vista de encima, él lo sabía, pero no podía volver a levantar la cabeza, la mirada fue demasiado intensa, demasiado perturbadora. no sabía qué tenía aquel tio, pero se sentía absolutamente nada ante EL.</div>

@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD pervivencias"
+date: 2018-07-24 10:51:00 +0000
+permalink: /2018/07/fdd-pervivencias.html
+tags:
+  - control respiración
+  - bondage
+  - FdD
+---
+
+<img class="aligncenter size-full" src="/uploads/a4/4e/a44e4da33ff50b9a84bb0b6e3781f3637cf81fc385a75e15c512c86096503af0.jpg" width="665" height="934" /><br/><p style="text-align:justify;">una imagen que evidentemente tiene sus años, es de otra época, pero con un comportamiento muy actual ¿o tal vez no? no hay duda de que el bdsm ha evolucionado e internet ha permitido que esté al alcance de casi todos. además fenómenos como 50 sombras de grey han popularizado estas prácticas haciéndolas, digamos, más "cotidianas". y siempre pasa lo mismo, cuando hago se populariza se masifica y los puristas afirman que se pierde en autenticidad. dentro de este marco es donde habría que situar el debate entre la Vieja Guardia y la Nueva Guardia, entendiendo la primera como aquel grupo que cree en los protocolos estrictos en las relaciones de Dominación/sumisión y que considera esto una forma de vida. la Nueva Guardia sería ese grupo que ve esto como un "juego sexual", por lo tanto limitado a la alcoba y mucho más estético que otra cosa. en los foros de discusión de historia del movimiento leather se suele decir que antes de los 90, todos eran Old Guard porque era un grupo muy cerrado al que costaba mucho acceder y sólo se hacía después de un intenso proceso de iniciación. antes había que ganarse el derecho de llevar cuero en la comunidad, hoy es posible comprarlos en cualquier tienda fetiche. ese proceso de iniciación implicaba una serie de valores, esquemas y formas de vida en los que el inferior se sometía al Superior de manera profunda, sistemática y continuada. esa entrega implicaba a veces hacerlo hasta el punto de depender la vida del Amo, elemento que subyace en cualquier práctica de breath control. el Amo demostraba así que controlaba la existencia del inferior y este se sentía en dependencia del Superior. el objeto no considera que esta distinción haya pasado. no cree que la Viaje Guardia ha desaparecido y ha sido sustituída por la Nueva. esto cree que coexisten y aunque es cierto que la aparición de la segunda es relativamente reciente, no debemos olvidar que aún hay Amos, y sumisos, que ven esto como una forma de vida, que afecta a su existencia de forma mucho más profunda que un simple juego sexual.</p>

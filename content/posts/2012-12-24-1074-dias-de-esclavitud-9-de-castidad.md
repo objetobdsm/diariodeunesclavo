@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1074 días de esclavitud, 9 de castidad"
+date: 2012-12-24 19:24:00 +0000
+permalink: /2012/12/1074-dias-de-esclavitud-9-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">el perro ha vuelto hoy a "supurar", a echar ese líquido espeso después de orinar. a los diez días de castidad, día más día menos, suele ocurrir, y es indicativo de que, en otras circunstancias, debería marsturbarme. de hecho rara vez en la vida del perro supuró tan a menudo, porque solía masturbarse o tener sexo cada día, a veces incluso varias veces. de hecho el perro cree que antes de vivir en castidad impuesta por el Dueño, apenas estuvo sin masturbarse cuatro o cinco días seguidos, y en estos casos por el estrés del trabajo. con estos antecedentes no creo que haya nadie que no considere que la vida actual de este perro significa un cambio radical con respecto a la anterior. lo interesante de todo esto es que el perro ya no se plantea cómo debe vivir la vida, sencillamente la vive como el Amo quiere que la viva. El es el Dueño y por tanto El establece las normas, las reglas, los comportamientos de su perro. esta es una decisión de base, el día a día es como hacerlo mejor, cómo obedecerlo mejor, como ser mejor esclavo y perro.</div><div style="text-align: justify;">el perro sigue leyendo, a ratitos, "hacia el edén". resulta sorprendente que una escritora "vanilla" de éxito pudiera escribir un relato como ese, expresando tan profunda y claramente los sentimientos de los esclavos. o bien estuvo muy bien asesorada, o a ella misma le gusta el bdsm y lo ha practicado de alguna manera. es tan gratificante leer algo que ha escrito alguien que se refiera a esos sentimientos tan intenso y profundos....ayuda a sentirse menos solo.</div>obediencia ciega para el esclavo, poder absoluto para el Amo.<br />

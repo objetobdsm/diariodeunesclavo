@@ -1,0 +1,13 @@
+---
+layout: post
+title: "FdD envidia"
+date: 2018-07-08 19:46:00 +0000
+permalink: /2018/07/fdd-envidia.html
+tags:
+  - control respiración
+  - capucha
+  - FdD
+  - leather
+---
+
+<img class="aligncenter size-full" src="/uploads/1f/97/1f97863fa7b1a8d742bf26b0599ea5f9d2198aff6444e2ebeb570ffc1f3a214e.jpg" width="740" height="555" /><br/><p style="text-align:justify;">hay inferiores en todas las escalas y los grupos sociales. los hay ejecutivos de grandes empresas y obreros de la construcción, profesores y dependientes, barrenderos y carteros, incluso algún ministro. algunos van a trabajar en chandal o vaqueros y otros con chaqueta y corbata. pero independientemente de la apariencia que tengan o de cómo los traten, todos, absolutamente todos, tienen algo en común: su deseo y su necesidad de servir a los Superiores; de sentirse usados y controlados, dominados y de depender de otros. a veces podemos esconder o sublimar ese deseo pero siempre está ahí, como una presencia constante o un animal que, si no se le alimenta, corremos el riesgo de que nos devore. muchos inferiores sufren de depresión, tristeza o frustración y su origen está precisamente en la negación de sus deseos e instintos más básicos, de su necesidad de someterse. cuando al final el inferior acepta lo que es, entra en una dinámica descendente, que no es sino el ir quitando las capas que la sociedad ha ido añadiendo durante su proceso de socialización y educación. entonces llega a la certeza, en su punto más bajo que no necesariamente es el deseado o el que viene bien a todo inferior, que no es nada y que depende del Superior para todo. estos dos principios los experimenta con prácticas cada vez más radicales en las que vive esa dependencia, como el breath control, y en el hecho de ser deshumanizado, bien con mordazas, pero sobre todo con capuchas, o con ambas.<br/>esto no puede dejar de identificarse o sentir simpatía por este inferior. por su ropa deduce que tiene que ser alguien que está inmerso en el mundo de los humanos y que debe estar en una posición donde le traten con respeto o tenga que luchar por mantenerse. para un inferior esa es una tensión que puede enfermarlo. por eso necesita esto, casi en forma de terapia, dejar de disimular, de actuar y volver a sentir lo que es realmente. esto se lo imagina llegando a casa del Amo, arrodillándose mientras Este le ata las manos, le coloca la capucha que lo objetiviza y lo cuelga por el cuello diciéndole, tal vez, que no volverá al trabajo. entonces el inferior puede dejarse ir y ser él mismo. esto hasta siente cierta envidia.</p>

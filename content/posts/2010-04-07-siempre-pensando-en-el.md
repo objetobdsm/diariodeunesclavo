@@ -1,0 +1,10 @@
+---
+layout: post
+title: "siempre pensando en EL"
+date: 2010-04-07 22:33:00 +0000
+permalink: /2010/04/siempre-pensando-en-el.html
+tags:
+  - vida real
+---
+
+<div style="text-align: justify;">ha sido un día duro de trabajo, pero he tenido en mente a mi AMO. cuando desfallecía pensaba en EL y en que todo lo que hago es para que su esclavo mejore en calidad y en valor. trabajo, actividades lúdicas o de cualquier tipo, todo está encaminado a ser mejor para EL. sólo así puedo responder al acto generoso de aceptarme como esclavo, de sacarme de la calle y de darme un sitio en el mundo, una dirección y un motivo para vivir, para levantarme cada mañana: servirle. sólo cuando pienso en eso todo lo demás adquiere sentido, cuando me olvido por alguna razón, vuelve la zozobra y el desconcierto.</div><div style="text-align: justify;">soy plenamente consciente de que la gente vanilla, y muchos del mundo bdsm, no entienden esta reflexión; no comparten este pensamiento. pero no me importa. hay muchas formas de vivir la esclavitud, muchas formas encubiertas de dependencia, muchas formas sutiles de dolor. este esclavo ha elegido vivir esto abiertamente, sacándolo a la luz. tal vez sea la único decisión importante que ha tomado nunca. y quisiera ser coherente con ella hasta el final, le moleste a quien le moleste. desde luego cada vez veo más claro que esa idea ilustrada del sujeto completamente libre hecho a sí mismo no es más que una invención de los ricos para justificar la desigualdad real y no escogida que impera en nuestra sociedad. dice "eres libre para hacer y conseguir lo que quieras, si eres pobre es porque tú quieres". renuncio a este planteamiento y lo hago invirtiéndolo de la forma más radical, cercenando uno de sus pilares: el de la libertad. me someto a mi AMO; y sólo así soy libre. </div>

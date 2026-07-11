@@ -1,0 +1,10 @@
+---
+layout: post
+title: "vuelta a la normalidad"
+date: 2021-04-30 04:21:00 +0000
+permalink: /2021/04/vuelta-la-normalidad.html
+tags:
+  - comunicados
+---
+
+<p style="text-align: justify;">pocas expresiones han sido tan usados últimamente como "volver a la normalidad". tal vez no hayamos caído en que eso significa que lo que hemos vivido en el último año es "anormal", una palabra que a veces se emplea con nosotros, los practicantes del bdsm. aunque ya le gustaría al objeto vivir como desea el Dueño, es decir apartado y aislado completamente del mundo, encerrado en una mazmorra y viendo exclusivamente al Dueño, sin contacto con nadie más, la realidad es que el objeto también ha vivido ese estado de anormalidad. y como este blog es un reflejo de la vida de ese objeto, el diario ha sido un daño colateral de todo lo que ha pasado, que comenzó con la muerte de una persona cercana al objeto y continuó con todo esto de la pandemia, vacunas, etc... </p><p style="text-align: justify;">la cuestión es que ese estado de anormalidad se refleja en un hueco que queda en el blog de varios meses. varios meses de inactividad, que no significan meses de vacío. hay entradas escritas, solo que no fueron publicadas. en un intento de volver a la normalidad el Dueño ha permitido al objeto empezar a publicar este mes de mayo, y mantener las entradas al día mientras, poco a poco, se va rellenando ese hueco. </p><p style="text-align: justify;">por supuesto esto no puede dejar de suplicar perdón a los lectores y seguidores del blog, pero si algo puede usar de excusa es que ha sido una situación excepcional, diferente, extraña, que el objeto cree que cambiará muchas cosas, o tal vez no, pero cuyas consecuencias están aún por llegar. eso, desde su sumisión más profunda, sólo espera que todo vuelva pronto a la normalidad.<br /></p>

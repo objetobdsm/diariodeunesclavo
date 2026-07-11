@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1185 de esclavitud"
+date: 2013-04-14 19:15:00 +0000
+permalink: /2013/04/dia-1185-de-esclavitud.html
+tags:
+  - personal
+---
+
+<br />18 días de castidad, 18 días desde el último ordeño.<br /><div style="text-align: justify;">hoy el perro ha estado encerrado en cada todo el día pero eso no significa que haya estado parado. por la mañana el Amo ordenó al perro que se pusiera las botas altas de cuero, la jaula y se amordazara. así debía seguir toda la mañana. en un momento dado el Dueño ordenó que el perro tuviera una sesión de reprogramación. tenía el perro que ponerse la mordaza de bola que consiguió en el último viaje, esposarse las manos por delante y usar la capucha de cuero que solo tiene el orificio en la nariz. antes, por supuesto. el ipod que repetía hasta el infinito la frase que el Dueño había enviado al perro. así estuvo el perro los 45 minutos que ordenó el Amo, grabándolo todo. fue una experiencia intensa, muy intensa. el perro piensa que realmente puede ser un método de eliminación de cualquier resistencia interior. una vez compartido con el Dueño, Éste entendió el sentido que tiene. un perro obediente puede obedecer, aunque interiormente pueda poner obstáculos. con la reprogramación esos obstáculos pueden desaparecer con entrenamiento y reprogramación. </div><div style="text-align: justify;">el resto del día paso aún con eso en la mente del perro. siguió con las botas puestas, y amordazado gran parte del tiempo. lo que si llevó todo el día fue la jaula. así está el perro prisionero, atrapado, controlado en su sexualidad. el Dueño es quien controla, quien domina, ante el que el perro se somete. no hay salida. el perro ya vive su futuro, porque el resto de su vida será así.</div>obediencia ciega para el esclavo, poder absoluto para el Amo.<br />

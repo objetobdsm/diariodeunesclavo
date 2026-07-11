@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD grupo, cuadra o casa"
+date: 2010-11-05 07:32:00 +0000
+permalink: /2010/11/fdd-grupo-cuadra-o-casa.html
+tags:
+  - imagenes
+  - vida real
+  - esclavitud
+---
+
+<div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/3c/5a/3c5ab907adc928abc0dbc63b1478c38600cd0d6c4f20e52510272246d5445abd.jpg" imageanchor="1"><img src="/uploads/3c/5a/3c5ab907adc928abc0dbc63b1478c38600cd0d6c4f20e52510272246d5445abd.jpg" border="0" /></a></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><br /></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify">a pesar de la soledad, no creo que una relación D/s pueda vivirse en solitario. desde siempre me ha gustado la utilización del término "comunidad" para referirse al grupo de personas que nos sentimos integrados por unos fetiches concretos. es cierto que en españa no hay mucha tradición de esto, más bien la contrario, solemos ser muy individualistas. pero el bdsm es, para mi, algo comunitario. </div><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify">la propia relación D/s no puede quedarse en sí misma. los Amos tienes, desean, usan a múltiples esclavos. este perro en concreto no cree que la monogamia pueda ser aplicada al bdsm. ¿quién es el esclavo para poner límites a los deseos del AMO? ¿no pertenecen a las prerrogativas del AMO ordenar al esclavo serivr a otros Amos? ¿quién es el esclavo para negarse? en algunos lugares he visto el término cuadra, para referirse al conjunto de esclavos de un Amo. en mi caso siempre he preferido el concepto de "casa", en el sentido medieval o moderno, es decir: conjunto de siervos, esclavos y familiares que están bajo la autoridad de un Señor. así se habla de la "casa real" o de la "casa de alba". dentro de una "casa" caben una cantidad enorme de relaciones, de jerarquías, de posiciones. sería el equivalente anglosajón de lo que se ha venido en llamar una "leatherfamily". teniendo este precedente, ¿quién necesita modismos extranjeros?</div><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify"></div>

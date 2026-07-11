@@ -1,0 +1,10 @@
+---
+layout: post
+title: "863 días de esclavitud, 10 de castidad"
+date: 2012-05-28 22:18:00 +0000
+permalink: /2012/05/863-dias-de-esclavitud-10-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">este perro ha hecho hoy su primer examen final en la universidad con el cockring puesto. mi Dueño me había ordenado que si me molestaba me lo quitara, pero casi ni lo he notado. y ha sido como una especie de amuleto, este esclavo no se ha puesto nervioso y cree que el examen ha salido bien. cada vez que me lo pongo, al salir del trabajo, es como si se diere un interruptor, como si sonara un clic y algo en mi cabeza cambiara, como si me volviera el sumiso que soy. exteriormente no ocurre nada, y de hecho el cockring está oculto para el reto de la gente, pero sirve de recordatorio permanente de lo que soy, de cual es el lugar de este perro en el mundo. supongo que ese es el efecto del dispositivo de castidad, más que evitar efectivamente que te ordeñes o te corras, aunque no puedas hacerlo. me explico. un dispositivo de castidad no es seguro 100%, como casi nada en este mundo. de hecho hay videos en youtube y en xtube donde se ve como esclavos con dispositivos de castidad se corren. sin embargo, entiendo que el dispositivo tiene una finalidad interesante: te recuerda que dependes de otro, de Aquel que tiene la llave, además de hacerte más difícil ordeñarte, sin duda.</div><div style="text-align: justify;">es esa situación de dependencia, de indefensión la más apreciada para este perro. sin ella nada de lo que vive tendría sentido, porque significaría que está sin Amo, que no pertenece a nadie, que es un perro callejero. por supuesto antes de ser propiedad de mi AMo, no tenía estos sentimientos, ni esa idea era tan central, pero ahora este perro ya no se concibe de otra manera, de otra forma. es así y punto</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el AMo.</div>

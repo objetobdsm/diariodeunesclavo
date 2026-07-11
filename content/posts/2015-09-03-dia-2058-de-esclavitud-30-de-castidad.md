@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2058 de esclavitud, 30 de castidad"
+date: 2015-09-03 22:22:00 +0000
+permalink: /2015/09/dia-2058-de-esclavitud-30-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">en el trabajo todo bien. el perro volvió a ir con jaula y botas, como forma de honrar al Dueño, a pesar del calor. la no-vida ya está a pleno rendimiento y el perro se ve inmerso en ella. aún así hay elementos que le sacan de la monotonía. hoy, de camino por primera vez a la universidad este curso, estaba oyendo un podcast de la radio y de pronto empiezan a hablar de la hipnosis. por supuesto el perro no pudo evitar fijarse atentamente en lo que decían. al describir los síntomas y en qué consiste la hipnosis, el perro confirmó que lo que el Dueño hizo en el último viaje fue hipnotizar al perro. en su definición más simple es un estado de relajación tan profundo que te lleva a un estado de conciencia alterado.<br/>por supuesto el entrevistado, un hipnotizador profesional, decía que a nadie se le puede obligar bajo hipnosis a hacer algo que no quiera o que vaya en contra de sus principios. sonó a una forma de "legitimar" esa práctica, a presentarla como algo bueno. porque, ¿qué pasa si justo lo que quieres es no negarle nada al hipnotizador? en una relación de Dominación/sumisión, el poder ha sido entregado al Amo, al menos conscientemente. de lo que se trataría es de que, además, se eliminaran esas zonas oscuras donde ese poder sigue sin estar completamente en manos del Amo. esa es la tarea que al perro le gustaría que hiciera el Amo. el perro no es tan ingenuo como para no saber que existen resistencias inconscientes hacia la obediencia y la sumisión. muchos años de adoctrinamiento no se quitan de la noche a la mañana. ahora el Dueño tiene un arma poderosísima para hacerlo y el perro está más que dispuesto, deseoso, de que lo haga. realmente lo que le gustaría es ser programado completamente de forma que reaccionara a las órdenes del Dueño sin duda ni atisbo de resistencia por ningún lado.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

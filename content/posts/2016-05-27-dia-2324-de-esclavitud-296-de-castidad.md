@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2324 de esclavitud, 296 de castidad"
+date: 2016-05-27 22:10:00 +0000
+permalink: /2016/05/dia-2324-de-esclavitud-296-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">a veces uno piensa que determinadas cosas son momentáneas, coyunturales, que son son sólo algo que se le ocurre al Dueño pero que pronto se cansará de ellas. y a veces es así. pero en otras ocasiones esas cosas se vuelven más y más cotidianas, hasta que se hacen imprescindibles. surgen por un momento de "calentura" o por algo que uno no piensa pero que luego se transforman en fundamentales. eso ocurrió con la castidad, algo que pensó 402 llevaría de vez en cuando, en determinados periodos de tiempo, algunos más intensos, otros menos. sin embargo se ha vuelto un pilar de su vida como objeto.<br/>también ocurrió algo parecido con el collar. 402 se sentía desnudo al quedarse la cadena que usaba hasta ahora en madrid por deseo del Dueño, y suplicó llevarlo mientras estuviera en casa. lo había llevado según órdenes del Dueño en momentos puntuales pero no sistemáticamente. el Dueño accedió y se convirtió en orden. al principio 402 pareció arrepentirse. era incómodo llevarlo. es ancho y parece un collarín, pero uno no entra en la sumisión voluntaria para estar cómodo. ahora se ha vuelto parte importante de la vida de 402 y no desea sino llegar a casa para poder ponérselo.<br/>parece que ahora le toca el turno al buttplug y al entrenamiento en el dolor. no es algo que 402 desee, al menos por ahora, pero si sigue el camino de otros aspectos del bdsm, pronto se convertirá en algo fundamental e imprescindible para este objeto; pero no porque lo desee sino porque es el Dueño quien lo desea. a su favor tiene que es una herramienta de sumisión muy potente. 402 se siente porfundamente humillado y sometido cuando tiene su ano llego con el buttplug, y esa sensación le dura cuando se lo quita porque lo nota dilatado y abierto. es muy humillante y por tanto terapeútico porque mantiene el ego controlado y la obediencia al Dueño en los niveles más altos.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2297 de esclavitud, 269 de castidad"
+date: 2016-04-30 22:28:00 +0000
+permalink: /2016/04/dia-2297-de-esclavitud-269-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">llega un momento en que la aceptación es la clave de todo. una vez has descubierto lo que eres, se trata de aceptarlo y vivir acorde con tu naturaleza. parece una contradicción hablar de naturaleza cuando has vivido gran parte de tu vida creyendo que eres una cosa y de pronto descubres que tu felicidad está en vivir acorde con otra completamente distinta, incluso se podría decir que opuesta. pues eso es así en el caso de los esclavos voluntarios.<br/>hasta hace apenas año y medio, dos años, era inconcebible para este objeto hablar de castidad y hoy, que ha tenido que estar todo el día sin jaula por un ligero problema en el pene, se ha sentido completamente desnudo e indefenso sin ella. nada más levantarse suplicó al Dueño que le permitiera estar sin jaula porque tenía una pequeña irritación en la piel. hizo una foto que le envió al Dueño y Éste dio permiso para estar sin ella porque la mayor preocupación de 402 es mantener la propiedad del Dueño en buen estado.<br/>cualquiera podría pensar que fue un alivio, que fue un relax. sin embargo en el bdsm las cosas no son siempre lo que parecen. 402 lo vivió como una condena, como un castigo, como algo negativo. es cierto que a veces desea quitarse la jaula, arrancársela, especialmente los días en que todavía está caliente. pero cuando no la tiene la echa tanto de menos.... ha entrado a formar parte de su existencia, por lo que no se concibe sin ella. como ha dicho 402 en otras ocasiones, es la mejor prueba del control que ejerce el Dueño sobre su objeto.<br/>durante todo el día 402 estuvo poniendo al dia el blog y probando lo que será la red social, realmente una forma de ponerse en contacto. por ahora todo funciona. veremos cuando lo ponga en marcha. a última hora se lo comunicó al Dueño y éste le ordenó que la activara. diariodeunesclavo da un nuevo salto con esto.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2691 de esclavitud, 663 de castidad"
+date: 2017-05-28 22:48:00 +0000
+permalink: /2017/05/dia-2691-de-esclavitud-663-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">los esclavos también tienen ego y cuando el ego toma las riendas y pasa a primer plano, empiezan a pasar cosas como querer ser el primero, o el centro, o tener razón. tal vez lo peor sea querer aparentar lo que no eres. eso a veces se manifiesta en que cuando se presentan ante Amo, o ante otros esclavos, mienten, bien en su experiencia o en sus fetiches o en las cosas que les pasan. también pueden llegar a afirmar que no tienen límites o cosas por el estilo.<br/>con este comportamiento pretenden hacerse de valer, parecer más de lo que son, pero se engañan porque no engañan a nadie. cualquier Amo con una mínima experiencia sabe identificar estos comportamientos y es suficiente para que los rechace. 402 nunca ha entendido bien esta necesidad de aparentar, de presentarse como lo que no es. puede llevar a muchos problemas en caso de haber una sesión porque al no haber sido sincero se pueden cruzar límites y provocar daños al esclavo.<br/>en alguna ocasión en que algún esclavo se ha puesto en contacto con el objeto, ha empezado a contarle una historia que el objeto intuía completamente irreal, inventada. estaban usando la relación para excitarse, para comunicar sus fantasías como si fueran realidad. cuentan lo que les gustaría que pasara como si fuera real. 402 puede llegar a entender la soledad y la necesidad de querer que les pase lo que cuentan, pero todo inferior debe aprender en algún momento a distinguir la fantasía de la realidad y que no por mentir se ganan puntos o te vuelves más "deseable". las cosas no funcionan así en el bdsm, nunca lo hacen porque el ego siempre, siempre, irá en contra de uno, alejándote justo del sitio al que deseas ir. el bdsm es algo tan intenso e íntimo que se construye sobre la confianza. si no hay eso de entrada, no hay nada.<br/>sumisión en silencio, castidad y obediencia ciega</p>

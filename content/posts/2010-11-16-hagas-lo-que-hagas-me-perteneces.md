@@ -1,0 +1,10 @@
+---
+layout: post
+title: "hagas lo que hagas me perteneces"
+date: 2010-11-16 19:46:00 +0000
+permalink: /2010/11/hagas-lo-que-hagas-me-perteneces.html
+tags:
+  - esclavitud
+---
+
+<div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/6b/cb/6bcb4632eafc607b439d5a4f8e05e6dbcae5d8e91d004a18c719de8c11f5d7fb.jpg" imageanchor="1"><img src="/uploads/6b/cb/6bcb4632eafc607b439d5a4f8e05e6dbcae5d8e91d004a18c719de8c11f5d7fb.jpg" border="0" /></a></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><br /></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify">me encanta la frase que titula esta entrada. muestra la inevitabilidad de la sumisión que vivo. es una idea que está bien asentada tanto en la mente de mi AMO como en la de este perro. tengo Su promesa de que eso es así, de que no hay marcha atrás, de que haga lo que haga, le pertenezco, soy de su propiedad. la esclavitud está legalmente abolida, pero los contratos hechos de palabra o por escrito, por personas de honor, son igualmente válidos. muchas veces la confusión entre lo legal y lo moral nos lleva a considerar que la única realidad es la admitida en los tribunales, pero no es así. la palabra tiene su valor, y por eso no hay que darla a la ligera.</div><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify">este perro ha dado su palabra y eso le ha comprometido a recorrer un camino, que tiene ciertos elementos oscuros, confusos, poco claros, como la vida misma. si todo fuera transparente, no tendríamos problemas, no habría peligro al elegir, la vida sería insulta y aburrida. pero no es ni una cosa ni otra si nosotros mismos no queremos que lo sea. arriesgarse tiene sus peligros, es cierto, pero también sus ventajas. </div><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify">la palabra de este perro le compromete a recorrer ese camino, a ser cada vez más esclavo, a someterse cada vez más profundamente, es la única forma, es el único camino. </div>

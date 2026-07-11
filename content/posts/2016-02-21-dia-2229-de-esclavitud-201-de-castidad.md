@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2229 de esclavitud, 201 de castidad"
+date: 2016-02-21 22:31:00 +0000
+permalink: /2016/02/dia-2229-de-esclavitud-201-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el regreso siempre es difícil, muy difícil. hoy el día has sido casi exclusivamente de viaje, aunque empezó desayunando cerca de la plaza de españa tras pasar por delante de la tienda de ropa fetish en la calle isabel la católica. . la verdad es que tenía muy buena pinta pero estaba cerrada así qeu no pudimos echarle un vistazo.<br/>pronto llegamos al aeropuerto y Dueño y objeto mantuvimos una conversación intensa e interesante sobre el fin de semana, sobre el pasado pero también sobre el futuro, sobre lo que significaba este nuevo paso que habíamos dado, o que había dado el Dueño más bien porque 402 se sintió que lo habían llevado hasta aquí. el Dueño admitió que no era así, que 402 había, en cierta medida, marcado el ritmo, pero no era así o al menos no se sentía así. el Dueño había empujado siempre a 402 hacia delante. es cierto que 402 se puso en posición pero fue, y ha sido siempre el Dueño, quien ha empujado al objeto. ahora 402 se siente como cayendo por un precipicio pero ha sido el Dueño quien lo ha empujado aunque el objeto se haya puesto al filo.<br/>también hablamos de los catigos y de sus consecuencias. al Dueño le pareció muy bien el "examen de faltas" de todos los domingos y 402 le comentó que un castifo es bueno para un esclavo y mucho más para un objeto. en la mente de un objeto, al igual que en la de un eclavo, se produce un déficit cuando comente una falta, una deuda, que el castigo salda. si no es así, ese granito queda ahí dentro y puede crecer alimnetado por el ego, haciendo que las cosas que hace el objeto no tienen consecuencias.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

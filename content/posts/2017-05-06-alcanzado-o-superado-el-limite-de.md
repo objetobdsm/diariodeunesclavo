@@ -1,0 +1,10 @@
+---
+layout: post
+title: "&quot;Has alcanzado o superado el límite de recursos&quot;"
+date: 2017-05-06 17:43:00 +0000
+permalink: /2017/05/alcanzado-o-superado-el-limite-de.html
+tags:
+  - comunicados
+---
+
+<p style="text-align:justify;">este ha sido uno de los emails que en varias ocasiones ha recibido 402 del hosting donde tiene alojado diariodeunesclavo.com. en el cuerpo del mensaje decía:</p><br/><p style="text-align:justify;">"tu cuenta de hosting se está acercando al límite de recursos o ya los supera. te aconsejamos que añadas recursos para que diariodeunesclavo.com deje de ir lento y sea accesible durante los periodos de mucho trafico".</p><br/><p style="text-align:justify;">después de investigar un poco. 402 ha descubierto que no es que el blog haya despegado brutalmente en cuanto a los usuarios, sino que hay varios plugins que afectan al tráfico y quitan ancho de banda, en concreto buddypress que es el que hace posible la comunidad virtual. reflexionando sobre ello y en vista de que es poco utilizada por los lectores del blog, 402 ha presentado el problema al Dueño y ha decidido quitarla. es una pena porque no hay muchos espacios para poder dejarse mensajes o entrar en contacto. en cualquier caso 402 sigue mostrando su disposición a contactar con cualquier lector que desee comunicarse y para ello deja, de nuevo, su correo: diariodeunesclavo@gmail.com.</p><br/><p style="text-align:justify;">también se está planteando revitalizar la comunidad de fetlife que comenzó hace tiempo y que estaba un poco parada. si alguno desea entrar y echarle un vistazo solo tienes que <a href="https://fetlife.com/groups/24235">pinchar aquí</a>. por supuesto hay que estar dado de alta en fetlife pero si no lo han hecho ya están tardando porque realmente merece la pena.</p><br/><p style="text-align:justify;">siente este objeto que esta iniciativa no hay tenido continuidad pero en eso consiste el aprendizaje, en prueba y error. el blog continuará como hasta ahora, con la posibilidad de dejar comentarios, algo que animo encarecidamente y si alguien desea ponerse en contacto con 402 lo puede hacer por aquí, por email o por la propia fetlife.</p>

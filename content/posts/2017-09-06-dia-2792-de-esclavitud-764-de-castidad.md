@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2792 de esclavitud, 764 de castidad"
+date: 2017-09-06 22:23:00 +0000
+permalink: /2017/09/dia-2792-de-esclavitud-764-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">a pesar del trabajo de la mañana el Dueño ordenó al objeto que se entrenara esta tarde. en el vocabulario del Dueño y el objeto, entrenarse es una especie de sesión a distancia, pero esta última palabra "sesión", no le agrada al Dueño porque es utilizada para encuentros casuales y esporádicos, algo que no tiene el entrenamiento que es constante, sistemático y con un fin: domar y romper al objeto. hoy fue así. el Dueño ordenó al objeto que se pusiera el collar ancho de cuero, las botas de goma altas, el buttplug y pinzas en los pezones. tenía que estar así durante una hora, y si aguantaba, más tiempo. a medida que pasaban los minutos el dolor era cada vez más intenso, sobre todo en los pezones, que comenzaron a ardar. con respecto al buttplug el objeto nota como su ano se va acostumbrando cada vez más a tenerlo dentro, aunque sigue siendo doloroso meterlo. el Dueño usa el término "empalado" para referirse a esa situación y, efectivamente así es. el objeto se siente así. no es sólo el dolor. el efecto psicológico de el entrenamiento es brutal. el objeto cada vez va bajando más, sintiéndose humillado, sometido. poco a poco todas las barreras, cualquier resistencia desaparece, se elimina, entrando en contacto con su auténtica naturaleza y eso deja al objeto psicológicamente anulado. si el Dueño estuviera en persona, el objeto desaparecería y se convertiría en una prolongación del Dueño, de su mente, de su voluntad.<br/>el Dueño es consciente de eso porque cuando termina ordena al objeto que se quite todo y se relaje, posiblemente para que pueda volver a la "normalidad", entendiendo como tal lo que vive a su alrededor, con aquellos que aún lo consideran humano. es fácil y requiere cierto tiempo hacerlo. el objeto obedece y se relaja, con un sentimiento de añoranza de aquello que ha vislumbrado en el entrenamiento y que será su vida definitiva.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

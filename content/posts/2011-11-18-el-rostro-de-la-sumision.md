@@ -1,0 +1,10 @@
+---
+layout: post
+title: "el rostro de la sumisión"
+date: 2011-11-18 17:49:00 +0000
+permalink: /2011/11/el-rostro-de-la-sumision.html
+tags:
+  - imagenes propias
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/25/49/2549a73f8797a2adade15ba23a227e26d92d47d0c4ec03f00cbfe2e7435964bc.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="300" src="/uploads/54/8e/548e51a6224fe1f6eaa995c65dabc53877ca6a4e57c9eabe87a53856f8244cf9.jpg" width="400" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/94/d8/94d8c17484a6390d24493f5a9c25a801129c65f455d95922a02e0ac15d96a855.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="400" src="/uploads/c7/0d/c70deba12f9485889b59dd363b1e5bd5e6c629dd25a4e849d8ae3f337edac7ff.jpg" width="300" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/3a/29/3a292757e66ae51203e01023a2cc5c81a6079b5f834a8281345d35e453c56074.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="320" src="/uploads/e8/91/e8911a66ce8d95dae775f8204a83b20c3b2844b46779902e7f2c6f7e005c86cb.jpg" width="209" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/ab/74/ab744e2b86b706bb0c08bba02c5fc125cc62ddf381ebab5a3883b4deba87e1d4.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="300" src="/uploads/48/96/4896fa9c1951bb29b3be30b41550b5cc7114063a77aa532200c1625f0e3cb3df.jpg" width="400" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/c5/ff/c5ff6c2b27734aa7769406263db9b36503495dfc5d16029216d715cb86ad1783.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="400" src="/uploads/b1/aa/b1aa7f98ab77eb29af8fd3ba0bf7fd68fdb9f05e7a3aa25ef4792f026658f554.jpg" width="300" /></a></div><div class="separator" style="clear: both; text-align: justify;">este se el auténtico rostro de este perro, de este esclavo.</div>

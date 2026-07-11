@@ -1,0 +1,10 @@
+---
+layout: post
+title: "una postura adecuada"
+date: 2007-05-26 07:40:00 +0000
+permalink: /2007/05/una-postura-adecuada.html
+tags:
+  - imagenes
+---
+
+<div align="justify"><a href="/uploads/84/1b/841b3ece24980804f19fafa26d8f9da4ed631e9d8dbc623deb220b15f7143c4b.jpg"><img id="BLOGGER_PHOTO_ID_5046506042381420194" style="FLOAT: left; MARGIN: 0px 10px 10px 0px; CURSOR: hand" alt="" src="/uploads/84/1b/841b3ece24980804f19fafa26d8f9da4ed631e9d8dbc623deb220b15f7143c4b.jpg" border="0" /></a><br />siempre vuelvo a lo mismo. se que soy recurrente, pero soy yo, así soy. nuevamente una escena y nuevamente un esclavo, y nuevamente una situación ideal para mi. cuero, collar, cadena, postura sumisa, obediente y, por qué no decirlo, empalmado, excitado. deseo y placer son los dos caminos más directos para llegar a la sumisión. sin embargo, como casi siempre, lo más interesante es lo que no se ve, lo que se sale de cámara. la cadena que sujeta al esclavo, que lo mantiene allí, el lugar hacia donde mira, es lo fundamental. allí está su AMO, su orientación, su dirección. estar de rodillas ante alguien no es una postura muy valorada últimamente. sin embargo en el mundo bdsm es una señal de respeto mutua: del esclavo hacia el AMO porque así le muestra su respeto y obediencia. Por su parte el AMO acepta que el esclavo se ponga así, acoge esa entrega y esa sumisión y la valora; y esa valoración es lo que hace "valioso" al sumiso. Además como sumiso, el esclavo solo desea eso: que su AMO sujete bien las riendas de su vida. otro elemento que siempre me ha llamado la atención es la capucha como elemento despersonalizador. ninguno de nosotros sabe quien es, no es nadie realmente, solo es un esclavo a los pies de su AMO, un objeto sometido y entregado. ¿no es una buena postura para estar en este momento? </div>

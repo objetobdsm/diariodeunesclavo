@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1949 de esclavitud, 36 de castidad"
+date: 2015-05-17 22:54:00 +0000
+permalink: /2015/05/dia-1949-de-esclavitud-36-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">a pesar de ser domingo el perro se ha pasado todo el día trabajando, como todo el fin de semana, pegado a la silla, y además con fiesta al mediodía y parecía que la banda estaba en el mismo cuarto.<br/>además de todo eso el calor sigue siendo insoportable. aunque hace menos que el miércoles pasado, sigue haciendo demasiado. si esto es el verano que se aproxima, dios nos coja confesados.<br/>las horas pasaron lentas pero al final se terminó el día. hizo el perro muchas cosas pero aún quedaron algunas pendientes. estas fechas son muy malas para el perro porque tiene muchas cosas que entregar en poco tiempo, demasiadas cosas. irónicamente el perro trabaja mejor bajo presión, cuanto más cosas pendientes, más cosas saca adelante, pero también el nivel de estrés aumenta y eso es perjudicial para la salud. lo extraño es que, cuando el perro se imagina la vida de esclavo, se imagina con menos ocupaciones, con menos tensión, más relajada. el Dueño ha dicho muchas veces que quiere al perro como un objeto para su disfrute sexual, y que además lo quiere encerrado o inmovilizado, enjaulado. eso significa que pasará el perro mucho tiempo solo y "con pocas cosas que hacer", al menos este tipo de cosas.<br/>es cierto que el Dueño le ha dicho al perro que cree que el perro tiene un talento desperdiciado para escribir y que no lo está explicitando debido al tiempo que pasa en estos menesteres de la no-vida. por eso el Dueño quiere "retirarlo", esta es la palabra que emplea, del mundo, para que pueda dedicarse a su vida, en la que escribir ocupará un lugar predominante. el perro no puede dejar de ilusionarse al imaginar ese escenario donde podrá, encerrado, tal vez encadenado, posiblemente amordazado, dar rienda suelta a su espíritu creativo, mientras el Dueño se ocupa de sus cosas para, al volver a casa, darle algo que leer y así poder hacer su vida más llevadera.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

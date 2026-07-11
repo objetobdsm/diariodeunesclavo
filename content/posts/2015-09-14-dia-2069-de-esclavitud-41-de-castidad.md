@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2069 de esclavitud, 41 de castidad"
+date: 2015-09-14 22:16:00 +0000
+permalink: /2015/09/dia-2069-de-esclavitud-41-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">últimamente el perro se está encontrando con muchos blogs escritos por sumisos que se autodenominan "fags", que es un término despectivo en el mundo anglosajón para referirse a los homosexuales sumisos.<br/>en estos blogs este término se usa positivamente. básicamente esos sumisos sirven tanto sexual como de otras formas, a hombres heteros o gays que son alphas y que ellos consideran superiores. pueden servirlos siendo sus juguetes sexuales, aportando dinero o limpiando su casa y haciendo las tareas caseras.<br/>la principal diferencia con un esclavo es que estos fags no se consideran propiedades aunque sirven a los alphas como si fueran sus dueños. algunos de ellos llegan hasta el punto de cambiar de casa, a una más pequeña, para así poder ofrecer más dinero a sus alphas. la entrega de dinero, como decimos, es uno de los principales fetiches de los fags.<br/>el perro ha leído algunos testimonios de gente que, reencontrándose con aquel "abusador" del instituto, acaba dándole parte de su sueldo y haciéndole las tareas domésticas sin pedir o exigir nada a cambio. algunos dirán que es fruto de una especie de trastorno postraumático y que esa gente está afectada psciológicamente y necesita ayuda, pero esos mismos testimonios dicen que su vida mejora considerablemente cuando eso ocurre, que son más felices, que tienen menos depresiones y que su vida adquiere más sentido.<br/>algo así ocurre con un esclavo natural. si no pertenece a un Amo tiene una tendencia a la depresión y la tristeza que los psicólogos achacan precisamente a sus tendencias sumisas. sin embargo su teoría cae cuando esos esclavos son encontrados y poseídos por sus Amos. entonces su vida mejora considerablemente y son felices, integrados, sin depresiones ni tristezas. a eso no pueden dar explicación los psicólogos.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1612 de esclavitud, 60 de castidad"
+date: 2014-06-14 22:51:00 +0000
+permalink: /2014/06/dia-1612-de-esclavitud-60-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el perro ha estado reflexionando hoy sobre la castidad como una necesidad para el esclavo. mientras puedas mantener relaciones sexuales o masturbarte, nunca estarás realmente sometido. entregarte a tu Amo, obedecerle, someterte a su voluntad, significa no controlar esa parte tan fundamental de tu existencia. si aún lo haces, no eres realmente un esclavo, porque aún conservas focos de resistencia.<br/>ya hablamos de esos focos: espacios o lugares que el esclavo se conserva para si, manteniendo su control sobre ellos. estos focos de resistencia hacen que el esclavo siga pensando que mantiene el control, que lleva las riendas. esos focos de resistencia son espacios donde el ego se esconde y se atrinchera. uno tiene uno de esos focos si hay algo que te cuesta mucho poner ante tu Amo. lo irónico es que, una vez vencida la tentación y puestos a los pies del Dueño, uno se siente, nuevamente, liberado.<br/>si el esclavo tiene uno de esos "focos", en su sexualidad, el problema es grave. muy grave, porque eso es una parte importante del control, una forma de ponerte radicalmente a prueba, de fortalecer tu obediencia. eso lo saben casi todas las religiones, que dedican gran parte de sus fuerzas y energías a controlar la sexualidad de sus fieles.<br/>tal vez sea más sencillo y lo que ocurre es que el perro está pasando por uno de esos momentos de calentura. no sería lógico porque el trabajo sigue manteniendo la mente del perro ocupada, pero esté caliente o no, el perro vive en castidad y obediencia a su Dueño y por muy caliente que se ponga, eso ya no es "controlado" por el perro.<br/>aparte de eso, el peror ha estado en casa todo el día trabajando desde casa. eso parece el cuento de nunca acabar.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

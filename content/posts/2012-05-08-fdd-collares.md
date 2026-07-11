@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD collares"
+date: 2012-05-08 05:00:00 +0000
+permalink: /2012/05/fdd-collares.html
+tags:
+  - propiedad
+  - sumision
+  - FdD
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/0e/56/0e563413c31c75a1b454642bf4a61bf18cf4c2f02652fc0b07295eeb666412e6.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/0e/56/0e563413c31c75a1b454642bf4a61bf18cf4c2f02652fc0b07295eeb666412e6.jpg" /></a></div><div style="text-align: justify;">no sólo los perros los llevan, también los llevaban los esclavos en la antiguedad. era, y es, una forma de indicar el estatus y la condición de propiedad. el bdsm los ha asumido y les ha dado ese significado, llegando incluso a catalogarlos: collar de entrenamiento, de sumisión, de propiedad; dependiendo del estado o situación del sumiso. a este perro le ayudaba mucho a entrar en subspace, en situación. bastaba sentir el collar alrededor del cuello para que su mente se pusiera inmediatamente en modo esclavo, olvidando todo lo que le preocupaba, todo lo que tenía que hacer, todo lo que no había hecho.... cuando le ponían un collar para tener una sesión, todo desaparecía.</div><div style="text-align: justify;">ahora lleva un collar permanente, a veces es físicamente visible y a veces no lo es, pero lo lleva. su condición de esclavo no es algo que se establezca para una sesión, es una constante que está presente y que condiciona su comportamiento, sus acciones, su pensamiento.... su vida. además ese collar lleva una correa, una correa muy larga, de varios kilómetros de largo y, al final de ella, la mano de mi Amo. algunos creen que es imposible controlar al esclavo así, a distancia, pero este perro ha experimentado incluso la sensación física de cuando mi Amo tira de ella. basta una palabra, una orden, incluso una ironía, para que note como mi cuello se cierra y me cuesta respirar un poco, hasta que obedezco y tiro por donde mi Amo me ha dicho, justo igual que como cuando paseas un perro y éste quiere ir a olisquear algo o acercarse a otro perro y tú no le dejas. no sé por qué se produce este hecho, pero se produce. la gente de mi entorno no ve ese collar, no lo pueden tocar, pero este perro sabe que está ahí.</div>

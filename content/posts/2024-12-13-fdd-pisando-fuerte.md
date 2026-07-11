@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD pisando fuerte"
+date: 2024-12-13 07:03:00 +0000
+permalink: /2024/12/fdd-pisando-fuerte.html
+tags:
+  - esclavos
+  - FdD
+  - leather
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/0e/fa/0efa68ee58b3524b3b0a6ea3053a1e33108ca5e9a7208ee3bb4ed1afdd291f57.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="1920" data-original-width="909" height="640" src="/uploads/fc/1a/fc1a546629e5872e251ca517e43edf925868ddcb106ffa5c47abc7a586299a51.jpg" width="303" /></a></div><p style="text-align: justify;">no hay duda de que las nuevas generaciones vienen empujando fuerte. el tiempo pasa para todos y últimamente se ha dado cuenta de que el blog está a punto de cumplir 20 años online y el objeto ya lleva casi 15 años de esclavitud. es decir que cuando mi Señor puso la cadena en el cuello del objeto, nació algún chico que está a punto de descubrir que es Amo o esclavo. y cuando empezó el blog nació otro que ya lo sabe casi seguro. estamos, por tanto, ante un cambio generacional, porque en medio de esos dos acontecimientos hay mucha gente que se ha decantado por un camino, por otro, o por los dos. sin duda, e independientemente de la edad que realmente tenga y no de la que aparente, al objeto le conmueve ver a alguien joven llevando una cadena al cuello, o un látigo metido en la bota, lo mismo da. y no porque le atraigan los jóvenes, que nunca lo han hecho, es más siempre ha estado con compañeros mayores que el objeto. la cuestión es que eso garantiza un movimiento, un cambio, una transformación, como decía el relevo generacional. sería muy cómodo decir que lo tienen más fácil, pero no es así. ellos tienen que luchar con la apariencia, especialmente aquellos que estén buscando algo auténtico, y no solo lucirse con unos pantalones de cuero o una chupa. tal vez los inferiores jóvenes que buscan sumisión, que añoran ser esclavos, tengan más complicado encontrar Amos de verdad, porque  el entrenamiento requiere experiencia, meditación, control, y una serie de habilidades que están muy lejos de la centralidad de la imagen en nuestra sociedad actual. en cualquier caso vienen con fuerza y el objeto no puede sino estar feliz por ello.</p>

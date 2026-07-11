@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5768 de esclavitud, castrado permanentemente"
+date: 2025-10-31 23:35:00 +0000
+permalink: /2025/10/dia-5768-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el día se caracterizó porque por la mañana a primera hora trajeron al objeto un sillón de lectura reclinable. mi Señor, en conversación con el objeto, consideró que podía ayudarle con el tema de la pierna y el objeto encontró uno cerca con un precio accesible. el Amo fue quien autorizó la compra porque de hecho es un regalo del Amo. el objeto no es dueño del dinero que gana y no puede hacer uso de él sin permiso del Amo. cualquier compra tiene que ser aprobada por mi Señor y así ocurrió hoy con este sillón. cuando llegó el objeto le dio las gracias sinceramente a mi Señor. el resto del tiempo el objeto pasó intentando hacer algo pero se siente bastante inútil. con esta molestia lo más que puede hacer es tumbarse en la cama aplicándose calor en la espalda. ahora con el sillón tal vez pueda hacer más. ya veremos. </p><p style="text-align: justify;">hoy termina el mes dedicado a la castidad y esta noche, o mañana, dependiendo de la franja horaria muchos inferiores se correrán después de 31 días de abstinencia. muchos estarán muy calientes ya y disfrutarán de volver a poder tener sexo pero hay un grupo de ellos que ocupan el pensamiento del objeto y son aquellos que descubrirán hoy o mañana, que eyacular, correrse, tener un orgasmo es menos satisfactorio que lo que han sentido este mes. la sociedad hipersexualizada en la que vivimos no lo creerá, no lo tendrá en cuenta y pensarán que este grupo no existe, pero sí que existe. algunos de ellos no habían probado la castidad nunca. otro la habían probado durante poco tiempo pero ambos grupos después de tantos días, descubrirán que están enjaulados es una forma de sexualidad mucho más gratificante y placentera que el orgasmo. quien tenga oídos para oir, que oiga.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

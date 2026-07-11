@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1209 de esclavitud"
+date: 2013-05-08 21:23:00 +0000
+permalink: /2013/05/dia-1209-de-esclavitud.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">42 días de castidad, 42 días desde el último ordeño.</div><div style="text-align: justify;">los días se suceden casi sin darse cuenta y lo único que parece permanecer constante es la sumisión y la esclavitud, el control de su Amo y Dueño. lo hace de muchas formas y maneras, aunque últimamente el más importante es la jaula que mantiene al esclavo en sumisión y obediencia.</div><div style="text-align: justify;">hoy ha hecho mucho calor, de hecho parece que el verano ya ha llegado. el perro ha suplicado al Dueño ir hoy con pantalón corto y zapas. la razón es este calor y el Amo lo concedió sólo por eso. ni por comodidad ni por estética jusitficaría hacerlo. el heco es que para el perro no llevar botas no es algo positivo, sino al contrario. es una condena, una falta, algo negativo. el esclavo no lo pide por comodidad, ni por parecer mejor, sólo lo suplica como último recurso, porque la situación lo exige, o al menos, lo recomienda. si por el perro fuera llevaría siempre botas y una chupa de cuero, pero el clima de las islas donde vive no es proclive a algo así precisamente.</div><div style="text-align: justify;">para este perro no hay marcha atrás, una vida sin esclavitud será una vida incompleta, frustrada, no realizada. llevar botas ya es algo propio del perro, y se siente descalzo sin ellas. tampoco se ve el perro sin jaula, porque se siente desnudo. este proceso se ha repetido muchas veces, en muchas ocasiones. el Dueño introduce algo que no es costumbre del perro. sin embargo de repetirlo y repetirlo, se asimila y asume de forma que que se vuelve indispensable y el perro ya no puede viri sin ese elemento, sin ese aspecto.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo</div>

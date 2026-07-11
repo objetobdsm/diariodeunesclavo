@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5632 de esclavitud, castrado permanentemente"
+date: 2025-06-16 22:50:00 +0000
+permalink: /2025/06/dia-5632-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el objeto fue a la oficina hoy en vez de mañana porque mañana tiene varias cosas que hacer de estudios y prefiere haceras en casa así que ha cambiado un día por otro. el objeto tuvo una reunión por videoconferencia y dedicó el resto del tiempo a preparar lo de mañana. por la tarde hizo lo mismo y fue un día aprovechado porque al terminar tenía los ojos cansados y eso le dio una fuerte sensación de aprovechamiento.</p><p style="text-align: justify;">hoy un miembro del grupo de telegram el ha preguntado al objeto cuando va a publicar más entradas del blog y el objeto se ha sentido un poco avergonzado. la pregunta seguro que no tenía ninguna mala intención pero ha sido una llamada de atención al objeto, que ha puesto de manifiesta su falta de diligencia en este tema. es verdad que los estudios han cogido casi todo el tiempo del objeto pero no es excusa, igual que tampoco lo es el hecho de que el método de trabajo sea tan laboriosas, primero escribiendo a mano y luego tecleándolo. puede ser laborioso pero es el que mi Señor quiere y el que mejor funciona para el objeto, lo a vuelto a comprobar este curso con los estudios. el objeto ya ha aceptado que es más analógico que digital. y no hay nada malo en eso. estamos acostumbrándonos demasiado al scrolling y a no pararnos a pensar, a dedicar tiempo al cuidado de si como decía foucault. no es una pérdida de tiempo escribir a mano y luego teclerar, es dejar que las palabras salgan más profundamente, porque si los lectores del blog pueden pararse a leer entonces el objeto puede pararse a escribir, aún a riesgo de que eso signifique un cierto retraso de vez en cuando en el blog. </p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega</p>

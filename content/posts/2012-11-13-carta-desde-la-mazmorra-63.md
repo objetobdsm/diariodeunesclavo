@@ -1,0 +1,10 @@
+---
+layout: post
+title: "carta desde la mazmorra 63"
+date: 2012-11-13 19:44:00 +0000
+permalink: /2012/11/carta-desde-la-mazmorra-63.html
+tags:
+  - cartas
+---
+
+<br /><div style="text-align: justify;">un esclavo me ha dicho que va a visitar a su posible Amo este fin de semana. le ha dicho que no tiene que llevar equipaje, que delante suya no puede usar ropa y estará desnudo, tal vez solo con el collar, o el dispositivo de castidad. esta experiencia ha evocado al perro una reflexión sobre el esclavo como un ser austero, sin grandes o ningún lujo, de hecho sin ninguno. si un esclavo no tiene ego, o está controlado por su Amo, no tiene "estilo", ni "imagen", sencillamente irá y su apariencia será la que decida su Amo. de hecho los perros esclavos vamos normalmente rapados, con lo cual el peinado no cuenta. ¿las ropas? aquellas que el Amo diga, normalmente tipo uniforme en el sentido de que suele ser simple y más pendiente de los gustos del Amo que de las modas de la sociedad: camiseta blanca o negra tal vez, lisa, pantalones de cuero o vaqueros, botas o zapas según el fetiche del Amo. ¿qué más? nada. el fondo de armario de un esclavo es mínimo, sus gastos en ropa pueden ser fuertes en un momento dado, un pantalón de cuero, por ejemplo, cuesta bastante pero puede durar años, así que el gasto se compensa.</div><div style="text-align: justify;">si a estos añadimos la posibilidad de que el esclavo viva encerrado, puede darse el caso de que siempre lleve la misma ropa a gusto del Amo o vaya desnudo. dentro de la mazmorra no eres nada, y estar cubierto de latex, cuero o desnudo, es la mejor forma de estar. las temporadas de los grandes almacenes le traen sin cuidado a un esclavo. rico en sumisión, pobre en ego, rico en obediencia, pobre en apariencias. está el perro esclavo tan centrado en lo realmente importante, en lo realmente profundo, que lo superficial se vuelve accesorio. el objeto más valioso que tiene un sumiso es el collar que lo convierte en un esclavo, en propiedad de su Amo.</div><div style="text-align: justify;">feliz semana </div>

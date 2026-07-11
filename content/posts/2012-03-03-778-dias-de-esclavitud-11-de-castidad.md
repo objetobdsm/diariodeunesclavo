@@ -1,0 +1,12 @@
+---
+layout: post
+title: "778 días de esclavitud, 11 de castidad"
+date: 2012-03-03 23:13:00 +0000
+permalink: /2012/03/778-dias-de-esclavitud-11-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">8:30 mi Dueño me ha ordenado que permanezca encerrado toda la mañana de la siguiente forma: botas altas atadas, cockring, collar de bondage y amordazado con cinta americana. no puedo levantarme de la mesa donde tengo que trabajar o estudiar. no puedo ir al baño ni hablar con nadie en toda la mañana. he puesto el estado en twitter y he colgado una foto de las botas atadas. durante la mañana, además de escribir este blog, iré poniendo cosas en la red. </div><div style="text-align: justify;"><br />
+</div><div style="text-align: justify;">10:30 al principio es excitante, estar como tu Amo quiere que estés. pero al tiempo deja de serlo tanto. el collar aprieta, el cockring empieza a doler, la boca se te reseca y molesta no poder andar tranquilamente. a este perro le ha dado una especie de ataque de ego, preguntándose por qué estar así y deseando quitarse todo. total, mi Amo está lejos y no puede verme. pero entonces ¿para qué todo esto? ¿qué necesidad de pasar por aquí? este perro respiró profundamente y se ha mantenido encerrado, tal y como desea su Dueño. sigue con el cockting en los genitales, con las botas atadas, el collar puesto y la mordaza en la boca.... hasta que El diga.</div><div style="text-align: justify;"><br />
+</div><div style="text-align: justify;">12:00 mi Dueño me ordenó liberarme, no sin antes suplicarle este perro que me permitiera comenzar mi entrenamiento en el dolor.  empezó con el buttplug. le costó muchísimo introducírselo. hacía mucho tiempo que no lo tenía puesto. pero al finla lo consiguió y fue muy humillante para este perro. gimió y casi llora sólo, mientras entraba, pero cuando por fin llegó a la parte estrecha sintió un fuerte alivio. el dolor dio paso a un gran alivio y a un profundo sentimiento de humillación que se transformó en humildad. como me había ordenado mi Dueño, lo tuve en todo momento en mi mente presente.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

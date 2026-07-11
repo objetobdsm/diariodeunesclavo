@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1009 dias de esclavitud, 1 de castidad"
+date: 2012-10-20 22:00:00 +0000
+permalink: /2012/10/1009-dias-de-esclavitud-1-de-castidad.html
+tags:
+  - personal
+---
+
+<span style="text-align: justify;">los sábados se supone que son días de descanso, y no sé si será por eso, pero también son días donde echo mucho de menos al Amo y a la vida en esclavitud. los fines de semana es cuando más le gustaría a este perro estar atado, encadenado, inmovilizado y amordazado. hoy es uno de esos días, agudizado con el hecho de que, tras la "sesión" de ayer, este perro se siente humillado y dolorido en el ano por el masaje prostático del dildo que se hizo. aún no controla la técnica, pero lo hará, y entonces los orgasmos podrán ser cosa del pasado, o de lo que desee el Amo</span><br /><div style="text-align: justify;">en días así a este perro le apetece bajar al sur, al yumbo, y codearse con los que son como él, ver a alguien con cuero, o botas, sentirse menos sólo sabiendo que hay gente como él. sin embargo prefirió no hacerlo porque la sensación final es aún de más soledad, de un perro sin su  Dueño, que no se corresponde con la realidad.</div><div style="text-align: justify;">el Amo hoy ha hecho un regalo a este perro. le ha concedido que a partir de ahora, cuando el Dueño le ordene ordeñarse, lo haga única y exclusivamente a cuatro patas, derramando en el suelo. es un paso más hacia el proceso de esclavitud y de deshumanización en el que está inmerso este perro. cada vez es más profundo, más radical, más humillante, lo que significa que es menos ego, menos centrado en él mismo y más en el Amo. cada cosa, acción, idea, pensamiento o sentimiento que toma el Dueño bajo su control es menos una cosa, acción, idea pensamiento o sentimiento que tiene el esclavo, una cosa menos de la que preocuparse u ocuparse, una cosa menos que tener, un paso más hacia la "libertad de la esclavitud"</div>obediencia ciega para el esclavo, poder absoluto para el Amo.<br /><br />

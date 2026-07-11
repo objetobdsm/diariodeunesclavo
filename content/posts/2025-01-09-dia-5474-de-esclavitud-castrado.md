@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5474 de esclavitud, castrado permanentemente"
+date: 2025-01-09 23:57:00 +0000
+permalink: /2025/01/dia-5474-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> ha tenido hoy el esclavo la primera formación del año, y ha sido en fuerteventura, lo que ha significado que el objeto salió de casa a las diez de la mañana y ha regresado a las diez de la noche. llegar al aeropuerto, cruza el control, esperar el vuelo, llegar, hacer cola para el coche de alquiler, cruzar toda la isla, comer en un cuarto de hora, dar la formación y viaje de vuelta. parece estresante, y lo ha sido, pero más es que ha sido cansado. al llegar le dolía al objeto todo el cuerpo como si hubiera estado entrenando en el gimnasio varias horas. lo que ha hecho peor todo es que el objeto no se encontraba excesivamente bien emocional y psicológicamente. lleva unos días bastante decaído, prácticamente desde el lunes pasado. no se puede decir que haya perdido su existencia, pero como dice mi Señor "se ha producido una grieta". parece que hoy ha empezado a cerrarse esa grieta. mi Señor siempre tiene razón y, en días anteriores, le había dicho al objeto que cuando terminara hoy se sentiría físicamente agotado pero psicológicamente tranquilo. y así ha sido, justo como mi Señor decía. la experiencia de que mi Señor conoce al objeto mejor que el objeto mismo es algo que ha sido constante desde que mi Señor tomó al objeto como una de sus propiedades. justo hoy, cuando estaba en el aeropuerto esperando el vuelo de regreso, mi Señor le ha dicho al objeto "Tengo el firme propósito de que yo moriré siendo tu Señor o tú morirás siendo mi objeto y cuando tengo un propósito lo cumplo, y lo sabes por experiencia". pues con esta frase ya está todo dicho. es una sentencia categórica y determinante. el destino del objeto está cerrado para siempre.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

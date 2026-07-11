@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2690 esclavitud, 662 de castidad"
+date: 2017-05-27 22:36:00 +0000
+permalink: /2017/05/dia-2690-esclavitud-662-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">ayer por la noche 402 sentía añoranza y echaba de menos al Dueño así que se puso a ver los videos que el Dueño había grabado en la última visita de 402. cuando llegó a uno donde estaba de latex, con las botas altas de goma atado en una silla y amordazado; el objeto no pudo evitar una erección muy fuerte.<br/>la excitación iba en aumento cuando comenzó el otro video donde seguía igual pero estaba con la capucha de privación sensorial. entonces ocurrió. 402 eyaculó dice que eyaculó porque salió mucho más leche que cuando sencillamente supura. fue imprevisto, doloroso, sorprendente y muy desagradable.<br/>inmediatamente el objeto se sintió culpable y sucio por haber eyaculado, sin permiso y de esa manera. tenía la jaula puesta, por supuesto, así que no hubo orgasmo pero sí eyaculación. el objeto temió sobre todo la reacción del Dueño.<br/>hoy nada más despertar el objeto se lo comunicó al Dueño. le contó lo que había pasado y que una de las cosas que más le había excitado era oir la voz del Dueño dominando al objeto. el objeto esperaba un castigo para el que estaba preparado porque consideraba que se lo merecía.<br/>sin embargo la reacción del Dueño fue completamente diferente. para empezar entendió que 402 no controló eso, especialmente porque al Dueño le gusta que vea los videos que grabó. lo que más le gustó fue que el objeto se excitara con la voz del Dueño. de hecho siguieron hablando y el propio Dueño se excitó con lo que había pasado.<br/>su palabra fue sanadora para el objeto ya que le dijo que no consideraba que hubiera roto la castidad ni que estuviera sucio por haber eyaculado. al final la sumisión salió reforzada y 402 más obediente que nunca.<br/>como cada semana 402 se afeitó los genitales cuando se duchó. como unas señal de que es un inferior y quedaron suaves para poder llevar mejor la jaula.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

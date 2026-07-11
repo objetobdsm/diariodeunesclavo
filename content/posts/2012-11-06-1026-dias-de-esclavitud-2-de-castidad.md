@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1026 dias de esclavitud, 2 de castidad"
+date: 2012-11-06 22:41:00 +0000
+permalink: /2012/11/1026-dias-de-esclavitud-2-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">hoy, en la no vida, un jefe, por llamarlo de alguna forma, ha dejado al perro con el culo al aire por un fallo suyo. la correspondía tener previsto una cosa que no tuvo y eso indujo al perro a cometer un error. en cualquier otras circunstancias el perro lo habría pasado fatal: su imagen pública por los suelos, traicionado.... y todo ese tipo de cosas que la gente hace. sin embargo el entrenamiento al que el Dueño ha sometido a este perro produce su efecto. el ego no estaba al mando, así que el perro no se ha sentido humillado. ese es un poder que sólo tiene el Amo, no un aspirante a jefe de tres al cuarto. pero es que además, ha servido para poner en evidencia las distintas formas de control y de mando. ¡qué distinto es alguien que ha nacido para mandar y ser obedecido, como el Dueño, y alguien que sólo quiere hacerlo para compensar un problema y unas carencias interiores propias!. no pude dejar de admirarme por el Amo. los que aspiran a mandar quieren ser lideres sin conseguirlo, el Amo lo es por sí mismo. en la no-vida este jefecillo solo aspira a "disfrutar" momentáneamente del poder; el Amo lo vive, lo desprende, lo tiene... es el poder mismo. por tanto esta circunstancia, que podría haber sido muy problemática en otro momento, ahora no deja de ser anecdótica, porque es una no-situación no-problemática en la no-vida de este perro. no es la vida real del perro que es la que vive con el Amo. de hecho sólo el Amo tiene auténtico poder sobre el perro, mi no-jefe solo intenta conseguir lo que no tiene y al Amo le sobra por los cuatro costados: Autoridad.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

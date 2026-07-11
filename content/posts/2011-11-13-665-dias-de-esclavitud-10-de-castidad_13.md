@@ -1,0 +1,10 @@
+---
+layout: post
+title: "667 días de esclavitud, 12 de castidad"
+date: 2011-11-13 23:35:00 +0000
+permalink: /2011/11/665-dias-de-esclavitud-10-de-castidad_13.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">un nuevo día con los genitales atados, esta vez con un cock ring de cuero que sujeta huevos y polla. mi Dueño me ordenó ponérmelo por la mañana temprano y me dijo que, cuando no pudiera soportarlo más, le suplicara permiso para retirarlo. eso significa que se convierte en una prueba porque es este perro quien determinaba cuando había sido suficiente. en cuanto me lo puse la erección fue casi inmediata y empezó cierto dolor, sutil, pero agradable. a mi Dueño le agradó que me doliera con la erección. </div><div style="text-align: justify;">el día transcurrió en casa, encerrado, intentando trabajar un poco sin conseguirlo. por la tarde noche, después de ocho horas con el cock ring puesto, supliqué a mi AMO que me permitiera quitármelo, y me lo concedió. durante el día se trabó varias veces con el pelo de los genitales así que me ordenó afeitármelos para posibilitar el uso más continuado del cock ring. me los afeité antes de acostarme. fue una sensación extraña, sólo lo había hecho una vez hace años. suponogo que será un poco cantoso cuando me duche en el gimnasio, pero es orden de mi Dueño.</div><div style="text-align: justify;">más tarde supliqué que me permitiera ordeñarme. estaba tenso y nervisoso, llevaba así toda la semana y pensé que eso ayudaría a relajar a este perro, pero creo que fue un error hacerlo. fue un ordeño como otras veces, rápido, sin expresiones de placer. esta vez llegó a ser hasta doloroso. no me ayudó a relajarme, y además hizo que este perro se sintiera mal.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo</div>

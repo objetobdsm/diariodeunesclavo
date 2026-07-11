@@ -1,0 +1,10 @@
+---
+layout: post
+title: "secuestro IV"
+date: 2011-09-15 15:05:00 +0000
+permalink: /2011/09/secuestro-iv.html
+tags:
+  - ficción propia
+---
+
+<div style="text-align: justify;">de lo que estaba seguro es de que aquello no era un secuestro normal. en un secuestro normal intentarían asustarle y le pedirían algo a cambio, pero no había pasado nada. puede que ocurriera más tarde, cuando se dieran cuenta de que se había despertado. no sabía nada. estaba allí, indefenso, y lo que era peor, sabía que nadie le echaría de menos en un par de días. no le había dicho a nadie que iba a quedar. no tenía familia, mascotas y era un trabajador freelance que contactaba con sus clientes por internet. podría estar en el otro extremo del planetas antes de que cualquiera lo pudiera echar de menos. tomó conciencia que precisamente podría estar en cualquier lugar del mundo porque no sabía cuanto tiempo había pasado inconsciente. su mente estaba ocupada en estas cosas cuando su cuerpo empezó a reaccionar y su polla a empalmarse. "ahora no"-pensó, pero fue inútil. la erección iba en aumento y notó como el material iba creciendo con su polla. pensó que era latex o goma. luchó para evitar aquella reacción pero fue inútil. y entonces empezaron a inundarle otras sensaciones. el tacto tocaba todas y cada una de las terminaciones nerviosas de su pene aumentando las descargas a su cerebro y provocando una reacción placentera. se sintió miserable, allí, inmovilizado y empalmado, disfrutando de una situación que podría terminar de muchas formas pero muy pocas de ellas parecían buenas. aquello no pasó desapercibido para otros porque aunque no los oyó, ni lo vío, ni los sintió, supo que alguien había entrado en la habitación y estaba contemplando su polla erguida. entonces sintió otro pinchazo en el brazoy aunque luchó contra ella, en pocos segundos le inundó una sensación de sueño a la que al final no pudo resistirse.</div>

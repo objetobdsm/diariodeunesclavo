@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5738 de esclavitud, castrado permanentemente"
+date: 2025-10-01 22:18:00 +0000
+permalink: /2025/10/dia-5738-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> ha llegado octubre y en el mundo anglosajón lo llaman locktober. lock es cerrado en ingles y está dedicado a la castidad. en el mundo kinky este es el mes para llevar jaula. en cierta medida al objeto le es intrascendente porque está enjaulado todo los meses del año pero entiendo que puede ser la primera vez para muchos. sobra decir que el objeto anima a todos a que lo intenten. es una experiencia muy intensa y una vez que comienzas es difícil dejarlo. por supuesto teniendo un Amo que sea el keyholder, término inglés para el que tiene la llave de las jaulas, es decir, a quien tiene el control. no necesariamente tiene que ser Dominante. hay keyholders que son sumisos o incluso pueden ser amigos simplemente.</p><p style="text-align: justify;">la castidad es algo diferente de la abstinencia o de la impotencia. en la castidad hay un juego de poder y control. no es capaz el objeto de imaginar cuántos sumisos e inferiores pasarán todo el mes en castidad, algunos sufriendo por ser su primera vez y otros renovando lo que viven normalmente. la cuestión es que hay incluso Amos que celebran locktober por puro gusto y satisfacción y por supuesto sin elementos sumisos. hay Amos que se ponen una jaula y están en castidad todo el mes. </p><p style="text-align: justify;">el objeto recuerda el instante en que por primera vez se puso una jaula de castidad. fue como una revelación. fue "es esto". eso ocurrió hace ¿diez años ya? puede ser. no lleva en castidad permanente desde entonces pero ahora sí. la castidad ha llegado a un punto que se puede hablar, y hablar definitivamente, de castración.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

@@ -1,0 +1,11 @@
+baseURL = "http://localhost:1313/"
+languageCode = "es-es"
+title = "Diario de un esclavo"
+
+[params]
+  description = "Migración del blog a Hugo"
+
+[markup]
+  [markup.goldmark]
+    [markup.goldmark.renderer]
+      unsafe = true

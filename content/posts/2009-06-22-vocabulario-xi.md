@@ -1,0 +1,10 @@
+---
+layout: post
+title: "vocabulario XI"
+date: 2009-06-22 05:50:00 +0000
+permalink: /2009/06/vocabulario-xi.html
+tags:
+  - vocabulario
+---
+
+<div style="text-align: justify;"><span class="Apple-style-span" style="font-family: arial; border-collapse: collapse; ">siervo, va.</span></div><span class="Apple-style-span" style="border-collapse: collapse;   "><div style="text-align: justify;"><span class="Apple-style-span" style="font-family: arial; ">(Del lat. servus).</span></div><span class="Apple-style-span"  style="font-family:arial;"><div style="text-align: justify;">1. m. y f. Esclavo de un señor.</div><span class="Apple-style-span" style="font-size: medium;"><div style="text-align: justify;">2. m. y f. Nombre que una persona se da a sí misma respecto de otra para mostrarle obsequio y rendimiento.</div><div style="text-align: justify;">3. m. y f. Persona profesa en orden o comunidad religiosa de las que por humildad se denominan así.</div><div style="text-align: justify;">~ de Dios.</div><div style="text-align: justify;">1. m. y f. Persona que sirve a Dios y guarda sus preceptos.</div><div style="text-align: justify;">2. m. y f. Persona católica difunta cuya causa de canonización se ha introducido, antes de ser proclamado beato.</div><div style="text-align: justify;">3. m. y f. coloq. Persona muy cuitada.</div><div style="text-align: justify;">siervo de la gleba.</div><div style="text-align: justify;">1. m. Der. Esclavo afecto a una heredad y que no se desligaba de ella al cambiar de dueño.</div><div style="text-align: justify;">siervo de la pena.</div><div style="text-align: justify;">1. m. El que para siempre era condenado en juicio a servir en las minas u otras obras públicas.</div><div style="text-align: justify;">siervo de los ~s de Dios.</div><div style="text-align: justify;">1. m. Nombre que por humildad se da a sí mismo el Papa.</div></span></span></span>

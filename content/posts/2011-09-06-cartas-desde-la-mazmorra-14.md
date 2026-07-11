@@ -1,0 +1,17 @@
+---
+layout: post
+title: "cartas desde la mazmorra 14"
+date: 2011-09-06 15:14:00 +0000
+permalink: /2011/09/cartas-desde-la-mazmorra-14.html
+tags:
+  - teoria
+  - cartas
+---
+
+<div style="text-align: justify;">el otro día estaba contestando un email de un lector que se estaba planteando la esclavitud. mientras escribía se me ocurrió que la mejor metáfora para intentar explicar qué significa esto de convertirse ene esclavo no es el del camino, que he utilizado en algunas ocasiones y que está muy manida. me vino a la mente más un laberinto.</div><div style="text-align: justify;"><br />
+</div><div style="text-align: justify;">tal vez la ocurrencia haya llegado por el estado de duda o confusión en el que nos encontramos todos los que nos introducimos en este mundo y que estaba viviendo este compañero. la mayoría de las veces un esclavo no sabe por dónde tirar. se encuentra a menudo en encrucijadas donde puede tirar por varios caminos y no sabe por donde ir. de ahí viene la sensación de estar perdido.</div><div style="text-align: justify;"><br />
+</div><div style="text-align: justify;">además es muy común no tener referencias, señales que te puedan indicar donde está la salida. los planos y mapas mentales que has aprendido a lo largo de tu vida y que te enseñaban qué hacer, qué pensar, cómo comportarte; incluso qué estaba bien y qué mal, ya no sirven, o al menos no sirven aquí. los muros de este laberinto son demasiado alto, asíq ue sólo quedan dos opciones, o ir hacia delante o ir hacia atrás.</div><div style="text-align: justify;"><br />
+</div><div style="text-align: justify;">este lector qu eme inspiró la imagen, además, había tenido userte, mucha suerte. había encontrado un Amo, o el Amo le había encontrado a él, que parecía tener las cosas claras y le estaba planteando cosas en la etapa de negociación. un AMo es eso, un guía que te lleva por el laberinto, a veces delatne tuyo de la mano, a veces detrás tuya pegándote patadas para que camines. él conoce el laberinto, lo ha recorrido y sabe donde está la salida y, en las encrucijadas, te indica por donde ir.</div><div style="text-align: justify;"><br />
+</div><div style="text-align: justify;">sin esta orientación muchas veces nos desesperamos, nos angustiamos. sólo vemos los muros, o los setos altos y un pasillo igual a muchos otros pasillos ya anteriormente recorridos. muchos deciden no seguir y se paran, sin saber si, al siguiente recodo, pueden encontrar lo que buscan. otros llegan a dominar el laberinto y van buscando, aprendiendo a vivir en él. una duda que me planteo y que no sé si tiene solución es por qué ntramos en ese laberinto. este esclavo ya olvidó por qué entro o mejor dicho, no podía no entrar. tenía que buscar un sentido a todo, y ese sentido estaba en el laberinto. podría haberse quedaro fuera, poer entonces se habría perdido muchas cosas. </div><div style="text-align: justify;"><br />
+</div><div style="text-align: justify;">no sabe este perro donde está la salida aún, pero sí sé que ya no voy solo, que mi DUeño me lleva de la mano y que, cuando llego a una bifurcación solo tengo que mirarle y preguntarle ¿por dónde mi Señor? y El me indica el camino.</div><div style="text-align: justify;"><br />
+</div><div style="text-align: justify;">feliz semana</div><div style="text-align: justify;">sumisión en silencio y obedienica</div>

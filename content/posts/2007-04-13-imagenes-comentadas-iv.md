@@ -1,0 +1,10 @@
+---
+layout: post
+title: "Imagenes comentadas IV"
+date: 2007-04-13 07:37:00 +0000
+permalink: /2007/04/imagenes-comentadas-iv.html
+tags:
+  - imagenes
+---
+
+<div align="justify"><a href="/uploads/a9/28/a928978eec2731c537d9da99cb31523f2fadba8621990c9b7890da56b6a57dc7.jpg"><img id="BLOGGER_PHOTO_ID_5046505350891685474" style="FLOAT: left; MARGIN: 0px 10px 10px 0px; CURSOR: hand" alt="" src="/uploads/a9/28/a928978eec2731c537d9da99cb31523f2fadba8621990c9b7890da56b6a57dc7.jpg" border="0" /></a> Esta foto es una de mis preferidas por muchas razones: muestra sumisión, humillación, sometimiento. a ninguno se le ve la cara pero es enormemente expresiva: la postura, el peso de la bota, el tacto del suelo en la cabeza encapuchada del sumiso. cuando la miro no me evoca pasión, sexo, o lujuria, sino un sentimiento de tranquilidad, de sosiego. me recuerda las situaciones en las que me he encontrado el una posición igual y, por supuesto, no vamos a engañarnos, hay excitación, pero sobre todo yo siento tranquilidad; tranquilidad y seguridad. siento la tranquilidad de saber que estoy en el lugar adecuado, que esa pierna encima mía no sólo indica que me poseen sino que además cuidarán de mi para que nada me ocurra, la tranquilidad de no tener que preguntarme más cosas, que en las encrucijadas de la vida alguien que vela por mi me orientará para que todo salga bien. </div><div align="justify">también siento seguridad, la segurida de saberme protegido, acogido, valorado, que alguien se preocupa por mí y me tiene estima. cuando he estado en una situación similar lo que siento es una paz enorme, tanto es así que sencillamente respiro hondo y me dejo ir. me concentro en el momento, en el aquí y en el ahora, en sentir el tacto de la bota de mi Amo sobre mi, símbolo de esa seguridad y esa tranquilidad que parecen venir directamente de EL hacia mí a través de ella. como todas las paradojas de la vida, cuando estoy ahí me siento auténticamente libre. </div>

@@ -1,0 +1,18 @@
+---
+layout: post
+title: "las botas de mi AMO 3"
+date: 2010-05-15 13:41:00 +0000
+permalink: /2010/05/las-botas-de-mi-amo-3.html
+tags:
+  - botas
+  - vida real
+  - sumision
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/e6/34/e63479013c70602c457033c9229eb08e2ee192be3842eb864e1649dfc0be9c03.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="300" src="/uploads/99/ef/99efc02efa28e50e7806ea92b32dcc4dcaf13e6377cd7c9d46f527dcca613a85.jpg" width="400" /></a></div><div class="separator" style="clear: both; text-align: justify;">no me canso de verlas, como tampoco me canso de lamerlas y de servirlas. lo haría aunque no fueran de mi AMO, pero lo son, así que aún adquieren más importancia. además mi AMO las quiere, le gustan y las ama. el apasionan y le encantan. yo sólo aspiro a convertirme, como ellas, en un objeto que merezca, aunque sea mínimamente, tal consideración.</div><div class="separator" style="clear: both; text-align: center;"><br />
+</div><a href="/uploads/ce/7e/ce7e53e2f00b0e66ec9183a8b675fe437d40680777d612d6c8bfcb8ef74e4892.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"></a><br />
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/ce/7e/ce7e53e2f00b0e66ec9183a8b675fe437d40680777d612d6c8bfcb8ef74e4892.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="400" src="/uploads/bc/17/bc1757325a5653139ad0ac2bb4560fe2e5c92a0d07d74f99abeed8cea387936f.jpg" width="300" /></a></div><div style="text-align: justify;">tal vez alguno considere que no es es un fin demasiado elevado, pero su opinión me trae sin cuidado. en mi vida la única opinión importante es la de mi AMO, y EL ama sus botas. y porque EL las ama, yo las amo también. no me planteo ya si son bonitas, excitantes o no lo son. EL las ama y porque EL las ama, yo las amo. da igual su forma o su color, da igual lo estropeadas que estén o lo raro que parezcan. EL las ama y porque EL las ama, yo las amo.</div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/67/3d/673d4595dfc74165303f16f19e9777befec28d9d3d2c9e6117e79020395d62b1.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="400" src="/uploads/67/40/6740ce9fb15698ba93f750408e986ceb650222130466abc75231f312ddfa8a98.jpg" width="300" /></a></div><div class="separator" style="clear: both; text-align: justify;">el mundo vanilla no entiende esta configuración con gustos y deseos de nuestros Amos, pero ellos tampoco son importantes. lo bueno de una relación D/s es que todo se relativiza, salvo una cosa: la voluntad de tu Dueño, de tu AMO. ese es el único absoluto de tu existencia desde que te sometes a SU voluntad y te conviertes en SU propiedad.</div><div class="separator" style="clear: both; text-align: center;"><br />
+</div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/05/aa/05aa5f280a18af1f812af5a26770712db999aa614329b07a8689cae2979f507c.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="400" src="/uploads/74/b9/74b96b10c741883db6a9201361f7a4d4c7004dffef6568a62133fe787c5444a6.jpg" width="300" /></a></div><br />
+EL ama sus botas y porque EL las ama yo las amo también.<br />
+<br />
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/7d/3d/7d3d1386a2522d239ce27712b80089de798afaf55e1c8b60797786b16602de17.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="400" src="/uploads/de/74/de7489e96e9407cfcc326fd758ed384c8a6c6895039689f7de95515e0788ccbe.jpg" width="300" /></a></div>

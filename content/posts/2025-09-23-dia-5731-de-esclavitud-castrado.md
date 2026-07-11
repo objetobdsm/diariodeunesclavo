@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5731 de esclavitud, castrado permanentemente"
+date: 2025-09-23 22:28:00 +0000
+permalink: /2025/09/dia-5731-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el objeto ha estado peor de la espalda y ha tomado analgésicos cuando llegó de la oficina por la tarde. la mañana fue muy poco provechosa ya que el objeto sintió que se le fue sin hacer prácticamente nada. tuvo algunas reuniones y por más la verdad. sin embargo en el grupo de telegram se suscitó una conversación muy interesante. el objeto tiene que poner una foto diaria de su jaula como comprobación de que la lleva. hoy lo hizo y un Superior preguntó como se podría garantizar que la foto había sido tomada hoy. algunos ofrecieron algunas alternativas como un periódico, u otro dispositivo con una imagen del grupo en ese momento. el objeto buscó y en otros grupos usan una aplicación que marca la hora. es una aplicación que suele o puede usarse para fichar cuando realizas un trabajo fuera. tiene muchas opciones y el objeto quitó todo lo que significaran datos personales como localización, nombres, etc. al final quedó la fecha y la hora y pareció ser una solución aceptable para todos. independientemente de lo útil o no que pueda ser para el grupo, es una herramienta muy efectiva para controlar a tu inferior. un Amo puede decirle que se saque una foto y si tiene activadas todas las opciones sale la geolocalización, la dirección según google maps y un montón de información más que puedes incluir. el objeto solo dejó el día y la hora.</p><p style="text-align: justify;">el objeto pudo comprobar como entraba en juego la concepción que tenemos sobre la intimidad y el hecho de ser un sumiso o un esclavo. ¿es un abuso que un Amo sepa donde está en cada momento su propiedad? esto supone que depende del acuerdo al que hayan llegado ¿tiene el inferior derecho a guardarse alguna información? lo mínimo. cree el objeto que esto merece una reflexión más en profundidad. </p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

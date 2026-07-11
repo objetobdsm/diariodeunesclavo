@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1353 de esclavitud"
+date: 2013-09-29 19:43:00 +0000
+permalink: /2013/09/dia-1353-de-esclavitud.html
+tags:
+  - personal
+---
+
+15 días de castidad, 15 desde el último ordeño<br /><div style="text-align: justify;">el perro ha estado hoy caliente, muy caliente, y no precisamente por el altísimo calor que está haciendo, sino porque ha tenido ganas de correrse, de masturbarse. tener ganas y deseos no falta a la orden dada por el Dueño. de hecho si no hay deseo, no hay mérito en mantener la castidad. la lucha es entre la obediencia y el deseo, y ha triunfado hoy la obediencia, pero siempre está presente el peligro de caer en el deseo ¿qué pasaría si eso ocurriera?, que el perro sufriría el castigo apropiado, un castigo equivalente a la falta cometida, porque el Dueño es justo en ese sentido. sin embargo hoy no es el día en que el perro será castigado, al menos por eso.</div><div style="text-align: justify;">por si fuera poco, el perro se puso al mediodía a leer el libro de tagame "passion", que trajo de madrid. desde luego no es lo mismo leer las historias, aunque sea en inglés, que sólo ver los dibujos porque no entiendes el japonés. en algún momento el perro se empalmó, pero no pasó de ahí. el Dueño diría que juego con fuego, pero no podía dejar de leer. estaba completamente maravillado y absorto.</div><div style="text-align: justify;">este mañana el perro consiguió, por fin, actualizar el blog. las entradas son muchas pero al final se puso al día. cada vez que ocurre esto, el perro se propone que no vuelva a pasar, que a partir de ahora lo llevará al día. hasta ahora este propósito no ha sido seguido por el perro. esta es la tarea a la que se enfrenta el perro ahora: a llevar al día el blog.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

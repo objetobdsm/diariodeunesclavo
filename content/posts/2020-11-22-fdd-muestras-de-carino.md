@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD muestras de cariño"
+date: 2020-11-22 08:05:00 +0000
+permalink: /2020/11/fdd-muestras-de-carino.html
+tags:
+  - FdD
+  - leather
+---
+
+<p> </p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/25/26/252692a845a66893f994e9b6eaff38c2c4c5fa7dd6ad29a5831a04cc29442300.png" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="1495" data-original-width="1196" height="400" src="/uploads/1c/a6/1ca6696a791ed2254d34aa2c58a52c716e79bc30794577585bc31daf726a812f.png" width="320" /> </a></div><div class="separator" style="clear: both; text-align: justify;">si hubiera que expresar algún tipo de reminiscencia humana en el objeto, algo que quedara de cuando fue humano, tal vez disfrutar de alguna muestra de cariño pudiera ser una de las pocas cosas. el objeto tiene muy consciente que el Dueño no es su pareja, es su Amo, su Propietario, Aquel a quien pertenece. desde luego la relación que mantienen en desigual, asimétrica: el Dueño siempre está por encima, en todo; y el objeto está siempre por debajo, en todo. pero a veces al Dueño le gusta comportarse como Daddy y da una muestra de cariño al objeto, o mejor dicho, lo que la mayoría entendería como una muestra de cariño porque las órdenes, los castigos, los azotes, las mordazas, las capuchas y el bondage son, para el objeto profundas muestras de cariño del Dueño ya que provienen de la certeza de que todo lo que ordene el Dueño es para el bien del objeto. ver a dos lederones como estos mostrar cariño con un beso no puede ser nunca equiparable a lo que recibirá en algún momento el objeto. de hecho el Dueño "ha besado" al objeto. la última vez el objeto estaba en el baño del Dueño, inmovilizado de pies y manos, con un trapo en la boca y sobre él varias vueltas de cinta americana, con pinzas en los pezones y sufriendo. entonces el Dueño se acercó, le levantó la cabeza y besó la mordaza. esa es la muestra de cariño que el objeto recibe y por las que da eternas gracias al Dueño. <br /></div><br /><p></p>

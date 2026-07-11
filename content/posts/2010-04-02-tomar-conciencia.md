@@ -1,0 +1,11 @@
+---
+layout: post
+title: "tomar conciencia"
+date: 2010-04-02 15:43:00 +0000
+permalink: /2010/04/tomar-conciencia.html
+tags:
+  - vida real
+  - internet
+---
+
+<div style="text-align: justify;">me he pasado gran parte de la mañana intentando recuperar mi nick en irc-hispano. lo tenía registrado y era muy suculento: "esclavo". como hacía más de 60 días que no me conectaba, quedó libre y, supongo, alguien lo cogió. intenté recuperar la contraseña, por si me había olvidado de ella, y pedí ayuda a algunos op de los canales. llevaba un buen rato así cuando, de pronto, me di cuenta de que esta perdiendo el tiempo y que no tenía necesidad de aquello. ya no era más "esclavo" o "cuerogc". esas personas desaparecieron, murieron, se esfumaron. ahora soy esclavobotas302001, y soy propiedad de mi AMO. no necesito nada más. de forma que cuando entre en irc lo haré de esa forma. todos los demás rastros de mi vida anterior en la red han desaparecido, y si queda alguno por despiste y abandono, irá diluyéndose en la red hasta convertirse en nada. lo único que queda en la red de mi ya no es mío, sino de mi AMO. tiene acceso a toda mi vida en la red, y no sólo en mi dimensión bdsm. tiene el correo del trabajo, acceso a mis redes sociales, a las webs que tengo... a todo. así debe ser.sé que aspira a que de el gran salto y desparezca, al menos en mi existencia actual. lo que no sé, porque sólo El lo sabe, si eso significará mi "desaparición" virtual. si ese es su deseo también desapareceré de la red, o me convertiré en lo que El quiere que sea.</div><div style="text-align: justify;">el hecho es que he notado que cada vez visito menos páginas, tres o cuatro realmente, aquellas sobre las que mi AMO ejerce un mayor control. las demás no las necesito. es como un círculo que se retroalimenta: necesito su control así que reduzco mis movimientos a los que EL controla mejor y así su control aumenta y yo necesito más control. tal vez esté desvariando, porque a veces ni yo mismo me entiendo, pero sí se una cosa: trabajaré para ser lo que EL quiera que sea y no dejaré nada al margen de EL. mi aspiración, y mi súplica, es que EL lo controle todo. ese es SU deseo y el sentido de mi existencia como esclavo. </div>

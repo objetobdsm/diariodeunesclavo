@@ -1,0 +1,10 @@
+---
+layout: post
+title: "537 días de esclavitud"
+date: 2011-07-06 22:58:00 +0000
+permalink: /2011/07/537-dias-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">silencio. hoy he estado prácticamente todo el día en silencio. mi Dueño ha mantenido un control absoluto sobre este perro por medio de la blackberry. me ha dado órdenes precisas y he tenido que informarle de cada paso que daba. bastaba un mensaje a su móvil por medio de internet y he sentido su presencia en todo momento. desde luego si deseaba control lo he obtenido porque es como si estuviera en persona, teniendo que pedirle permiso para cualquier cosa y dando órdenes precisas. ya no necesitamos estar delante del ordenador. puede ocurrir en cualquier lugar.</div><div style="text-align: justify;">por la noche me ordenó que le fuera preparando películas y videos para llevarle. le dije que no tenía muchos porque ya creo que tengo todo lo publicado. me ordenó que me apuntara a straigh hell y así lo hice. desde entonces estoy bajando los videos para llevárselos. ese es el trabajo de un esclavo, facilitar la vida de su Dueño, hacérsela más fácil, más cómoda... mejor. para eso existimos, para eso vivimos.</div><div style="text-align: justify;">hoy también he leído un comentario dejado en el blog a mi última carta desde la mazmorra, de +G+. quería agradecérselo públicamente, al igual que todos los comentarios. es cierto que últimamente no he podido contestarlos como me hubiera gustado, pero ya saben cómo he estado de liado. ahora que eso ha cambiado me gustaría poder hacerlo y mantener una especie de "conversación" con los lectores del blog, si fuera posible. para ello la mejor forma son los comentarios, aunque ya saben que pueden contactar con este perro por múltiples vías, basta con que pinchen donde pone contacta.</div>

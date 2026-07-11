@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1306 de esclavitud"
+date: 2013-08-13 21:10:00 +0000
+permalink: /2013/08/dia-1306-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">5 días de castidad, 5 desde el último ordeño.</div><div style="text-align: justify;">un día familiar, porque un esclavo tiene familia. el Dueño quiere que esté presente con ella y participe en la medida de lo posible. por supuesto ninguno sabe que soy un esclavo, un perro y que pertenezco al Dueño.. no lo entenderían, y tampoco hay gran necesidad de que lo entiendan. el reconocimiento de un perro, de un esclavo viene de su Dueño, de nadie más. esta dualidad forma, por ahora, parte de la vida del perro, al menos por ahora. la contrapartida es que el perro se ha sentido útil y ha hecho, hoy al menos, lo que tenía que hacer.</div><div style="text-align: justify;">desde que el perro volvió de madrid, de servir al Dueño, le está pasando algo muy extraño. mucha gente de su no-vida, está acudiendo a él en busca de orientación y consejo. al perro se le hace raro porque es él el que necesita orientación y sólo obedecer. sin embargo el círculo de gente que acude al perro está aumentando. haciendo una reflexión más profunda puede interpretarse que el camino interior del perro, el camino de sumisión, obediencia y conocimiento personal, se trasluce hacia fuera, la gente se da cuenta, y viene a buscar un poco de eso. la verdad es que desde que el perro se ha tenido que enfrentar consigo mismo y afrontar su verdadera naturaleza, muchas cosas se han relativizado. paradójicamente cuanto menos depende de él mismo y más del Dueño, más seguro está el peror frente a los demás y esa seguridad se deja ver para los demás. es un proceso que ha sido, y será costoso, pero las ventajas son muchas y el perro ha aprendido mucho en este camino.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

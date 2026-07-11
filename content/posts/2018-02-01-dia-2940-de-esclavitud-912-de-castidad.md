@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2940 de esclavitud, 912 de castidad"
+date: 2018-02-01 22:59:00 +0000
+permalink: /2018/02/dia-2940-de-esclavitud-912-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el objeto sintió hoy como si su naturaleza se impusiera, se hiciera más presente, estuviera más a flor de piel. esto ocurre cuando el objeto se siente especialmente sumiso y humillado. no siempre se está en el mismo estado de ánimo, ni con la misma predisposición. hoy no ha sido así. hoy el objeto se sentí como lo que es, como una cosa, como un objeto. se lo hizo saber al Dueño que aprovechó para profundizar aún más e introducir en la mente del objeto ideas sobre su naturaleza.<br/>en el examen de conciencia el objeto confiesa al Dueño que hoy ha hablado más de la cuenta. desde que el Dueño ordenó al objeto estar en silencio, vivir en silencio, esto lo ha intentado pero las circunstancias, especialmente en el trabajo, no lo han permitido. ahora el objeto debe seguir porque el Dueño: la naturaleza del objeto es vivir en silencio, no hablar, no pronunciar palabra, sólo obedecer.<br/>después de estar leyendo los mensajes del grupo, el objeto se da cuenta de lo lejos que está de muchos que se definen como lederones. un objeto nunca debe cuestionarlos pero no se ve en esas aportaciones e interacciones. tal vez sea porque ellos son todos Superiores y están por encima, muy por encima del objeto. ante ellos el objeto no es nada, es menos que nada. no tiene opinión, no tiene deseos, no tiene pensamientos. sólo obedece.<br/>es una tontería pero el grupo ha mantenido en la mente del objeto la vinculación entre cuero y masculinidad, pero no entre este y la Dominación. en el Dueño esta triple relación sigue presente, y en alguno más, pero no en muchos. habrá que aceptar ser la minoría de la minoría y, a la vez, ser la alternativa. aún así el grupo es especial y era necesario. si alguno es fetichista del cuero y está en madrid no debería perdérselo.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

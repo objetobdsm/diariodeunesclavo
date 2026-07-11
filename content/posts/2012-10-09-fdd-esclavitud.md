@@ -1,0 +1,8 @@
+---
+layout: post
+title: "FdD esclavitud"
+date: 2012-10-09 06:53:00 +0000
+permalink: /2012/10/fdd-esclavitud.html
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/ed/45/ed458a6e1edcf0ac01f6a3252532747044eb372f7e6f0ef47a3b046dbb50847a.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/ed/45/ed458a6e1edcf0ac01f6a3252532747044eb372f7e6f0ef47a3b046dbb50847a.jpg" width="426" /></a></div><div style="text-align: justify;">la esclavitud es real, y no se refiere este perro a esas situaciones que aún se mantienen donde un ser humano pertenece a otro sin su consentimiento. este perro se refiere a la esclavitud bdsm, elegida, aunque luego tome tintes de obligatoriedad, de exigencia y de imposibilidad de escape. hay muchos como este perro, como nosotros, que buscamos una vida distinta, diferente, alternativa, donde las relaciones de poder no son las que intenta imponernos la sociedad sino que buscamos un nuevo equilibrio, basado precisamente en el desequilibrio de servir a alguien que consideramos superior a nosotros y que nos guía, ordena, estructura y entrena para ser más fieles a nuestra naturaleza. esa situación de esclavitud se puede exteriorizar de varias formas, pero sin duda la más común es la de llevar un collar al cuello, que puede ser de neopreno, latex, o más frecuentemente cuero o metal, como el de la imagen. en estos casos, si es de metal o si es una cadena, ésta suele estar cerrada con un candado, cuya llave sólo tiene el Amo, el Dueño del esclavo. ese collar le dice a los demás lo que eres y, en el fondo, es lo único que necesita llevar un esclavo.</div>

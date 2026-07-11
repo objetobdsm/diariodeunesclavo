@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD fuera y dentro"
+date: 2014-03-31 08:43:00 +0000
+permalink: /2014/03/fdd-fuera-y-dentro.html
+tags:
+  - FdD
+  - leather
+---
+
+<p style="text-align:justify;"><img class="aligncenter" alt="" src="/uploads/6c/ff/6cff5429820ed796d52b6f8c6110c1c8b079ee1e04e4a4b8862297ffc4287f6d.jpg" width="424" height="640" />vivimos en una sociedad donde prima la imagen, donde la forma parece más importante que el contenido, donde las palabras no valen más que el sonido con las que se emiten. sin embargo en el bdsm no es así, o al menos no debería serlo. estamos hablando de un nivel tan profundo, donde se juegan tantas cosas, que el fondo debería primar sobre las formas. aparentemente el perro está afirmando una contradicción porque en un mundo donde la apariencia es tan importante, donde la ropa y la estética juega un papel fundamental, hablar de profundidad no tiene mucho sentido. sin embargo, como en tantas otras ocasiones, más que una contradicción es una paradoja. efectivamente no es lo mismo llevar cuero que no llevarlo, calzar botas que zapatos o zapas. sin embargo eso es solo la superficialidad. puedes llevar mucho cuero encima, o las botas más caras e increíbles, que cuando un esclavo se arrodilla ante ti, o tu ante un Amo, nada va a evitar que tu interior se manifieste. si eres un Amo natural los demás se darán cuenta, si eres un esclavo nacido para servir, los Amos te reconocerán. el cuero, las botas, el latex, los fetiches no son más que la exteriorización de un interior. el principal problema del bdsm actualmente es que mucha gente se pone eso por fuera, pero por dentro siguen estando vacíos. muestran algo que no son y entonces llegan las decepciones, las frustraciones y el pensar que estás sólo en un mundo de mentiras y engaños. llevar el cuero con dignidad y sabiendo lo que significa es el primer paso para poder introducirte en este mundo. si no estás seguro, busca, pero asegúrate de que hay algo dentro de ti que puedas ofrecer. sin lo de dentro, lo exterior no es nada.</p>

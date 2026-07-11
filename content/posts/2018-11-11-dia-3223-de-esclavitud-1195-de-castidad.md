@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3223 de esclavitud, 1195 de castidad"
+date: 2018-11-11 22:58:00 +0000
+permalink: /2018/11/dia-3223-de-esclavitud-1195-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">como pensaba el objeto hoy terminó el libro "the slave journals...". al final cumplió sus expectativas. fue increíble ver escrito aquello que sientes y que estás viviendo con el Dueño relatado por otros, especialmente alguien que vive en nueva york o san francisco. en el libro, poco a poco, se han ido desgranando cuestiones como si un Amo nace o se hace, si el bdsm es una cuestión de apariencia o de profundidad, de compromiso, donde el cuero se gana y no se compra, de los valores de un leatherman, etc. por supuesto hay sexo pero era un sexo duro y dominante, doloroso e intenso, nada de esas cosas de 50 sombras de grey.<br/>por la mañana el objeto se duchó y tuvo que quitarse la jaula por razones de higiene ya que tenía que lavarse con detenimiento por no estar circuncidado. le impresionó el tamaño que está adquiriendo el apéndice, cada vez más reducido hasta el punto que el objeto tuvo problemas para limpiárselo ya que no conseguía retirar la piel de lo pequeño que está. el objeto no se avergüenza sino al contrario, porque así lo desea y quiere el Dueño. nada más terminar la jaula volvió a su sitio, tocando el apéndice el tiempo imprescindible. el objeto ya no se siente a gusto si no la lleva. con ella se siente protegido y seguro, sin ella como si le faltara algo, como si estuviera incompleto, y el objeto no puede sino maravillarse de cómo el Dueño ha llevado al objeto hasta este punto. por la tarde fue a cuidar a los familiares que cuidó ayer. estuvo desde las doce hasta casi las ocho de la noche.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

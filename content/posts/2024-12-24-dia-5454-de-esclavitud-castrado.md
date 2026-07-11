@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5454 de esclavitud, castrado permanentemente"
+date: 2024-12-24 23:42:00 +0000
+permalink: /2024/12/dia-5454-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> es víspera de navidad. esta noche las familias se reunirán para simular que son felices y que realmente los vínculos entre ellos son tan estrechos que pueden afrontar cualquier cosa. sin embargo no es más que una fantasía, un deseo que, en cuanto deseo, es encomiable pero que está basado en la irrealidad, como sabe toda familia que ha tenido que enfrentarse a una herencia, a una situación que altera la "norma", como salir del armario por ser gay o que tu naturaleza es sumisa. todo secreto, y toda familia está llena de ellas, no es más que una manifestación de que esos vínculos que se suponen nos unen no son más que falacias que mantenemos para simular y vivir acorde con estas fechas. no es que el objeto se haya apuntado ahora al negativismo o sea cínico. es la realidad. cada cosa que no decimos de nosotros mismos ante nuestros familiares es una prueba de que no somos aceptados y queridos como estas fechas nos quieren hacer creer. no podemos decirles que somos sumisos o que servimos a nuestros Amos porque eso implicaría de entrada el rechazo y la exclusión, justo lo contrario de lo que implica la navidad pero que se produciría sin duda, si hiciéramos una manifestación de ese tipo debajo del árbol, junto a unos regalos que dicen más de quien los regala que de quien los recibe. se le antoja al objeto que tanta comida no es más que otra forma de llenar la boca y amordazarla de manera "normal", para evitar que digamos algo improcedente. solo hay que pensar en eso, si preferiríamos pasar la nochebuena con nuestra "familia" o a los pies de nuestros Amos. el objeto lo tiene claro, pero el primer paso es no dejarse engañar por el ruido de los villancicos. ni nos quieren, ni nos aceptan pero eso no debe impedir ser quienes somos.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega</p>

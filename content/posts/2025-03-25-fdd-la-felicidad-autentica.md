@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD la felicidad auténtica"
+date: 2025-03-25 02:44:00 +0000
+permalink: /2025/03/fdd-la-felicidad-autentica.html
+tags:
+  - FdD
+  - leather
+  - esclavos
+---
+
+<p> </p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/04/f8/04f83a50bbf2f7d1d426d34d272ba790a3e476765bc4bb0ce34d536a554709e5.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="794" data-original-width="640" height="640" src="/uploads/0d/cd/0dcd807c6a72ec322075534608ac0b8f791a1dffea82f0842e2d54a870292bf0.jpg" width="516" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: justify;">una de las cosas que nadie entiende, al menos los vanilla no lo hacen, es que el bdsm puede, y de hecho hace, feliz a las personas que lo practican. esto es en parte porque tienen una idea preconcebida de lo que es una relación de Dominación/sumisión y piensan que está basada en el abuso y el maltrato. la cuestión es que nada más lejos de la realidad. una relación bdsm está basada en la negociación, el respeto y un profundo deseo de crecer y mejorar por ambas partes. que no entiendan que eso se hace a través de la disciplina, el respeto a la autoridad, la sumisión y la obediencia dice más de los valores y las concepciones de ellos de que nosotros. cuando uno termina de servir a su Amo no hay sentimiento más elevado ni felicidad más profunda. cuando un Dominante dice "Buen chico", o "Buen perro", o "Bien, esclavo", al inferior le recorre una descarga de energía profundamente intensa que lo eleva por encima de cualquier otra consideración, de cualquier otra experiencia. posiblemente nadie haya escrito esto pero el bdsm, con todos sus problemas y todas sus dificultades, es un camino de felicidad, para conseguir la felicidad, tanto por parte del Dominante como del sumiso. la cuestión es que la mayoría confunde la felicidad con la ausencia de problemas, el placer a cualquier precio y unos sentimientos romanticones. uno puede ser feliz llorando, sintiendo dolor, siendo obediente e incluso perdiendo todo lo que tienes. porque la felicidad no depende de esas cosas sino de algo superior y por lo tanto trasciende todas las particularidades. la felicidad es estar en el sitio donde debes estar, haciendo lo que debes hacer y siendo aquello para lo que has nacido y venido a este mundo.</div><br /><p></p>

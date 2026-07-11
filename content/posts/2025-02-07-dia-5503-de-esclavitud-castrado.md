@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5503 de esclavitud, castrado permanentemente"
+date: 2025-02-07 23:34:00 +0000
+permalink: /2025/02/dia-5503-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> un día más o menos como el de ayer: por la mañana trabajo con reunión y por la tarde clase del master. la primera fue agotadora, la segunda fue muy interesante. la verdad es que el objeto lo disfrutó mucho, y tuvo que contenerse para no hablar, porque como dice mi Señor es silencio "es totalmente contra natura hablar". y el objeto sigue hablando más de la cuenta. está todavía condicionado por la creencia de que hablando aportas, de que tu opinión, incluso en este contexto humano, haciéndote pasar por humano, tiene sentido y merece la pena, y no es así. ni siquiera una duda justifica una intervención hablada ya que hay formas de resolverlas por escrito. hoy el objeto se emocionó con la clase, otro ejemplo de que debía controlarse más, y estuvo muy tentado de intervenir, pero al final no lo hizo y se mantuvo en silencio. y eso fue beneficioso para el objeto. no hay razón para hablar, ninguna, porque en un objeto es algo contra natura.</p><p style="text-align: justify;">además hoy mi Señor ha llamado a capítulo al objeto. es una nueva práctica que ha instaurado, inspirada en la costumbre medieval de las comunidades monásticas de reunirse una vez a la semana y confesar públicamente las faltas, establecer penitencias y en general, ver cómo marcha todo. hoy mi Señor ha creado un entorno de confianza y sinceridad tan profunda que el objeto ha puesto bajo sus botas todas las faltas de las semana y mi Señor las ha ido perdonando o estableciendo un castigo según su gravedad. el efecto en el objeto ha sido casi inmediato, produciendo una profunda sensación de paz y tranquilidad. </p><p>sumisión en silencio, castidad y obediencia ciega. </p>

@@ -1,0 +1,11 @@
+---
+layout: post
+title: "el Gran Salto"
+date: 2007-11-26 23:55:00 +0000
+permalink: /2007/11/el-gran-salto.html
+tags:
+  - reflexiones
+  - sumision
+---
+
+<div align="justify">no, no ha caído la bolsa, ni los <span class="blsp-spelling-error" id="SPELLING_ERROR_0">brokers</span> arruinados saltan de los rascacielos donde tiene sus oficinas. el Gran Salto es un concepto, o mejor, una expresión que utilizo para definir cuando llegas al precipicio de la sumisión, cuando se te plantea realmente dar el salto y someterte, convertirte en un esclavo. hay gente que lo da de forma brutal: dejándolo todo y yendo a vivir con su AMO, volviéndose un esclavo en el sentido más clásico del término.</div><div align="justify">otros, sin embargo, van poco a poco, <span class="blsp-spelling-error" id="SPELLING_ERROR_1">entregándo-</span>se hasta que se dan cuenta de que están en un punto sin retorno. en ambos casos puede que <span class="blsp-spelling-corrected" id="SPELLING_ERROR_2">exteriormente</span> la vida no cambio mucho, más en el segundo caso que en el primero, pero las cosas han cambiado radicalmente. ya no eres libre, ya no ere tuyo, de ti. ese es el Gran Salto. no es algo muy común, realmente es algo bastante raro, pero increíblemente potente, con mucha fuerza. no todos lo damos, ni todos estamos preparados para darlo, porque implica una responsabilidad muy grande.</div><div align="justify">por un lado el esclavo se queda a la intemperie, física, psicológica, emocional y a veces financiera y laboralmente; se vuelve, en cierta medida, un ser dependiente de su AMO, frágil, indefenso, con las barreras bajadas.</div><div align="justify">por otro lado el amo debe asumir no sólo la responsabilidad de su vida, sino la del otro también y eso es algo que se escapa a la hora de afrontar este tema. no es sencillamente que este esclavo me da placer, es decidir por él de forma que si tomo la decisión equivocada eso puede tener consecuencias. mi amo me dice muchas veces que esto no es un juego para El, y lo entiendo, lo entiendo porque soy capaz de comprender lo que eso significa.</div><div align="justify">no, definitivamente no somos los esclavos los únicos que damos el Gran Salto.</div>

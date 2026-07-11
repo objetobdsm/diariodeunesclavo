@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2366 de esclavitud, 338 de castidad"
+date: 2016-07-08 22:31:00 +0000
+permalink: /2016/07/dia-2366-de-esclavitud-338-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">por la mañana 402 tuvo otra sesión del curso que está haciendo en la facultad, prácticamente toda la mañana. como en las dos sesiones anteriores fue agradable ver a los compañeros de nuevo y tener la mente ocupada en otra cosa, en cosas interesantes, por eso en el fondo hace el curso ya que no tiene ningún otro beneficio.<br/>a última hora de la tarde tenía una cita familiar, una boda de un familiar no muy cercano. ese hecho tan prosaico sirvió para volver a vivenciar el grado de sumisión en el que vive 402. hacía calor y 402 pensó que estaría incómodo con la jaula así que tuvo la tentación de suplicarle al Dueño que le dejara ir sin ella. sin embargo inmediatamente rechazó la idea porque, tal como dijo el Dueño después, cuando puso esto en su conocimientos, "te hubieras sentido más incómodo sin ella". y así es, como siempre el Dueño tiene razón. la jaula ya no es un añadido, algo que está ahí y que sea de poner o quitar. es lo "que tienes en vez de pene, de sexo", en palabras del Dueño. así que ni lo suplicó y 402 estuvo en la boda con la jaula puesta.<br/>no conforme con eso, lo que sí suplicó fue permiso para llevar las botas sendra. desde el 1 de julio, por el verano, el Dueño ha prohibido a 402 usar las botas y si éste "desea" usarlas, entonces deberá suplicarlo. así fue hoy y el Dueño le concedió permiso, así que 402 fue embotado y enjaulado a la cita familiar. es una prueba más de que no puede abandonar ni escapar de su vida de objeto. no sólo el Dueño no lo permitiría sino que 402 no desea hacerlo. fuera de esta vida no hay más que angustia y desesperación para un objeto como 402.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

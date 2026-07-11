@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1202 de esclavitud"
+date: 2013-05-01 21:01:00 +0000
+permalink: /2013/05/dia-1202-de-esclavitud.html
+tags:
+  - personal
+---
+
+<br />35 días de castidad, 35 días desde el último ordeño<br /><div style="text-align: justify;">gran parte de la vida de este perro es soportar. soportar el dolor, la soledad, la distancia, el vivir alejado del Amo. soportar significa aguantar todas estas cosas que no son agradables, pero que tienes que pasar. hoy ha sido un día de soportar todas estas cosas.. el perro ha pasado la mayor parte del tiempo aislado, trabajando, estudiando.</div><div style="text-align: justify;">por la tarde el Amo dijo al perro que buscara una forma de andar amordazado por la calle sin que nadie lo supiera, una especie de mordaza interior. el perro comenzó a pensar y duda que exista tal cosa aunque sería interesante verlo. lo primero que le vino a la mente es que las mordazas se basan en dos cosas principalmente. la primera es hacer algo que evite que se abra la boca: cinta, un pañuelo, etc. la segunda es meter en la boca algo que te impida hablar. ese es el modelo de las mordazas de bola, las que tienen forma de pene, etc. en este caso se supone que habría que buscar algo más del segundo tipo que del primero. el Dueño estableció esta búsqueda como una prioridad. dijo textualmente que una operación para dejarme mudo sería una opción pero quería poder mantener conversaciones con su perro. el hecho es que parece claro que la palabra me sienta mal, que el que habla mete la pata, y la mayoría de las veces es mejor el silencio. ya el Dueño ha dicho al perro que pasará la mayor parte del tiempo, tras el Gran Salto, en silencio, amordazado. ese es el objetivo, y el deseo del Amo... y los deseos del Amo siempre se cumplen.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1159 esclavitud, 53 castidad, 21 ordeñado"
+date: 2013-03-19 22:11:00 +0000
+permalink: /2013/03/1159-esclavitud-53-castidad-21-ordenado.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">otro día enjaulado. el día ha sido duro, en el trabajo, desde las ocho de la mañana hasta las siete de la tarde. al despertar el perro se duchó y se colocó la jaula a eso de las siete de la mañana. cuando cerró el candado, algo cambió en su interior. otra vez el clic en su cerebro de perro, la sumisión en estado puro. si añadimos las botas que siempre lleva el perro tenemos la combinación perfecta. todo el día trabajando ha puesto a prueba la jaula y la ha pasado con creces. el perro se ha sentido cómodo, salvo a veces que un movimiento hacía presente en los genitales la jaula. al perro no le resultaba ajeno porque algo así ocurría con el cockring. durante todo el día no ha parado el perro de ir de un sitio a otro y siempre allí, presente, la jaula. </div><div style="text-align: justify;">lo mejor es que el Dueño está igual de contento que el perro. está satisfecho. nuevamente un deseo suyo se ha cumplido, una premonición que hizo. durante la etapa inicial de la relación, cuando hablaba del futuro del perro, dijo que me enjaularía en un dispositivo de castidad. desde la semana pasada eso es una realidad. todo lo que El desea se va cumpliendo, se ha ido realizando, justo tal y como El deseaba. además no hay más que mirar las distintas cuentas del perro: 1159 días de esclavitud (3,17 años), 3 años y dos meses que pertenece al Dueño; además hace 53 días, casi dos meses, desde su último orgasmo, en castidad. por último hace 21 días que se sacó la leche con el mensaje prostático. jamás pensó el perro estar en esta situación, tal y como está ahora. lo que traerá el futuro no lo sabe el perro, sólo el Dueño. lo único que sabe el perro hoy es que el futuro será lo que el Dueño quiera.</div>obediencia ciega para el esclavo, poder absoluto para el Amo.<br />

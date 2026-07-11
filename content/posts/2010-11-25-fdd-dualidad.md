@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD dualidad"
+date: 2010-11-25 07:10:00 +0000
+permalink: /2010/11/fdd-dualidad.html
+tags:
+  - imagenes
+  - leather
+---
+
+<div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/8a/28/8a28bf6b2ecb2c7d28c96fe58935664a1d686dc4cb95e5a0b0f118c2218dd47a.jpg" imageanchor="1"><img src="/uploads/8a/28/8a28bf6b2ecb2c7d28c96fe58935664a1d686dc4cb95e5a0b0f118c2218dd47a.jpg" border="0" /></a></div><div style="TEXT-ALIGN: justify"><br /></div><div style="TEXT-ALIGN: justify">en la vida de este esclavo viven muchas vidas. hasta el momento hay dos bien localizadas. por un lado está la no-vida, esta que es una apariencia constante, donde tengo que controlar mis impulsos, donde no puedo expresar abiertamente que soy un esclavo. es una vida, en palabras de mi AMO, "en catacumbas", oculta porque la sociedad no entiende determinadas cosas. esa sociedad hipócrata que condena la esclavitud voluntaria y nos somete a la esclavitud obligatoria de los bancos, las hipotecas, los ejércitos, la fuerza del estado.... una sociedad que no tiene palabra, ni valores, ni honor, donde prima el sálvese quien pueda y si puedo hundirte para trepar, pues lo hago. en esta no-vida tengo que luchar constantemente por parecer una cosa que no soy, viviendo una neurosis profunda que produce tristeza y depresión.</div><div style="TEXT-ALIGN: justify">por otro lado está mi vida, una vida de sumisión, silencio y obediencia, donde me he sometido a la voluntad de un AMO en un contexto de honor, responsabilidad, dependencia mutua, protección, ayuda y maduración personal. una vida donde la palabra es una y donde los AMos protegen a los esclavos y los esclavos obedecen y ayudan a sus AMO, una sociedad donde la ayuda mutua es lo principal, aunque a veces nuestro egoísmo se imponga. es una vida donde lamer las botas de mi AMO es un acto de sumisión que honra a los dos que participamos en él, donde se han negociado los límites y nadie se impondrá sobre el otro saltándoselos. </div><div style="TEXT-ALIGN: justify">viendo esta foto no pude evitar pensar en esta dualidad. </div>

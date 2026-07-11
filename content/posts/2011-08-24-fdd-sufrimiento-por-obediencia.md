@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD sufrimiento por obediencia"
+date: 2011-08-24 06:17:00 +0000
+permalink: /2011/08/fdd-sufrimiento-por-obediencia.html
+tags:
+  - sumision
+  - FdD
+---
+
+<br />
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/d4/99/d499f0108341123a06c9213597b75d399f3f79c5248a30a23960ba7fd8a17ce0.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/d4/99/d499f0108341123a06c9213597b75d399f3f79c5248a30a23960ba7fd8a17ce0.jpg" /></a></div><div style="text-align: justify;">este perro no se define en absoluto como masoquista, porque no disfruta con el dolor. sin embargo entiende que el dolor tiene que estar presente en una relación D/s por varios motivos. el primero de ellos, y en este caso porque sería justo lo contrario en una relación sadomasoquista clásica, el dolor como castigo es una forma de adiestramiento, de llamada de atención, de cambiar malos hábitos y costumbres. el miedo al dolor sufrido tras un castigo, transforma el comportamiento. es un principio básico de la psicología conductual. una mala acción debe tener una mala reacción para tomar conciencia de que eso no se vuelva a repetir.</div><div style="text-align: justify;">otra razón por la que el dolor puede estar presente es por placer, pero no por el placer del esclavo, sino del Amo. últimamente mi Dueño me ha dicho varias veces que en determinados momentos me torturaría, no por haber hecho nada malo, sino porque le apetece, por placer. por supuesto en esos casos el dolor del esclavo está justificado sencillamente porque el Amo lo desea. este es, tal vez, uno de las ocasiones donde el dolor se hace más soportable, por el mero hecho de la satisfacción que produce al esclavo ver a su Amo gozar.</div><div style="text-align: justify;">aunque el dolor no le produzca placer a este perro, este esclavo es consciente de que el dolor forma parte de la vida. lo sufrimos cuando hacemos deporte o vamos al gimnasio; las mujeres lo sienten al parir; constantemente nos cortamos, torcemos tobillos, nos duelen los huesos o tenemos accidentes. como digo, el dolor forma parte de la vida, y por tanto debe ser puesto a los pies de mi Dueño para ser utilizado por El.</div>

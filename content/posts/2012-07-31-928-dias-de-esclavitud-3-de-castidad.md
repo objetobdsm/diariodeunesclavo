@@ -1,0 +1,10 @@
+---
+layout: post
+title: "928 días de esclavitud, 3 de castidad"
+date: 2012-07-31 22:00:00 +0000
+permalink: /2012/07/928-dias-de-esclavitud-3-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">la esclavitud es como un proceso paulatino de descubrimiento, de ir quemando etapas, de caer en la cuenta de determinadas cosas y, aunque parezca contradictorio, tomar decisiones. poco a poco las cosas se van depurando, y entre ellas, el lenguaje es un elemento importante. este perro siempre se sentía incómodo cuando decía "mi Amo", o "mi Dueño". el mi es un pronombre posesivo que no se le permite a un esclavo. el domingo pasado mismo el Amo decía que no tenía nada "mio", que todo le pertenecía a El porque este mismo esclavo le pertenecía. por eso desde hoy este esclavo hace firme propósito de eliminar el pronombre posesivo "mi" o "mio", de este blog. como el lenguaje sexista, está tan imbuído, que el sentido de posesión tardar en desaparecer, si desaparece en algún momenot. por eso este perro es consciente de que cometerá algún fallo, algún error, del cual suplica perdón de antemano. aún así no quiere dejar de intentarlo y de aspirar a eliminar cualquier rastro de ego de su vocabulario y de su vida. siguiendo esta tónica, "mi Dueño" o "mi Amo" serán expresiones que este perro no utilizará, sustituyéndolas por "el Amo" o "el Dueño", o sencillamente "Amo" o "Dueño". puede parecer menos familiar, menos cercano, pero no hay familiaridad ni cercanía entre un Amo y su esclavo, entre un Dueño y su perro. eso no significa que no pueda haber comprensión o que haya distanciamiento, al contrario. en una relación D/s todo esto es signo y señal de una mayor dependencia, de una mayor sumisión. es una tarea difícil esta de depurar el lenguaje, pero este perro no puede dejar de afrontarla.</div>obediencia ciega para el esclavo, poder absoluto para el Amo.<br />

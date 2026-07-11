@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2910 de esclavitud, 882 de castidad"
+date: 2018-01-02 22:57:00 +0000
+permalink: /2018/01/dia-2910-de-esclavitud-882-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hoy el objeto estaba desayundando con un familiar cuando de pronto entró en la cafetería un tío vestido con un pantalón de cuero y unas botas. el cuero era duro, marrón, como desteñido, nada hecho en serie. era espectacular, un cuero bien curtido y bastante ancho. y luego estaban las botas, de un cuero como ante, lisas y oscuras, muy puntiagudas. por supuesto el tío captó la atención del objeto pero más de cintura para abajo que por su cara que, sinceramente, no recuerda. son los efectos de un fetichista. esto es extremadamente raro en canarias, así que el tío debe ser sin duda un fetichista, al menos eso es lo que pregonaba con su indumentaria, pero también con su actitud. el objeto no pudo evitar pensar si sólo le gustaba eso o era expresión de que le iban también los juegos de dominación y sumisión.<br/>la mañana la dedicó el objeto a hacer algunas compras de regalos y la tarde la pasó en casa. sin embargo no fue un día agradable. por la tarde, en una conversación con el Dueño, Éste lanzó una frase lapidaria que afectó mucho al objeto "Últimamente parece que el ego te sale todos los días". por supuesto el objeto no pudo decir nada, sino aceptar la sentencia del Dueño. es cierto que esto es una tensión casi constante, un esfuerzo casi permanente de controlar el ego. vivir como objeto en un mundo de humanos no es fácil y a veces demasiadas veces, el ego hace su aparición. casi siempre es por despiste, por relajarse demasiado, no por un deseo consciente. esto sólo significa que el objeto debe trabajar más, esforzarse más, someterse más.<br/>sumisión en silencio, castidad y obediencia ciega</p>

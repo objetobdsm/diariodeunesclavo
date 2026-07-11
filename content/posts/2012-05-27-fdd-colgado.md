@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD colgado"
+date: 2012-05-27 05:54:00 +0000
+permalink: /2012/05/fdd-colgado.html
+tags:
+  - bondage
+  - leather
+  - FdD
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/3e/1e/3e1ef6a918041e3c43637e5e6653559888f44d9602993b9495eb0acbd7ad253d.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/3e/1e/3e1ef6a918041e3c43637e5e6653559888f44d9602993b9495eb0acbd7ad253d.jpg" width="480" /></a></div><div style="text-align: justify;"> a veces la sensación de indefensión que produce el bondage se puede multiplicar, superponiendo elementos. si te ponen una camisa de fuerza, estás indefenso, pero si además te ponen una capucha que te priva de los sentidos, la sensación de impotencia se superpone y multiplica. y esto sirve no sólo para el tema físico, sino para la dominación psicológica. en el fondo es ir superponiendo capas que hacen que, del "peso", bajes cada vez más a tu ser más profundo e interior, y descubras cuál es tu verdadera naturaleza. en estas imágenes el esclavo no sólo está atado, sino colgado, sin posibilidad de poner los pies en el suelo, la indefensión se multiplica. de hecho ni siquiera es necesario atarle los pies. no puede correr, no puede escaparse.</div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/46/e1/46e142499b43f71aab9638c992b899de4238f076761e4195e036d11fa9577643.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/46/e1/46e142499b43f71aab9638c992b899de4238f076761e4195e036d11fa9577643.jpg" width="480" /></a></div><div style="text-align: justify;">el cuero, las botas, los tatuajes, el collar, los chaps, todo dice lo que es, no quien es, sino lo que es, un esclavo, un sumiso. lo más sorprendente para este perro es su expresión. no está asustado, ni siquiera sufriendo, a pesar de que la presión tiene que ser grande en sus brazos. es como si siempre hubiera estado colgado, como si siempre hubiera estado así, como si estuviera acostumbrado. es como si viviera de esa forma, y de una manera metafórica, tal vez de hecho lo haga: colgado de y por su Amo.</div>

@@ -1,0 +1,12 @@
+---
+layout: post
+title: "¿nace o se hace?"
+date: 2008-09-27 07:13:00 +0000
+permalink: /2008/09/nace-o-se-hace_27.html
+tags:
+  - reflexiones
+  - esclavitud
+  - sumision
+---
+
+<div align="justify">me pasa lo mismo cada periodo de vacaciones, el hecho de no tener horarios me destartala un poco, me siento como perdido, sin saber qué hacer o cómo organizarme. no quisiera parecer cuadriculado pero una vida organizada, muy organizada es mi ideal. considero que es otro rasgo que puede ser interpretado como una inclinación a la sumisión o no.sigo dándole vueltas a si soy un sumiso de nacimiento o me he hecho así. partiendo de la base de que en el fondo no importa mucho porque lo importante es lo que llegue a ser ahora, estoy interpretando acontecimientos de mi infancia y mi pasado desde esta perspectiva. siempre he sido y me han recordado como un niño muy servicial, siempre dispuesto a hacer un favor. incluso de pequeño me llamaban tonto porque me engañaban y era "muy bueno". es muy conocida esta frase de "es tan bueno que es tonto". esto no es determinante para llegar a un juicio sobre si nací sumiso o me he convertido en sumiso por los avatares de la vida. ¿en el fondo importa? imagino que la respuesta está, como decía artistóteles, en el justo medio. posiblemente tuviera una predisposición innata, que se fue desarrollando por las circunstancias de mi historia personal hasta la situación actual, que no es otra que la de encarnar un esclavo de la mejor forma posible. esa es mi tarea ahora, AMO, en ella estoy comprometido, pero no es una tarea cualquiera, no deseo ser un esclavo asépticamente. deseo convertirme en SU esclavo. mi aprendizaje, y ahí encajo eso de que todo esclavo, incluso los más experimentados, tienen que ser entrenados, es aprender a servirle a Usted y no a otro, a hacer lo que Usted desea, lo que le hace feliz, lo que le da placer. poco a poco voy aprendiendo cosas, acciones, palabras, gestos, que antes no conocía y que voy introduciendo para configurarme como el esclavo que Usted desee. ni siquiera el ser esclavo es mérito mio, sea natural o aprendido. ser esclavo siempre es mérito del AMO, por eso, en el mundo bdsm el esclavo encarna y lleva en cierta medida el honor de su AMO.eres como te adiestraron y si fallas en algo eso hablará de ti, pero también hablará de tu AMO. esto es válido tanto para lo bueno como para lo malo. y es otro vínculo que mantiene unidos a los dos delante de otros amos y otros esclavos. no sé si se me permite sentir orgullo, pero estoy orgulloso y muy honrado de ser su esclavo. AMO.</div>

@@ -1,0 +1,8 @@
+---
+layout: post
+title: "872 días de esclavitud, 5 de castidad"
+date: 2012-06-06 22:00:00 +0000
+permalink: /2012/06/872-dias-de-esclavitud-5-de-castidad.html
+---
+
+<br /><div style="text-align: justify;">hoy debería haber sido un día tranquilo, pero no lo fue. el trabajo estuvo agobiante, la universidad por la tarde intensa. y no lo fue por la carga de trabajo precisamente, sino porque este perro estuvo volcado hacia fuera, en conversaciones profundas intentando resolver problemas, ecuchando, dando alternativas... .cuando llegó la última hora de la tarde se sentía interiormente vacío, como si le hubieran sacado toda la energía y no quedara nada. la sociedad actual es muy de esto, de estar volcado hacia los demás, evitando que te encuentres contigo mismo. se supone que siempre tienes que estar disponible, amable, atento a los otros. ¿dónde quedas tú?. en días así le envio a mi Dueño un simple mensaje: "añoro la mazmorra". y es cierto. este perro añora la mazmorra donde hay tranquilidad, silencio, paz. añora no poder moverse ni hablar, añora que su Amo tome las riendas y decida...que El decida. en última instancia a esto se reduce todo, a que El decida, que decida todo absolutamente. este perro sólo desea conformarse a esa voluntad, realizar el deseo de su Dueño, de su Amo. sólo así conseguirá realmente la paz.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

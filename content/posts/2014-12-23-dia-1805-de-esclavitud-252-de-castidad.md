@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1805 de esclavitud, 252 de castidad"
+date: 2014-12-23 22:19:00 +0000
+permalink: /2014/12/dia-1805-de-esclavitud-252-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">un esclavo llega a un momento en que descubre determinadas cosas que no son del agrado del común de la gente. hoy el perro pensó que realmente "necesitaba" y "depende" del Dueño.. necesidad y dependencia no son palabras muy valoradas en las relaciones sociales en nuestros días. los libros de autoayuda están llenos de argumentos y afirmaciones contra una y contra otra.<br/>sin duda "necesitar" a alguien o "depender" de alguien puede tener connotaciones positivas o negativas. un niño necesita y depende de sus padres y nadie diría que esa situación es negativa. sin embargo cuando crecemos no se considera adulto y maduro que alguien necesite.<br/>lo distinto de esto es que un esclavo es como un niño en ciertos aspectos. necesita ser controlado, que se le pongan normas y se tracen límites con el consiguiente castigo si los cruza.<br/>en este sentido el perro es como un niño que necesita ser controlado y re-educado. estos pensamientos estuvieron en la mente del perro y se lo hizo sabe al Dueño que estuvo gratamente complacido.<br/>el perro pasó toda la mañana en la universidad y en un momento dado fue al baño y se hizo una foto de la jaula que envió al Dueño, a quien pidió permiso para publicarla, y así lo hizo el perro.<br/>después aparecieron dos compañeras y fuimos a comer, tras previa autorización del Dueño.<br/>la comida estuvo bien pero no fue sino otra manifestación de la dicotomía en la que vive el perro. para ellas era un compañero igual que ellas pero el perro llevaba las botas y la jaula, lo que lo convierte en un sumiso esclavo.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1593 de esclavitud, 41 de castidad"
+date: 2014-05-26 23:42:00 +0000
+permalink: /2014/05/dia-1593-de-esclavitud-41-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hoy el trabajo absorbió casi toda la vida del perro, y su energía, por cierto. fue una de esas ocasiones en las que los egos de los compañeros camparon por sus anchas y aquello parecía una batalla campal a ver quien se llevaba el gato al agua. no fue nada agradable.<br/>el perro intentó mantenerse a distancia, como observando todo como un espectador. no siempre lo consiguió y en algún momento notó que se descentraba. eso en nuestro vocabulario significa que, en algún momento notó que su ego tomaba la iniciativa y se convertía en el "dueño" de la vida del perro. afortunadamente el entrenamiento recibido por el perro ayudó a que las cosas volvieran a su cauce y fuera algo puramente anecdótico.<br/>lo más interesante fue comprobar cómo por la tarde noche ya, en casa, el cansancio se adueñó del perro. mientras vivir en sumisión y obediecnia energiza al perro y le da vida, luchar guidao por el ego le agota y apaga. uno no puede dejar de preguntarse si realmente merece la pena tanto esfuerzo y energía para nada. el perro lo tiene claro. todo aquello que es guiado por el ego no merece la pena, ni esfuerzo. la sumisión y la obediencia son el camino para este perro.<br/>sólo una nota más por las elecciones europeas. en españa los dos grandes partidos han sido derrotados. cree el perro que la gente ha dado un varapalo a la clase político y ha roto el bipartidismo. espero que se den cuenta de la llamada de atención aunque me temo que si hay gente que ha perdido el control porque sus egos son demasiado grandes, esos son los políticos.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

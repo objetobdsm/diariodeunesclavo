@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1862 de esclavitud, 309 de castidad"
+date: 2015-02-18 22:15:00 +0000
+permalink: /2015/02/dia-1862-de-esclavitud-309-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">ha sido un día estresante, muy estresante, uno de los pocos en los que el perro ha estado a punto de pensar en tirar la toalla. el motivo no ha sido otro que la sobreabundancia del ego alrededor del perro. parece que todo el mundo, incluso en los trabajos supuestamente más vocacionales, sólo desea una cosa: trabajar poco, cobrar mucho y buscar su propio beneficio. nadie habla de compromiso, de responsabilidad, de trabajo bien hecho, y hoy eso ha puesto al perro un poco en el límite porque si alguien no se esfuerza por hacer bien su trabajo, acabará haciéndolo mal.<br/>si algo tiene que agradecer el perro al Dueño, entre muchas otras cosas, es el hecho de que le exige la excelencia, y no sólo en lo referente al bdsm y a su vida como esclavo, sino también fuera de ella, en su no-vida. muchas veces le ha dicho el Dueño que debe hacer bien su trabajo, lo mejor posible y que no quiere un perro que no de el 150% en cada momento. ese es el beneficio del perro y por eso la esclavitud lo ha hecho mejor en todos los aspectos de su vida, porque no queda reducida a una mera cuestión esporádica de encuentros sexuales, sino que está transformando su existencia desde los cimientos y en todas direcciones.<br/>A pesar de encontrarse estresado, el perro ha conseguido no desesperarse y mantener cierto equilibrio tanto en el trabajo por la mañana como en la universidad por la tarde. hoy ha terminado uno de los cursos así que a partir de la semana que viene se supone que estará más "liberado", lo cual no significa otra cosa que que tendrá más tiempo para hacer trabajo que tenía pendiente.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

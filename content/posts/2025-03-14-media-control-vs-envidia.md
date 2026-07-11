@@ -1,0 +1,10 @@
+---
+layout: post
+title: "media control vs envidia"
+date: 2025-03-14 18:09:00 +0000
+permalink: /2025/03/media-control-vs-envidia.html
+tags:
+  - bdsmedia
+---
+
+<p style="text-align: justify;"> un Amo del grupo le ha escrito al objeto para indicarle que el motivo del cuestionamiento de la entrada por parte de google no sea tanto el control cuanto la envidia de algún lector del blog, o incluso alguien que pueda estar en el grupo de telegram. su razonamiento era consistente, que un lector eventual no se molestaría en hacer una denuncia de contenido incluso habiendo llegado allí por casualidad. consideraba que era alguien que regularmente acudía al blog, o como digo que incluso podría estar en el grupo, y que no soporta ver cada día la existencia de esclavitud que tiene el objeto. la verdad es que después de leer a este Amo el objeto no supo si prefería que fuera control por parte de blogger o envidia por parte de un hermano sumiso. Él había tenido experiencias previas con una foto que no mostraba nada y que tuvo que retirar de una red social por una denuncia parecida. pensar que alguien amante del bdsm y que además, conscientemente, lea el blog y/o esté en el grupo, y presente una denuncia de un contenido me parece terrible. y no porque sea un contenido del objeto sino porque eso significa que está profundamente en conflicto con lo que es. si este es el caso y se da la casualidad de que leer este post, le recomendaría que se lo trabajara porque si es así es la peor forma de encontrar un Amo, que posiblemente sea lo que desea más profundamente. de hecho hasta le ofrecería la ayuda del objeto para trabajárselo porque a esto le cuesta imaginarse algo así. </p><p style="text-align: justify;">en cualquier caso lo que si es cierto es que hay una ola conservadora que se está imponiendo a todos los niveles y que implica que nuestra capacidad de visibilizarnos se va mermando cada vez más. tampoco es un gran problema. volveremos a las mazmorras, o las haremos más profundas, eso no importa. siempre hemos estado ahí. es nuestro lugar natural. </p><div><br /></div>

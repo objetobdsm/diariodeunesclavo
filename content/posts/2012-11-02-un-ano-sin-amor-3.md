@@ -1,0 +1,11 @@
+---
+layout: post
+title: "un año sin amor 3"
+date: 2012-11-02 12:49:00 +0000
+permalink: /2012/11/un-ano-sin-amor-3.html
+tags:
+  - mass media
+  - videos
+---
+
+<div class="separator" style="clear: both; text-align: center;"><br /></div><div style="text-align: center;"><object width="520" height="466" class="BLOG_video_class" id="BLOG_video-3e4a2d795ccbdfd5" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=6,0,40,0"><param name="movie" value="//www.youtube.com/get_player"><param name="bgcolor" value="#FFFFFF"><param name="allowfullscreen" value="true"><param name="flashvars" value="flvurl=http://redirector.googlevideo.com/videoplayback?id%3D3e4a2d795ccbdfd5%26itag%3D5%26source%3Dblogger%26app%3Dblogger%26cmo%3Dsensitive_content%253Dyes%26ip%3D0.0.0.0%26ipbits%3D0%26expire%3D1354088174%26sparams%3Did,itag,source,ip,ipbits,expire%26signature%3D28A6CEE285FB6A392FB7DF0148F9704681B21F13.32E33ABBB6BC0B990A96E46F1627A985572B7EB3%26key%3Dck1&iurl=http://video.google.com/ThumbnailServer2?app%3Dblogger%26contentid%3D3e4a2d795ccbdfd5%26offsetms%3D5000%26itag%3Dw160%26sigh%3DcO3IMT5L4d0r6jP6HenRLaXDXPc&autoplay=0&ps=blogger"><embed src="//www.youtube.com/get_player" type="application/x-shockwave-flash" width="520" height="466" bgcolor="#FFFFFF" flashvars="flvurl=http://redirector.googlevideo.com/videoplayback?id%3D3e4a2d795ccbdfd5%26itag%3D5%26source%3Dblogger%26app%3Dblogger%26cmo%3Dsensitive_content%253Dyes%26ip%3D0.0.0.0%26ipbits%3D0%26expire%3D1354088174%26sparams%3Did,itag,source,ip,ipbits,expire%26signature%3D28A6CEE285FB6A392FB7DF0148F9704681B21F13.32E33ABBB6BC0B990A96E46F1627A985572B7EB3%26key%3Dck1&iurl=http://video.google.com/ThumbnailServer2?app%3Dblogger%26contentid%3D3e4a2d795ccbdfd5%26offsetms%3D5000%26itag%3Dw160%26sigh%3DcO3IMT5L4d0r6jP6HenRLaXDXPc&autoplay=0&ps=blogger" allowFullScreen="true" /></object></div><div style="text-align: justify;">pablo se encuentra en su elemento en esta escena donde se ve en un sótano de un local leather con un collar de esclavo al cuello. recuerdo haber leído que participaron lederones argentinos auténticos, verdaderos practicantes de bdsm, con lo que la película roza el documental.</div><div class="separator" style="clear: both; text-align: center;"><br /></div><br />

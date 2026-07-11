@@ -1,0 +1,11 @@
+---
+layout: post
+title: "esclavizados 2"
+date: 2009-12-15 10:45:00 +0000
+permalink: /2009/12/esclavizados-2.html
+tags:
+  - esclavitud
+  - imagenes
+---
+
+<div>segunda entrega de la serie de fotos sobre tios esclavizados, o que al menos llevan cadena y candado al cuello.</div><a onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}" href="/uploads/67/25/67259647107cb30a7e99f83f7ef5aac79990b5418f57d9ceb4a37eac83fe92f0.jpg"><img style="display:block; margin:0px auto 10px; text-align:center;cursor:pointer; cursor:hand;width: 300px; height: 400px;" src="/uploads/67/25/67259647107cb30a7e99f83f7ef5aac79990b5418f57d9ceb4a37eac83fe92f0.jpg" border="0" alt="" id="BLOGGER_PHOTO_ID_5412077282076887602" /></a><br /><a onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}" href="/uploads/69/fd/69fd4b4520ed5f3ac4b5552a619fb5c7bb415ddc3bfffb74d0cb7cd0aaf1a5b9.jpg"><img style="display:block; margin:0px auto 10px; text-align:center;cursor:pointer; cursor:hand;width: 347px; height: 400px;" src="/uploads/69/fd/69fd4b4520ed5f3ac4b5552a619fb5c7bb415ddc3bfffb74d0cb7cd0aaf1a5b9.jpg" border="0" alt="" id="BLOGGER_PHOTO_ID_5412077276350285778" /></a><br /><a onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}" href="/uploads/07/21/072193f4aa10a4749b30d1acd1d5b51d5274adaa274a92438535d329ebe4c4e5.jpg"><img style="display:block; margin:0px auto 10px; text-align:center;cursor:pointer; cursor:hand;width: 289px; height: 400px;" src="/uploads/07/21/072193f4aa10a4749b30d1acd1d5b51d5274adaa274a92438535d329ebe4c4e5.jpg" border="0" alt="" id="BLOGGER_PHOTO_ID_5412077271394384914" /></a><br /><a onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}" href="/uploads/62/4b/624ba50b269e8cd01663ab057fa875be872e953bcbfcca03ce1491ae05df129f.jpg"><img style="display:block; margin:0px auto 10px; text-align:center;cursor:pointer; cursor:hand;width: 300px; height: 400px;" src="/uploads/62/4b/624ba50b269e8cd01663ab057fa875be872e953bcbfcca03ce1491ae05df129f.jpg" border="0" alt="" id="BLOGGER_PHOTO_ID_5412077268388965794" /></a>

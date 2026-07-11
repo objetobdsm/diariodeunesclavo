@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD problemas"
+date: 2025-03-27 02:56:00 +0000
+permalink: /2025/03/fdd-problemas.html
+tags:
+  - FdD
+  - leather
+---
+
+<p></p><div style="text-align: center;"> <a href="/uploads/8b/1b/8b1bf3030c6036c007dd1cd62ba28d65e242d314519f31121c91f8db7e0ee0ba.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em; text-align: center;"><img border="0" data-original-height="981" data-original-width="736" height="640" src="/uploads/85/5b/855b7102f6bad12d94dd38de4c001b70f49a3bae26c4525b60fbac4cce6c0b7d.jpg" width="480" /></a></div><div style="text-align: center;"><br /></div><div style="text-align: justify;">es posible vivir entre los humanos siendo un objeto? es complicado pero posible. ¿por qué es tan categórico el objeto? porque esa es precisamente su realidad. durante mucho tiempo estuvo luchando con esa dualidad, que los lectores más fieles del blog recordarán como aquella disyuntiva entre la vida y la no vida. sin embargo llegó un punto en que eso desapareció. la razón fue que mi Señor dijo que sólo existía una vida, la actual del objeto y que no había no vida. solo una vida vivida como Él ordenaba y decidía. y así ha sido desde entonces. el objeto ha podido llevar botas, a pesar de que mucha gente lo mira por ello y le hace comentarios al respecto. y también su jaula y la muñequera que lo cataloga como propiedad de mi Señor. algunos inferiores, influidos sin duda por el porno y por una visión romantizada de lo que es ser un esclavo, tal vez desearían poder llevar collar por la calle, o ir amordazados, o con algún símbolo que indicar su condición de propiedad. el mismo objeto desearía ir amordazado permanentemente. pero ¿no es posible hacerlo ya? es muy sencillo, basta con no hablar con nadie, ni aunque se dirijan a ti. o llevar una cadena que no sea tan llamativa pero que simbolice lo mismo, o incluso una placa como las militares donde estén los datos del objeto y diga que eres propiedad de un Amo. ¿qué quieres vivir más radicalmente? hay recursos y mecanismos legales para hacerlo realidad. lo bueno de todo esto es que podemos estar en la calle, siendo lederones pero que la gente dude si nos va el bdsm o sencillamente las botas y el cuero. es una forma de camuflaje que nos permite ser nosotros mismos entre los demás. así el problema es de ellos, no de nosotros.</div><br /><p></p>

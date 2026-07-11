@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3309 de esclavitud, 1281 de castidad"
+date: 2019-02-05 22:06:00 +0000
+permalink: /2019/02/dia-3309-de-esclavitud-1281-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">llevar la jaula no es sólo tener algo en los genitales que impide que te corras normalmente, que te mantiene caliente sin poder desahogarte o liberarte. llevar una jaula implica que muchas cosas cambian a tu alrededor, que cosas cotidianas se vuelven extrañas. la primera cosa que cambia es tu forma de orinar. se acabó el mear de pie, a riesgo de convertir todo en un desastre y tal vez orinarte a ti mismo. podrás seguir haciéndolo en la ducha tal vez, pero poco más. parece algo simple pero se complica ir al baño en cualquier lugar público.<br/>también cambian las pautas de higiene. llevar la jaula implica ser más cuidadoso a la hora de orinar porque es normal que se queden gotas o restos. hay que sacudirse la jaula muy bien.<br/>algunas otras cosas se vuelven también complicadas, como llevar bañador o ropa ajustada. también los calzoncillos se vuelven obligatorios, al menos son más cómodos para llevar la jaula. ir a un vestuario se vuelve una carrera de obstáculos a menos que quieras que te vean con ella. las duchas colectivas son terreno prohibido, a menos que desees o te ordenen que tu castidad y tu sumisión se vuelvan del domino de todos. y todo eso sin olvidar que de vez en cuando el dolor hace acto de presencia, bien sea con una erección imprevista, y no deseada, o porque al hacer un movimiento los testículos se ven oprimidos.<br/>cualquier entono de intimidad es problemático. imagina entrar en un bar y encontrar un tío que se te declara y quiere follar contigo ¿le dirías que estás enjaulado? podría encularte sin problema ¿lo harías? normalmente la jaula suele ponerla un Amo a su esclavo como forma de control, pero no siempre es así. ¿dirías que la llevas fuera por la razón que fuese?<br/>sumisión en silencio, castidad y obediencia ciega.</p>

@@ -1,0 +1,11 @@
+---
+layout: post
+title: "serie leathermen memorables colt thomas I"
+date: 2013-05-06 16:40:00 +0000
+permalink: /2013/05/serie-leathermen-memorables-colt-thomas_6.html
+tags:
+  - series
+  - leather
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/3e/25/3e2513261c9c2ae37b953c061f57b145bec694bd71c1a1f5e08c47d3eee0e765.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/72/0e/720eda8434fb6ce9f7b0d08a5ab024dcb5889d571410531ceaa564ba49425bdf.jpg" width="424" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/83/59/83593c6a12318dcd4aee9afa52a336cad4f647908e84dd344186558480b900d9.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/56/a1/56a1a7aacd1baa1d016be1044507c3bbbd3940b90135d8e120fba5ee1d0d058a.jpg" width="414" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/a9/97/a997cb6eb7abb3b4bcf49acf4fca6d34a53370c52a30f6b7f33a29e281d1174a.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="420" src="/uploads/0a/eb/0aebb482d717cdaeee576945cd6af124f83c61d74dd5b6df4cdc8d4e5d5a70a8.jpg" width="640" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/1d/1f/1d1f5788166ae299e6d3de8c0c16353cbf7ae60672b8fb0cc76f8f03be19e04c.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="424" src="/uploads/b5/9e/b59e7668c225c05f334edab9a7ef6659bc69417990153ae9f8a0efe6f17d6ae9.jpg" width="640" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/71/c1/71c162f96f731dab1bfd72381780539990afe053527b295ba2b605dd7aaecf7f.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="424" src="/uploads/21/cc/21cca2a9e344acfa7a6fea7a90712e7336991e2d8d3a6290fefb06909ffaf9cb.jpg" width="640" /></a></div>comenzamos hoy una serie con fotos de leathermen que merecen recordarse, mantenerse en la memoria y no olvidarse de ellos.

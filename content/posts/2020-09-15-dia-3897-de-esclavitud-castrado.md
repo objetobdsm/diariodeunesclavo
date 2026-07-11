@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3897 de esclavitud, castrado permanentemente"
+date: 2020-09-15 10:40:00 +0000
+permalink: /2020/09/dia-3897-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el objeto lleva 45 días sin quitarse la jaula, ni siquiera para limpiarse. se ducha todos los días, por supuesto, pero temía que no fuera suficiente. sin embargo no ha tenido ningún problema con el olor.<br />el problema ahora está en el pelo que ha crecido, y bastante. el último intento de quitarse el pelo fue con crema depilatoria. lo que ocurrió fue que, a pesar de ser cuidadoso y no dejarlo mucho tiempo, quemó un poco los genitales del objeto. era la primera vez que la usaba. intentó conseguir otra para pieles sensibles pero no la ha encontrado, por lo menos en los alrededores de donde vive.<br />le presentó al Dueño la situación y las opciones: buscar crema depilatoria para zonas sensibles, quitarse la jaula para afeitarse o dejarse la jaula como está. cree el objeto que la sola idea de quitársela por cualquier motivo desagrada al Dueño asi que el Dueño ha decidido que se quede como está. la próxima vez que está previsto que se la quita para limpiarse exclusivamente es a final de este mes, para comenzar un período de tres meses. entonces el objeto podrá rasurarse los genitales. de esta forma el objeto estará sin jaula cuatro veces al año unos minutos, cuando coincida para limpiarse cada trimestre.<br />el objeto y ano cuenta si se la quitará para correrse como hacen otros practicantes de la castidad. cuenta para poder rasurarse porque lo otro está completamente descartado.<br />el tema del pelo tiene primero una función práctica, evita que se pinche con alguna parte de la jaula. pero también tiene una función simbólica. sólo los hombres tienen pelo y los pelos son una muestra de masculinidad, de macho dominante. todo está en manos del Dueño que es el único macho en esta relación.<br />sumisión en silencio, castidad y obediencia ciega.</p>

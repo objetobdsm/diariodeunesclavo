@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3912 de esclavitud, castrado permanentemente"
+date: 2020-09-30 10:45:00 +0000
+permalink: /2020/09/dia-3912-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el objeto no sabe por qué, pero hay días en que todo se acelera, se profundiza. estás en un lugar tranquilo, y de pronto todo adquiere velocidad. hoy era el día, hoy o mañana, en que el objeto tenía que quitarse la jaula después de dos meses sin retirarla en ningún momento. además de limpiarlo y rasurarse, era el inicio de otro periodo de tres meses sin quitarla. esta idea le resultaba casi angustiosa al objeto: estar sin la jaula. estos dos meses le han demostrado que puede llevarla si se lava diariamente con agua y jabón. otro problema es el pelo que ya está crecido.<br />el objeto expuso su preocupación al Dueño que tomó una decisión. ya ni siquiera por un periodo de tres meses. la jaula quedaría ahí siempre y para siempre. la verdad es que el objeto no recuerda quien usó por primera vez esa expresión, "siempre y para siempre", pero ha quedado para indicar que es en todo momento y sin límite de tiempo. eso también significa que el objeto no pondrá bajo las botas del Dueño quitárselas nunca. no lo pedirá in lo suplicará. está ahí y ahí quedará mientras el Dueño lo decida.<br />ante la pregunta del pelo, si el Dueño prefiere que se lo depile el Dueño dijo que le gusta pensar que es molesto para el objeto y que se puede pinchar con él y dolerle. por tanto el objeto llevará la jaula siempre y para siempre, y el pelo crecerá y el objeto no se lo rasurará ni depilará.<br />todo esto ocurrió de forma inesperada y sorprendente. el objeto no lo esperaba pero mentiría si no dijera que fue a la vez excitante. era como sentir la bota del Dueño presionando para hundir al objeto más en la sumisión.<br />no conforme con esto el Dueño además aplicó el mismo criterio a las botas. haga frio o calor el objeto llevará botas siempre y para siempre. las únicas excepciones serán calor extremo o heridas en los pies. hoy el objeto es más objeto que ayer, que nunca.<br />sumisión en silencio, castidad y obediencia ciega.</p>

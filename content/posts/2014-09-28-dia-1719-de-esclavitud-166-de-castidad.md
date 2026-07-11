@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1719 de esclavitud, 166 de castidad"
+date: 2014-09-28 22:59:00 +0000
+permalink: /2014/09/dia-1719-de-esclavitud-166-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hoy el perro se despertó con dolor de huevos. no era un dolor de haberse llevado un golpe sino de tenerlos como llenos, rebosantes. en otro momento eso hubiera sido un indicativo de que tenía que masturbarse y sacarse la leche, pero eso hubiera sido en otro tiempo.<br/>el perro pasó la mañana esperando que el ligero dolor, tampoco hay que dramatizar diciendo que era un superdolor, pasara. sin embargo no lo hizo y por la tarde ya tenía al perro de los nervios. entonces hizo algo de lo que no está orgulloso. el perro suplicó permiso para usar un rato el butt-plug. en situaciones anteriores ese sistema había servido para relajar al perro sin caer en el ordeño, ni mucho menos, en masturbarse.<br/>el perro no está orgulloso porque parece una cesión, una renuncia, la búsqueda del camino fácil. el Dueño aceptó la súplica y el perro se metió el plug. fue doloros, siempre lo es porque el perro no dilata bien, pero al final vino esa sensación cuando la parte más estrecha se queda fijada y sujeta por el ano.<br/>el perro estuvo con el butt-plug un buen rato y, efectivamente, el dolor se mitigó. sentarse con él, notar como te estimula la próstata parece ser suficiente para que la ansiedad se calme. de hecho en el XIX usaban consoladores como forma de calmar a las diagnosticadas de "histeria".<br/>aún así el perro se sintió mal porque siente que debía haber soportado la tentación "a pelo" sin buscar aditivos o sustitutivos. el Dueño fue comprensivo y le pareció bien que el perro lo usara pero el sentido de la obligación y del deber del esclavo le dice que era el camino más sencillo.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3213 de esclavitud, 1185 de castidad"
+date: 2018-11-01 22:57:00 +0000
+permalink: /2018/11/dia-3213-de-esclavitud-1185-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">un día de descanso, de salir, de nuevo, con conocidos, pero sobre todo con permiso del Dueño. sin eso sería impensable siquiera. aunque parezca que el objeto sale mucho, siguiendo órdenes del Dueño, no ha suplica permiso al Dueño en muchas ocasiones. esa era la orden. el objeto no debe aceptar ninguna invitación para salir con nadie, salvo casos excepcionales. el objeto no queda con nadie salvo en ocasiones especiales y tras permiso explícito del Dueño.<br/>el objeto aún no ha podido estrenar las botas nuevas porque sigue lloviendo y el agua sí que estropea las sendras, así que, también con permiso del Dueño, el objeto sigue usando las botas de "lluvia".<br/>con respecto a esto el Dueño dijo algo que impactó a objeto. el Dueño le dijo que quería que usara aún más las botas. el objeto preguntó si no las usaba suficiente y el Dueño recordó que en verano no las usa y los fines de semana también, salvo permiso del Dueño, sobre todo por la piel del objeto, que es muy sensible y, cuando hace mucho calor, le salen rozaduras. eso entristeció al objeto porque basta que el Dueño exprese un deseo para que se convierta en una orden para el objeto. por eso, después de la adquisición de las botas de ayer, el objeto suplicará al Dueño que use las botas siempre, salvo cuando vaya a hacer deporte o cuando se haga daño por el calor. la verdad es que el objeto no era consciente de que el Dueño pensara eso, que no lo usaba suficientemente. y expresar ese pensamiento ha sido suficiente para que el objeto se sienta como si no estuviera dando lo suficiente, como si no obedeciera lo necesario.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

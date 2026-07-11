@@ -1,0 +1,10 @@
+---
+layout: post
+title: "849 días de esclavitud, 8 de castidad"
+date: 2012-05-14 22:25:00 +0000
+permalink: /2012/05/849-dias-de-esclavitud-8-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">ha hecho un calor horrible, una mala circunstancias para llevar botas, aunque este perro las ha llevado todo el día. mucho peor hubiera sido llevar cuero. irónicamente este calor me ha hecho pensar en la frialdad de una mazmorra oscura, algo que agradecería enormemente. la oscuridad frente a la luz, el frío frente al calor, la sumisión y el encierro frente a la libertad. son afirmaciones culturalmente cargadas, paradójicas, antagónicas diría incluso. la sociedad presenta una cosa, este perro desea y vive otra. por este motivo tiene que estar en cierta medida "oculto", o al menos subterráneo. si el pensamiento y el estilo de vida propugnado y expresado en este blog se generalizara, supondría un cambio social sin precedentes, que los poderosos de este mundo no estarían dispuesto a aceptar. porque a pesar de que a primera vista podría parecer que se justifica y que vendría bien al sistema opresivo en el que vivimos, la realidad es que sería justo lo contrario. ¿cómo podrían funcionar las empresas sin la constante lucha de los trabajadores por conseguir más? ¿qué podrían hacer los políticos ante ciudadanos que anteponen la autoridad de su Amo a la de ellos? las cosas no son tan simples como parecen y este perro está empezando a pensar que el bdsm encierra un germen revolucionario y transformador que puede asustar, y de hecho asusta, a los que no piensan como nosotros. por eso nos tratan de enfermos y de pervertidos. es lo que ocurre siempre en la historia cuando alguien no piensa como tú y su pensamiento te cuestiona.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo</div>

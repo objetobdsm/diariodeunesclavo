@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3424 de esclavitud, 1396 de castidad"
+date: 2019-05-31 22:43:00 +0000
+permalink: /2019/05/dia-3424-de-esclavitud-1396-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">por la mañana el objeto suplicó permiso al Dueño para quitarse la jaula el tiempo justo de afeitarse los genitales y lavarse. el principal problema es que el objeto no está circuncidado y debe ser cuidadoso con eso. el Dueño lo concedió y el objeto se afeitó los genitales. como en ocasiones anteriores fue algo humillante y sumió al objeto en un estado de cierto subspace.<br/>por la tarde el Dueño ordenó al objeto estar esposado y amordazado toda la tarde. a primera hora el objeto recibió un mensaje del Dueño, un audio donde ordenaba entrar en subspace. inmediatamente entró el objeto en ese estado y permaneció en él durante una hora.<br/>el Dueño lo sacó de él y ordenó que permaneciera toda la tarde amordazado y trabajando con las manos esposadas por delante. amordazado y atado, así debería estar el objeto permanentemente.<br/>el Dueño aprovechó la situación para meterse en la mente del objeto mediante frases, como siempre incisivas que fueron desmontando aún más al objeto. nombró el Dueño una situación que recordaba el objeto cuando el objeto estaba atado y amordazado en casa del Dueño y se rompió la anilla de la primera jaula que llevó. el anillo pinchó el escroto del objeto y no podía decir nada porque estaba amordazado mientras el dolor iba en aumento. el Dueño le dijo al objeto que recordaba ese día con especial cariño.<br/>en repuesta el objeto recordó el día en que, recién empezada la relación, rompió a llorar cuando el Dueño lo estaba torturando. ese día el objeto se rompió y fue la primera vez que sintió que había llegado definitivamente a casa.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

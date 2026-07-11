@@ -1,0 +1,10 @@
+---
+layout: post
+title: "672 días de esclavitud, 5 de castidad"
+date: 2011-11-18 23:30:00 +0000
+permalink: /2011/11/672-dias-de-esclavitud-5-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">"obediencia ciega a mis deseos, esa es la ley de esclavobotas302001". con estas palabras terminó el día de hoy. las envió mi Dueño por mensaje a última hora. para este perro desde entonces sólo existe esa ley, es una orden, un mandato, algo que se vive y se construye y que este perro va a llevar hasta sus últimas consecuencias.</div><div style="text-align: justify;">el último fin de semana este perro sufrió una crisis, debido a su mal comportamiento tuvo que ser amonestado por su AMO. fue una especie de reconducción, de reencauzar el camino del que se había desviado. hoy, después de todo lo que ha pasado, este perro considera que  es lo mejor que le podía haber sucedido. esta semana este perro ha estado más centrado en lo que es importante. noto poco a poco cómo va este esclavo dando pasos, avanzado con la guía y orientación de mi Dueño.</div><div style="text-align: justify;">este nuevo período de castidad que está comenzando este perro va a ser muy costoso. lo noto poque sólo han pasado cinco días desde el último ordeño y no dejo de estar caliente. hoy incluso he tenido varias erecciones que he tenido que controlar. aún no estoy supurando, pero no tardaré en hacerlo. tantos días separados de mi Amo está pasando factura. son muchos días sin ser atado, sin lamer sus botas, sin ser amordazado... la no vida parece ser más fuerte, pero sólo es una apariencia. confío ciegamente en mi AMO y sé que El no me soltará, ni me liberará nunca. me ha dado su palabra y este perro cree en ella.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo</div>

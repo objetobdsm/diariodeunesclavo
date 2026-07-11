@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5714 de esclavitud, castrado permanentemente"
+date: 2025-09-06 22:17:00 +0000
+permalink: /2025/09/dia-5714-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> por la mañana el objeto tuvo que hacer algunas gestiones como el mercado. luego estuvo todo el día en casa. por la tarde fue la llamada a capítulo del Amo. es una práctica comenzada hace poco en la que el objeto confiesa las faltas ante mi Señor y El enseña, castiga y da sentido a lo que está pasando y viviendo el objeto. Hoy el objeto confesó algunas cosas y mi Señor le impuso como castigo dos días sin jaula: domingo y lunes. es un castigo duro, justo y merecido. cuando el objeto lo puso en el grupo, un Amo dijo que es sorprendente que la libertad fuera un castigo y otro dijo que simbolizaba el vínculo con el Amo. esa es la paradoja del bdsm, lo que la mayoría considera libertad, es lo que los esclaviza a un inferior y aquello que lo esclaviza, "lo libera". el objeto estará dos días sin la jaula y el equilibrio se restaurará.</p><p style="text-align: justify;">sin embargo eso no fue todo. el objeto se sentía extraño, llevaba un par de días así. creía que era porque ya se está volviendo insoportable vivir entre humanos, y mi Señor lo confirmó. Él es plenamente consciente de que cada segundo que pasa teniendo que aparentar ser humano es una carga para el objeto. sin embargo aún no es posible dar el gran salto, por ahora, pero esto y ano puede vivir por sí mismo, sin el control de mi Señor. hace quince años que el objeto es de su propiedad y ya no hay otra salida, otra forma de existir. por la mañana se produjo un ejemplo de esto. normalmente cada día mi Señor preguntaba a su objeto como va. hoy le dijo :"Hoy te vas a sentir bien, sin preocupaciones y sin problemas", y así fue durante todo el día. su control es cada vez mayor y no tiene rival.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega</p>

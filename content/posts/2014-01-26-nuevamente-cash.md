@@ -1,0 +1,10 @@
+---
+layout: post
+title: "nuevamente cash"
+date: 2014-01-26 16:27:00 +0000
+permalink: /2014/01/nuevamente-cash.html
+tags:
+  - cash
+---
+
+<p style="text-align:justify;">hace algún tiempo, el Amo Criscosm, envió un comentario sobre la dominación cash, una forma de control económico que el perro publicó como entrada (<a href="http://diariodeunesclavo.net/?p=4707">pincha aquí para leerla</a>).</p><br/><p style="text-align:justify;">hoy ha dejado un nuevo comentario donde, además, hace una pregunta que puede interesar a Amos y esclavos. por lo que el perro se ha decidido a publicarlo, nuevamente, como entrada.</p><br/><p style="text-align:justify;">aprovecha el perro la ocasión para decir lo mucho que agradece estas intervenciones, porque dan sentido al trabajo de mantener el blog día a día.</p><br/><p style="text-align:justify;">el Amo Criscosm dice:</p><br/><p style="text-align:justify;">"<em>muchas gracias por publicar mi comentario. Aprovecho la ocasión para invitar a aquellos amos cash o pareja de amo y esclavo que tenga el cash como una de sus prácticas, que compartiesen alguna experiencia. Supongo que muchos Amos, sean cash o no, a veces sienten que les falta imaginación a la hora de experimentar con su/sus esclavos y leer o recibir experiencias diferentes a las cotidianas vienen muy bien para incluirlas dentro de sus prácticas.</em></p><br/><p style="text-align:justify;"><em>Mi esclavo va a comenzar a justificarme semanalmente todos los gastos de su cuenta (porque está a su nombre) aunque en realidad es mía porque soy yo quién controlo y decido. A partir de ahí, he decidido administrar dichos gastos, ofreciendo al esclavo una cantidad semanal, una vez analizado los gastos fijos, para que el disfrute. todo el sobrante únicamente se usará cuando yo lo ordene. Podéis imaginar mayor sensación de poder por mi parte y de sumisión por parte del esclavo cuando cuando soy yo quién controlo todos sus ingresos, los que gana dia a dia con el sudor de su frente y que además me tiene que rendir cuentas de todas las operaciones que realice?</em></p><br/><em>Saludos criscosm"</em>

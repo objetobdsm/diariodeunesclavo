@@ -1,0 +1,10 @@
+---
+layout: post
+title: "minirelato CLXVIII"
+date: 2013-03-30 19:44:00 +0000
+permalink: /2013/03/minirelato-clxviii.html
+tags:
+  - mini-relatos
+---
+
+<br /><div style="text-align: justify;"><i>varios medios esclavos no hacen un esclavo entero pero varios minirelatos sí hacen un gran relato.</i></div><div style="text-align: justify;"><br /></div><div style="text-align: justify;">lo intentó de nuevo, pero sólo pudo tensar algunos músculos. habían sacado todo el aire y el latex se había pegado a su cuerpo como una segunda piel. sólo el tubo insertado en la mordaza le permitía respirar en la oscuridad. notaba el buttplu en su culo. cuando empezaron las descargas, sus músculos se tensaron sin control, pero aún sin poder moverse. a los diez minutos empezó a llorar desesperado.</div><div style="text-align: justify;"><br /></div><div style="text-align: justify;">cuando la bomba teminó de aspirar el aire, su cuerpo perfectamente formado fue visible. tenía envidia de que alguien estuviera tan bien, y de que ahora estuviera así encerrado. su Amo se había negado a que fuera él el cubierto en latex, y si no fuera por la correa que llevaba en la mano, se lanzaría sobre su hermano esclavo para lamerlo.</div><div style="text-align: justify;"><br /></div><div style="text-align: justify;">ver al esclavo convulsionarse por la electricidad le empalmó, con sus músculos tensos bajo la goma. pensó que estaría bien taparle el tubo por el que respiraba un rato, a ver lo que pasaba. pero no podía hacerlo, no era su esclavo. apretó un poco la correa que tenía en la mano y se fijó en su propio sumiso. estaba babeando ante el espectáculo. ya se enteraría cuando llegara a casa.</div><div style="text-align: justify;"><br /></div><div style="text-align: justify;">estaba siendo todo un éxito. habían venido Amos, esclavos, fetichistas y lederones de todas partes. estaban disfrutando con el espectáculo. hoy harían una buena caja. por un momento su pensamiento se fue hacia su esclavo, sellado en latex en aquel momento y recibiendo descargas eléctricas. tal vez lo estuviera pasando mal pero sólo habían pasado diez minutos, aún le quedaban otros quince.</div>

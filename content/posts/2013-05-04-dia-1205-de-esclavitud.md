@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1205 de esclavitud"
+date: 2013-05-04 21:04:00 +0000
+permalink: /2013/05/dia-1205-de-esclavitud.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">38 días de castidad, 38 días desde el último ordeño.</div><div style="text-align: justify;">¿cómo sabe uno que está hecho para algo? porque lo prueba y le gusta, porque lo hace y se siente feliz. eso le ha pasado al perro hoy. ha estado encerrado en casa, sin salir, prácticamente sin hablar con nadie y ha sido increíble. después de una semana de estrés y nerviosismo, ha vuelto la tranquilidad. la soledad, el silencio.... todo eso ha producido un efecto inmediato en el perro. aún hubo algún intento de ansiedad, de necesidad de salir, pero no fue sino un intento del ego de descentrar al perro. nadie dice que será fácil, pero son días como estos los que hacen pensar al perro que la vida que plantea el Dueño: encierro con salidas esporádicas cuando El ordenase, no sería en absoluto una mala vida para el perro. el encierro y la soledad, existir en las condiciones que el Dueño establezca, no parecen malas opciones, al contrario, son cosas deseables para el perro, las añora y espera. </div><div style="text-align: justify;">siguiendo su rutina, el perro se ha afeitado hoy los genitales. al usar permanentemente la jaula, tenerlos afeitados ayuda muchísimo a llevarla. así se evitan pinzamientos innecesarios y tirones de pelo inútiles. cada día empieza realmente cuando el perro cierra el candado después de haberse aseado y duchado por la mañana. hasta ese momento es como si viviese en un sueño todavía. cuando se coloca la jaula y la cierra todo cobra sentido de nuevo. vuelve a ser él, vuelve a ser un perro esclavo, propiedad de su Dueño. el trabajo del perro estos días y las próximas semanas será aceptar que esto es así y que no hay marcha atrás</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo</div>

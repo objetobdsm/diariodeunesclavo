@@ -1,0 +1,10 @@
+---
+layout: post
+title: "comic circle, by osze"
+date: 2013-07-28 10:07:00 +0000
+permalink: /2013/07/comic-circle-by-osze.html
+tags:
+  - comics
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/7b/61/7b61a9336708fca462f124690df365cf6a383f170933b2a124861e6a593c0d03.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/41/35/4135ce459d34001574ccd660ff30f571fd9953fb2dbcff7f9988ce4f60c133c9.jpg" width="444" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/c8/de/c8de57c47a89cffa81f746ee6c011a9b9236182af5c39a1c5ef15aec77f7cd32.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/e5/da/e5dacd0ff6edae827cf2a97bf8dd72c3985db94e85904ff1c18437023c90662a.jpg" width="440" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/a0/13/a013394c648b23e09bd62727e1d27a5ef8e809d786e107f9f2441571b96a79c1.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/b4/96/b496e0c49778a3250af67c088781bfea3b3e6f676eaaa3d0633e7bd2004066ed.jpg" width="434" /></a></div><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/e7/0d/e70dab2de9fe6bccbce9bb05bb3e92fad1fd65f79980835c4b20c6f47266d41c.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/ac/32/ac32fef95addc0aa801eb0491da48df6ad00202015ab46a48411db1a3a600c13.jpg" width="440" /></a></div>la verdad es que el perro no conoce mucho a este dibujante, pero cree que esta serie de ilustraciones es genial. si quieres descargar todas las imágenes,<a href="https://dl.dropboxusercontent.com/u/39613625/circle%20by%20ozce.rar" target="_blank"> pincha aquí.</a>

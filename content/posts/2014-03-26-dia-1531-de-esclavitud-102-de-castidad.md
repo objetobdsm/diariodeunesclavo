@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1531 de esclavitud, 102 de castidad"
+date: 2014-03-26 22:49:00 +0000
+permalink: /2014/03/dia-1531-de-esclavitud-102-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">a pesar de todo lo que está pasando, del exceso de trabajo y del cansancio, lo cierto es que el perro nota que la etapa de bajona está terminando. lo siente porque está más tranquilo, más esperanzado, con más ganas de trabajar.... tal y como el perro esperaba, la ciclotimia vuelve a hacer de las suyas. es cierto que aún está despistado, como descentrado, pero su estado anímico es mejor.<br/>hoy ha vuelto a llevarse otra decepción con dos personas que suponía eran "cercanas". en el último enfrentamiento no tomaron partido, ni siquiera han mencionado el tema, a pesar de ser tremendamente injusto y gratuíto. ¿la razón? la conveniencia, el no perder determinados privilegios. el perro puede llegar a entender su comportamiento, pero eso las aleja de su horizonte vital, de su confianza. al final el perro se está dando cuenta de que son muy pocas las personas en las que puede confiar, aquellas que se pueden contar con una mano, si eres afortunado puedes añadir algunos dedos de la otra, pero poco más.<br/>ante esta perspectiva vuelve a tomar fuerza la idea del silencio y el aislamiento, de vivir encadenado y encerrado haciendo trabajo intelectual, pensando, leyendo y escribiendo. son tareas para las que no hace falta salir, ni hablar, ni relacionarte, salvo con el Dueño.<br/>de hecho el perro echa de menos estar en silencio durante días, imposibilitado de hablar. a su mente viene la libreta que su Dueño pone a su lado cuando llega a madrid para poder amordazarlo y que no sea necesario la palabra para decir nada. eso introduce al perro en un estado mental de sumisión, un subspace muy particular que le da paz y tranquilidad. espera poder estar pronto en ese estado.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

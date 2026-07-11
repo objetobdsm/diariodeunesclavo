@@ -1,0 +1,12 @@
+---
+layout: post
+title: "3 día de castigo, 12 sin ordeñarse."
+date: 2011-04-22 22:25:00 +0000
+permalink: /2011/04/3-dia-de-castigo-12-sin-ordenarse.html
+tags:
+  - personal
+  - castigo
+  - castidad
+---
+
+<div style="text-align: justify;">este esclavo ya ha pasado su tercer día. es cierto que por la mañana me senti más nervioso y excitado de lo normal ¿hay normalidad en esto?, pero he podido mantenerme estable. al mediodía fui al baño, y noté que supuraba. cuando estoy mucho tiempo sin ordeñarme (así es como mi AMO quiere que llame a la masturbación), tras orinar, me sale un líquido algo más espeso. es un indicativo de que estoy lleno y necesito descargar. como no lo hago voluntariamente, el cuerpo lo hace por mi. en otras ocasiones, no por castigo sino porque mi AMO no me ordenaba ordeñarme, buscaba en este punto información sobre el masaje prostático, una forma de vaciarse sin tener orgasmo, estimulando la próstata. pregunté a mi AMO si hacerlo constituiría una falta del castigo y me dijo que no, es más, me ordenó que lo hiciera. durante la tarde no he podido por motivos personales. intentaré hacerlo mañana, a ver como sale, porque nunca lo he intentado.</div><div style="text-align: justify;">al estar de vacaciones por la semana santa tengo mucho tiempo para pensar y para navegar por internet viendo fotos o videos que no hacen sino complicar bastante la situación. aún así persevero. esta mañana hablé con mi AMO y estuve despierto y lúcido, agradeciendo al universo que me permita servirle y ser de su propiedad, pertenecerle, someterme a sus deseos. agradezco que sea El quien controle mi vida y me haga un ser mejor, sencillamente llevándome hacia donde debería haber estado siempre, en un estado de esclavitud y sumisión. </div><div style="text-align: justify;">esta mañana también me he dado cuenta de la fuerza de las redes sociales porque ya he empezado a recibir alguna muestra de apoyo y no fue hasta entonces que caí en la cuenta de lo público que está siendo esto y que acabará teniendo una repercusión psicológica, porque este esclavo está abriendo su intimidad a todo aquel que quiera leerla. en cierta medida la estoy perdiendo. era algo buscado y esperado, pero no por eso menos impactante para su psicología. el objetivo inmediato es aguantar un día más, a largo plazo el objetivo es castigar y aplacar a mi ego, hacerlo desaparecer para que no vuelva a interferir en mi vida como esclavo. espero poder conseguirlo, con la ayuda de mi AMO.</div>

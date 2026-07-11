@@ -1,0 +1,10 @@
+---
+layout: post
+title: "806 días de esclavitud, 7 de castidad"
+date: 2012-03-31 22:30:00 +0000
+permalink: /2012/03/806-dias-de-esclavitud-7-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">a los gays nos aplican ciertos clichés, cierto estereotipos que se convierten en modelos culturales, como que somos sensibles, delicados, débiles.... me gustaría ver a algún hetero atado a una cruz recibiendo una buena tunda de latigazos o soportando unas buenas pinzas en los pezones durante un buen rato. en el bdsm luchamos contra la debilidad, porque buscamos hacernos fuertes, llegando más allá de donde otro llegan, buscando el límite, tanto corporal como físicamente. ahí está nuestra fortaleza, en ser capaces de soportar, en entrenarnos para soportar lo que venga. lamer las botas de nuestros Amos nos ayuda a soportar cualquier pisotón, besar el látigo que nos toca la piel ayuda a afrontar los reveses de la vida, el subspace integra las emociones y las canaliza. el bdsm, para este perro implica crecimiento, mejora. es la terapia más efectiva que existe, porque te obliga a enfrentarte contigo mismo, a conocerte. atado y amordazado no tienes donde huir y sólo puedes quedarte a solas contigo. es el momento entonces de aclarar las cosas, de poner las cartas sobre la mesa y ser sincero. </div><div style="text-align: justify;">hoy mi Dueño me ha encargado que le baje unos videos de internet y este perro ha pasado casi dos horas haciéndolo porque hay que renombrarlos uno a uno y porque son grandes y tardan en bajarse. pero a la vez este esclavo ha sentido la satisfacción de obedecer, de ser útil, de prestar un servicio a su Amo. esta idea tampoco le desagrada a este perro, ser el asistente, el secretario o ayudante de su Amo en la vida. es superponer ambos roles: esclavo y asistente. a El le saldría mucho más barato y este perro unificaría su vida con su no-vida.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

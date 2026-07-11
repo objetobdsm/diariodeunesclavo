@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2977 de esclavitud, 949 de castidad"
+date: 2018-03-10 22:53:00 +0000
+permalink: /2018/03/dia-2977-de-esclavitud-949-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el objeto ha sido castigado hoy. la razón no era otra que no haber sido diligente al cumplir una orden sencilla: bajar unos videos de internet. el castigo consistió en cambiar hoy la jaula de plástico por la de metal, mucho más pequeña y pesada. fue un auténtico castigo porque hasta ir al baño se convirtió en un problema. al ser tan pequeña la jaula, cuando el objeto iba al baño a orinar, la orina salía por los lados porque el único agujero que tiene no es suficiente.<br/>el peso también fue un problema. durante la tarde los genitales del objeto empezaron a molestar, a doler realmente. el objeto estaba casi presente permanentemente. el objeto lo compartió con el grupo de Amos&esclavos, lo que hizo en cierta medida el castigo público.<br/>el objeto, saltándose un poco la norma del Dueño, intentó moverla y tocarse casi más para ver qué ocurría que el hecho de buscar excitación o mucho más lejos, correrse. el hecho fue que no consiguió nada. después de más de dos meses sin sacarse la leche, el objeto fue incapaz de estimular lo que el Dueño ha ordenado que llame "apéndice". incluso la palabra pene o polla no tienen sentido cuando se habla de lo que tiene el objeto entre las piernas.<br/>por supuesto el objeto le comunicó al Dueño lo que había descubierto y su sentencia fue tajante "Ya estás efectivamente castrado", y anuló el calendario bimensual que había establecido para que el objeto se sacara la leche como medida de salud de forma preventiva. la cuestión es que, más que una orden, el objeto lo vive como un regalo. el último intento de sacarse la leche fue infructuoso y repulsivo, repugnante. al eliminar el orgasmo, algo que el objeto no siente desde hace más de dos años, eyacular se vuelve una asquerosidad que no aporta nada. por eso el objeto agradeció que no tuviera que hacerlo de nuevo, al menos voluntariamente.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1055 dias de esclavitud, 6 de castidad"
+date: 2012-12-05 22:48:00 +0000
+permalink: /2012/12/1055-dias-de-esclavitud-6-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">casi una semana de castidad y este perro casi no lo nota. el cuerpo del perro se está acostumbrando a estar largos periodos sin ordeñarse. eso hubiera sido imposible hace unos meses. ya ha comentado el perro su "necesidad" de masturbarse o de tener sexo cada dos o tres días, a veces dos o tres veces por día. era una situación completamente descontrolada, que no está mal, si a tu Amo no le importa, pero el Dueño quería control, quiere control, y control absoluto. y eso sólo se consigue si controlas la sexualidad de tu esclavo. lo curioso es que las últimas veces que este perro se ha ordeñado por orden del Amo, incluso con la intención explícita de relajar al perro y que disfrutara, como una forma de premiarlo, no ha sido eso de "wow" o "vaya". parece como si hubieran implantado un chip de forma que eso fuera exclusivamente una función fisiológica, nada más. el truco de la castidad, la clave, es que el propio Amo se vuelve la fuente del placer, no lo que hagas con tu cuerpo. es su placer el que te da placer a ti. eyacular se convierte en nada frente a un "buen perro" o un "estoy orgulloso de ti". para un perro esclavo, el auténtico orgasmo es la satisfacción del Amo. de hecho ahora cobra mucho sentido cuando he tenido sesiones con otros, antes de ser propiedad del Dueño, y por alguna razón no podía correrme, lo importante era que el Amo si lo hiciera, que el obtuviera placer. supongo que es un indicativo más de que este esclavo siempre ha sido un esclavo.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

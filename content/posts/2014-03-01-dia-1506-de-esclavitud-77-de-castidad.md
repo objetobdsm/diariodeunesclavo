@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1506 de esclavitud, 77 de castidad"
+date: 2014-03-01 22:48:00 +0000
+permalink: /2014/03/dia-1506-de-esclavitud-77-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hoy el perro ha recogido el libro que el Dueño le ha enviado, la última novela de tagame. los dibujos son tan buenos como siempre, sin embargo el tema de la novela gráfica no tiene ni mucho bondage ni mucho bdsm. parece más una historia gay "vanilla".<br/>durante todo el día el perro llevó la jaula de metal. se confirma lo que intuyó la semana pasada, que es más cómoda pero también más pesada que la de plástico. el perro cree que no tendría ningún problema en llevarla permanentemente tras el gran salto. aún así hoy el perro se pilló los genitales debido a algún movimiento extraño. el aro tiene una especie de visagra que, si no se tiene cuidado, puede darte alguna sorpresa.<br/>hoy ha sido el día de compra del mes y, como está lloviznando y amenaza lluvia, el perro suplicó al Dueño permiso para ir sin las sendras. el motivo es que éstas resbalan sobre suelo mojado. el Dueño, que es plenamente consciente de esto porque es usuario de sendras desde la adolescencia, no sólo dio permiso sino que estableció que cuando eso pasara, ni siquiera le pidiera permiso, sino que lo hiciera.<br/>hoy también ha sido un día de llamada de atención. el Dueño le ha dicho al perro que lo nota despistado, descentrado. y que no cumplía con sus obligaciones. el perro se sorprendió porque, aunque es cierto que parece que la no-vida le está absorbiendo mucho, tampoco tenía conciencia de eso. como la palabra del Dueño es la única ley del perro, éste se ha puesto a considerar en qué ha fallado para ponerle remedio.<br/>emocionalmente esto afectó mucho al perro porque, bajo ningún concepto el perro quiere, desea o piensa remotamente, en ofende al Dueño, sino servirle y someterse a su voluntad.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

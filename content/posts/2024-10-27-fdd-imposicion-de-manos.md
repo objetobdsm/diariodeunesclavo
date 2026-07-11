@@ -1,0 +1,8 @@
+---
+layout: post
+title: "FdD imposición de manos"
+date: 2024-10-27 08:11:00 +0000
+permalink: /2024/10/fdd-imposicion-de-manos.html
+---
+
+<p> </p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/04/5e/045e7ab2f305a824850ba283de8417dcde4d62f40670d383c7310006cb36deef.jpeg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="1042" data-original-width="1080" height="617" src="/uploads/65/c7/65c741dbca11dfb6736b86222a9bca06d259beba93662a048565086707e00fd4.jpg" width="640" /></a></div><p></p><p style="text-align: justify;">en muchas culturas hay rituales donde la imposición de manos ocupa un lugar prominente. significa básicamente la transmisión de algo, normalmente del poder. en occidente, cuando se consagra un obispo o cuando se ordena un cura hay una ceremonia de imposición de manos, que representa el traspaso del espíritu santo de uno a otro. en el bdsm también existe ese ritual pero tiene un sentido diferente. aquí es la confirmación del poder de uno sobre otro, el establecimiento de la jerarquía, el asentamiento de la desigualdad. "No eres igual a mi", dice el Amo que pone las manos. "no soy igual que Él", siente el esclavo cuando se la ponen. se parece más a la caricia que damos a una mascota que a una ceremonia de transmisión de algo, sobre todo porque el esclavo permanece allí, no se levanta, como el obispo consagrado o el cura ordenado. a partir de ese momento el esclavo siempre estará ahí, por debajo de su Amo, a un nivel inferior. es algo que se puede hacer muchas veces y nunca pierde su poder, su efectividad, su capacidad de renovar la relación de Dominación/sumisión</p>

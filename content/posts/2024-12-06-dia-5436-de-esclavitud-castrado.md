@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5436 de esclavitud, castrado permanentemente"
+date: 2024-12-06 23:06:00 +0000
+permalink: /2024/12/dia-5436-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> hoy es fiesta nacional así que el objeto no ha ido a trabajar. ha aprovechado para ponerse al día en las entradas que tenía pendientes y se las ha enviado a mi Señor y luego las ha publicado en el blog. también quería publicarlas en la página pero se ha encontrado con que wordpress ha complicado aún más la publicación. el motivo es que el plan que tiene el objeto es gratuito y las mejores herramientas que facilitan todo el trabajo son de pago. eso ha "molestado" al objeto porque es como si le obligaran a hacer algo que no quiere. además solo le obliga mi Señor, nadie más. lo puso bajo sus botas y estuvo casi todo el día buscando una solución. la cuestión es que cada vez siente que la censura es mayor y que nos están arrinconando. el objeto recuerda cuando internet era "libre" y podías publicar casi cualquier cosa en cualquier sitio. ahora todo pasa por pagar, por no poner contenido incómodo etc. visto lo visto, el hecho de tener que iniciar sesión en blogger para poder ver el blog, razón por la que se marchó de allí, le parece un mal menor. además es mucho más sencillo publicar allí pero el tema es que es la comunidad de telegram la que parece estar más viva. el objeto se sorprende de lo que aportan los que allí están y de que tenga ya 43 miembros.</p><p style="text-align: justify;">el objeto cree que lo más práctico será continuar con la comunidad y regresar a blogger, aunque haya que iniciar sesión. otras alternativas eran www.bdsmlr.com o www.tumblr.com o www.tumbex.com pero en todos hay que iniciar sesión igual, y al menos en blogger ya está la mayor parte del blog.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

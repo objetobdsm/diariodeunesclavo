@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD pieles"
+date: 2012-05-21 06:56:00 +0000
+permalink: /2012/05/fdd-pieles.html
+tags:
+  - leather
+  - FdD
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/7d/22/7d22d8b5d1107ddab7efb7dc28beb156bc776f7920a3ac7eb3342bf91609e7f4.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="480" src="/uploads/7d/22/7d22d8b5d1107ddab7efb7dc28beb156bc776f7920a3ac7eb3342bf91609e7f4.jpg" width="640" /></a></div><br /><div style="text-align: justify;">el cuero es como una segunda piel, no sólo porque se pega a la primera y es suave como ésta sino porque produce a veces el mismo efecto. en este perro la sensación de llevar cuero o de estar completamente desnudo, es la misma. delante de mi AMo, incluso completamente de cuero, es como si no llevara nada, como si estuviera tal y como llegó al mundo. por eso no hay distinción entre servir a mi Dueño completamente en cueros o sin nada encima. el efecto no es sólo físico, sino también psicológico, como si pudiera leer en el interior de este perro. desnudarse delante de alguien, físicamente, es un acto íntimo, muy íntimo. la persona que tienes delante puede ver tu cuerpo, con sus virtudes y sus defectos. no hay ningún sitio donde esconderse. ve tu exceso de grasa, tus cicatrices, las marcas que te identifican: pecas, lunares, etc. no hay nada que puedas esconder, nada donde meterse. por eso la reacción primera es taparse los genitales, el lugar más íntimo del cuerpo. </div><div style="text-align: justify;">un esclavo no tiene intimidad ante su Dueño, le pertenece y debe estar desnudo delante suya. debe desvelar todo, hasta lo más íntimo y personal. </div><div style="text-align: justify;">el cuero en este esclavo produce ese efecto, es como si desvelara lo más profundo de su ser. aparentemente está vestido, pero se siente desnudo. para otros se cubre, para su Amo se destapa. por eso mi Dueño dice que me quiere convertir en un objeto cubierto de cuero, porque cuando lo llevo puesto podemos salir o estar en un lugar público y para el resto cumplo con las normas y protocolos sociales, pero mi Amo sabe que ante El estoy desnudo e indefenso, como una segunda piel.</div>

@@ -1,0 +1,14 @@
+---
+layout: post
+title: "pride de gengoroh tagame"
+date: 2009-11-08 12:06:00 +0000
+permalink: /2009/11/pride-de-gengoroh-tagame.html
+tags:
+  - imagenes
+  - tagame
+  - comics
+---
+
+<div style="text-align: justify;">algunas veces el <span class="blsp-spelling-error" id="SPELLING_ERROR_0">comic</span> es la mejor forma de expresar situaciones imaginadas o reales. la tinta se convierte en un vehículo para dar a conocer ideas, sentimientos, situaciones y emociones. el ejemplo más claro es este que presento a continuación: <span class="blsp-spelling-error" id="SPELLING_ERROR_1">Gengoroh</span> <span class="blsp-spelling-error" id="SPELLING_ERROR_2">Tagame</span>. aquí les dejo una de sus novelas gráficas. lo genial es que está en japonés, pero se entiende <span class="blsp-spelling-error" id="SPELLING_ERROR_3">perfectamente</span> porque las imágenes son <span class="blsp-spelling-error" id="SPELLING_ERROR_4">suficientemente</span> explícitas. merece la pena y quería compartirlo con ustedes. sólo hay que apretar el enlace y descargar las fotos. si se tiene instalado <span class="blsp-spelling-error" id="SPELLING_ERROR_5">picasa</span> se puede descargar el <span class="blsp-spelling-corrected" id="SPELLING_ERROR_6">álbum</span> completo. si no me temo que habrá que ir foto a foto. creo que tengo la colección casi completa de <span class="blsp-spelling-error" id="SPELLING_ERROR_7">tagame</span>. si les gusta podría colgar más. un saludo. </div><div><br />
+</div><div><span class="Apple-style-span" style="font-family: Arial;"><span class="Apple-style-span" style="border-collapse: collapse; white-space: pre;"><a href="http://db.tt/9ZFmgPp"><span class="blsp-spelling-error" id="SPELLING_ERROR_8"><span class="Apple-style-span" style="font-size: medium;">Pride</span></span><span class="Apple-style-span" style="font-size: medium;"> 1</span></a></span></span><br />
+<div><span class="Apple-style-span" style="font-family: Arial;"><span class="Apple-style-span" style="border-collapse: collapse; white-space: pre;"><a href="http://db.tt/Tripgjr"><span class="Apple-style-span"><span class="blsp-spelling-error" id="SPELLING_ERROR_9"><span class="Apple-style-span" style="font-size: medium;">Pride</span></span><span class="Apple-style-span" style="font-size: medium;"> 2</span></span></a></span></span></div><div><span class="Apple-style-span" style="font-family: Arial;"><span class="Apple-style-span" style="border-collapse: collapse; white-space: pre;"><a href="http://db.tt/L8EXt4P"><span class="Apple-style-span"><span class="blsp-spelling-error" id="SPELLING_ERROR_10"><span class="Apple-style-span" style="font-size: medium;">Pride</span></span><span class="Apple-style-span" style="font-size: medium;"> 3</span></span></a></span></span></div></div>

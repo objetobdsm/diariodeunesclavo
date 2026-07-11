@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2575 de esclavitud, 539 de castidad"
+date: 2017-01-25 22:52:00 +0000
+permalink: /2017/01/dia-2575-de-esclavitud-539-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">los cambios de los que viene hablando 402 desde hace unos días parecen ir muy rápido, demasiado rápido debe decir, lo que le hace pensar que estaba todo calculado y pensado por instancias superiores. a muchos compañeros parece incomodarle eso, pero 402 se sorprende de que eso ocurra. cree que el motivo es que ellos todavía piensan que viven en un mundo igualitario donde los de abajo merecen algún tipo de respeto o consideración, cuando lo que ocurre realmente es que los poderosos, los que están arriba, quieren hacer su voluntad sin que le pongas problemas y para ello hacen creer que las decisiones las tomas tú, cuando te han obligado de una forma o de otra a tomarlas. este objeto, por vivir en una relación de Dominación/sumisión, es consciente, tal vez más que el resto, de las relaciones de poder y de las diferentes formas de ejercerlo. y efectivamente pude afirmar que todo este proceso en el que está inmerso el ámbito laboral de 402, estaba pensado y calculado. este objeto lo acepta, porque el Dueño ha dado su aprobación a que así sea. sabe que por ahora es un mal necesario. al menos en el bdsm no nos engañamos y cuando se ejerce el poder, se ejerce, y todas las partes lo saben. pero la gran diferencia entre el bdsm y el mundo vanilla es que en el primero ese ejercicio es aceptado y asumido, mientras que en el otros se ejerce haciéndote creer que eres libre, lo cual constituye la mayor esclavitud. es irónico pensar que un inferior, que es propiedad de un Amo, pueda realmente ser más libre que aquellos que viven su vida pensando que lo son.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

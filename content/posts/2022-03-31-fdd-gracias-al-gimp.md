@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD gracias al gimp"
+date: 2022-03-31 19:57:00 +0000
+permalink: /2022/03/fdd-gracias-al-gimp.html
+tags:
+  - gimp
+  - FdD
+  - latex
+---
+
+<div dir="ltr"><div></div><div style="text-align: center;"><a href="/uploads/4f/e4/4fe49f0fa79fb4b2ddd07801fe288e70209572c791ba74dc099496f2387f8171.jpg"><img alt="" border="0" height="622" id="BLOGGER_PHOTO_ID_7082469143989862130" src="/uploads/db/94/db94f48b8e58ba35e45a760b68697abbddcc92d09b1fc349122058065f9fd1a9.jpg" width="640" /></a><br /></div><div style="text-align: justify;">cuando el objeto comenzó su viaje por el bdsm de forma consciente, la figura del gimp aún no se había conformado. no se conocía el término. no se usaba, y por supuesto no había entrado en la lista de los fetiches que se ofrecían en los anuncios. algo parecido ocurría con los dispositivos de castidad, las jaulas para varones. es algo relativamente nuevo. hacer estar afirmación significa que el objeto admite que está teniendo ya cierta edad. desde luego no es un milenial, pero da gracias a poder haber vivido la aparición de esta nueva criatura que es el gimp. y no por otra cosa sino porque es la que mejor expresa la deshumanización y la despersonalización que implica ser un objeto. gimp y objeto son términos prácticamente intercambiables, aunque en el bdsm el objeto también puede entenderse como un sumiso que es usado, por ejemplo, como mueble: una mesa o una lámpara que el Amo usa con fines decorativos, por ejemplo. también existe un paralelismo entre la aparición del gimp y el desarrollo de el latex. el primer gimp que aparece en los medios mainstreem fue esa figura que sale en la escena sadomasoquista de pulp fiction. de hecho parece que ahí está el origen del uso de la palabra en el contexto del que hablamos. ese gimp estaba cubierto de latex, de cabeza a los pies. sin embargo a partir de ahí la conceptualización cambió y ahora se concibe como algo cubierto de goma. una de sus características principales es el hecho de llevar capucha, con lo cual pierde su identidad, y que suele estar amordazado, en silencio, con lo cual pierde su pensamiento. el objeto se siente un gimp, le gustaría vestir siempre como un gimp, ser tratado como un gimp, y da gracias por poder vivir en un mundo donde esta figura está presente y es posible.</div></div>  

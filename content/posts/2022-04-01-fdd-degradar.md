@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD degradar"
+date: 2022-04-01 19:58:00 +0000
+permalink: /2022/04/fdd-degradar.html
+tags:
+  - FdD
+  - sumision
+  - castidad
+---
+
+<div dir="ltr"><div></div><div style="text-align: center;"><a href="/uploads/a7/69/a76922a06b99484be019310faee81838ce3ddb67b180f8de01deb6230cc30045.jpg"><img alt="" border="0" height="640" id="BLOGGER_PHOTO_ID_7082469502497231794" src="/uploads/19/e7/19e72d94f2891600a5a1ea07fc6660199c875ef221a0774914cd5fdf0fa9c824.jpg" width="480" /></a></div><div style="text-align: justify;">degradar es rebajar la posición de alguien en una jerarquía, pero también rebajar la dignidad moral de una persona o la categoría moral de una cosa. en ambos sentidos este verbo puede aplicarse a cualquier inferior. la base profunda del bdsm es la creencia de que todo está organizado según una jerarquía. que hay niveles y que esos niveles están graduados de más a menos. encima de todo están los Amos, los Dominantes, los Superiores... incluso ellos organizados jerárquicamente. debajo están los inferiores, también con su propia jerarquía, de forma que todo constituye un todo organizado, estructurado, seguro, normativizado. en el lugar más bajo de la escala estarían los objetos con apariencia humana, aquellos seres que han perdido sus derechos y que no tienen dignidad, con los que no se debe tener consideración, porque no esperan ninguna, no necesitan ninguna. de hecho sufren cuando alguien es considerado con ellos porque saben, sabemos, que no lo merecemos. a este nivel los objeto somos conscientes de que hasta los animales con forma humana: perros y ponys mayormente, son superiores a nosotros. la degradación no es algo negativo a este nivel. es nuestra forma de vida, aquello que nos alimenta. es como un punto más allá de la humillación y cuando no está presente, produce sufrimiento porque el objeto no entiende cómo pueden tratarlo como algo con derechos, valor o incluso dignidad. muchos Amos no llegan a comprende esto pero es la base de nuestra existencia. no es común encontrarse a un objeto, y mucho menos crearlo a partir de un sumiso, pero cuando ocurre puede convertirse en la propiedad más valiosa, precisamente por su rareza.</div></div>  

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5573 de esclavitud, castrado permanentemente"
+date: 2025-04-18 22:58:00 +0000
+permalink: /2025/04/dia-5573-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> mi Señor ordenó al objeto que usara el blog y que volcara allí todo su ser, que abriera su alma. esto es muy complicado de hacer no solo porque el ego es el principal impedimento para que ocurra sino que dar forma, poner nombre a lo que uno vive no siempre es fácil, y a veces es muy complicado. esta semana el objeto ha estado muy encerrado y muy centrado en sí mismo, hablando lo estrictamente necesario, la imprescindible y, según mi Señor, eso ha tenido un efecto en el objeto. no sabe si es el nuevo trabajo, ya no tan nuevo porque el objeto lleva en él como siete meses ya; o la propia evolución del objeto pero el hecho es que hoy la ataraxia ha sido especialmente intensa, y con ella un estado de subspace que el objeto no recuerda haber alcanzado nunca anteriormente. habló el objeto varias veces con mi Señor y en todas la conexión entre los dos fue como si estuviéramos frente a frente, uno al lado del otro, hablando directamente. y a cada palabra de mi Amo y Señor más profundamente caía el objeto. más profunda era la sumisión y más intenso el subspace. mi Señor no hacía más que repetir que eso era lo que quería de un objeto, lo que siempre había querido y para lo que había hecho a su objeto de esa manera y que el control aún iba a ser mayor que como habría sido hasta ahora. todo fluía y el objeto solo sabía que no tenía ninguna barrera, ningún filtro con mi Amo y Señor. si el Amo le hubiera ordenado que se tirase por una ventana, se habría tirado sin dudarlo. es una sensación que ha tenido antes, pero nunca tan intensa, nunca tan fuerte, nunca tan potente. hoy ha sido muy especial.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

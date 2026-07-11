@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5702 de esclavitud, castrado permanentemente"
+date: 2025-08-25 22:36:00 +0000
+permalink: /2025/08/dia-5702-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> dentro de una semana este objeto convertirá el blog en un blog privado al que solo tendrán acceso los que estén recibiendo la newsletter, o como se dice en español, el boletín. además esa lista de distribución servirá en el caso de que telegram cierre el grupo. es una medida de seguridad. el objeto es muy consciente de que todo esto es un retroceso pero estamos en ese momento histórico: la censura campa a sus anchas. la cultura de la cancelación brilla y las demagogias están al orden del día. los terraplanistas hablan abiertamente y sin vergüenza en los programas de televisión y todo el mundo cree que lo que sale en las redes es cierto sin ningún tipo de sentido crítico. ¿cómo puede alguien cree que se puede hacer millonario en dos meses y que además la clave está publicada en un vídeo de youtube? mi Señor le dijo al objeto que las visitas se reducirían radicalmente. tampoco conviene en estar circunstancias, llamar mucho la atención. los que están interesados acabarán encontrándolo y se apuntarán. volvemos a la opción entre cantidad y calidad. pero aún queda una semana para eso.</p><p style="text-align: justify;">mientras tanto el objeto hoy ha seguido trabajando pero a un ritmo más relajado. esto tuvo que salir a comprar algunas cosas de avituallamiento y cosas que le faltaban en casa. aún siendo un objeto uno tiene que seguir sobreviviendo. el objeto también estuvo organizando cosas para cuando comience a trabajar el uno de septiembre. programar cosas, preveer, agendar, todo eso. cada vez ve más claro el objeto que todo es cuestión de previsión, programación y constancia.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

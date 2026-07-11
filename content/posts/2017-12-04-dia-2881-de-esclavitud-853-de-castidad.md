@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2881 de esclavitud, 853 de castidad"
+date: 2017-12-04 22:07:00 +0000
+permalink: /2017/12/dia-2881-de-esclavitud-853-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">después del trabajo el Dueño ordenó cumplir el castigo por haberse quitado la mordaza el fin de semana y haber hablado más de la cuenta durante la semana. la hora de comienzo eran las seis y media pero a esa hora aún estaba el objeto trabajando. el castigo comenzó sobre las ocho y consistió en ponerse el buttplug, las pinzas, además de la jaula, las botas y el collar.<br/>hablando con el Dueño el objeto le expuso que efectivamente sería un castigo porque hoy no se sentía de "humor", ante lo que el Dueño dijo que si eso significaba "desear, por lo que amplió el castigo a hora y media.<br/>efectivamente el objeto estaba muy cansado y no tenía muchas "ganas" de un correctivo, que aunque merecido requería un esfuerzo de más. el Dueño se dio cuenta de que esa idea y sensación era fruto del ego. el objeto respondió diciendo que "merecía el castigo más que nunca".<br/>como en otras ocasiones las pinzas fueron más dolorosas que el buttplug. el tiempo se alargaba y el dolor de los pezones fue en aumento. estuvo tentado en varias ocasiones de quitarse todo pero era el ego que se resistía a pasarlo mal, a desaparecer.<br/>los últimos minutos fueron desesperantes porque parecía que no iba a terminar. cuando al final el Dueño di por finalizado el castigo y se quitó las pinzas, los pezones ardían y cada roce era un sufrimiento. sin embargo el efecto psicológico fue total y absoluto. el ego había desaparecido y el objeto volvía a estar conectado con su naturaleza.<br/>el Dueño siempre sabe lo que necesita el objeto y parece proporcionarlo de una forma u otra. siempre está ahí y siempre sabe como llevarlo a donde tiene que estar.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

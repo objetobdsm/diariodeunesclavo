@@ -1,0 +1,10 @@
+---
+layout: post
+title: "manual bdsm. el poder"
+date: 2024-12-14 17:11:00 +0000
+permalink: /2024/12/manual-bdsm-el-poder.html
+tags:
+  - manual
+---
+
+<p style="text-align: justify;"> todo el mundo bdsm, bien sea fetichista o de otro tipo, se basa o gira alrededor de un concepto: el poder. una definición rápida de poder es la capacidad de que alguien haga lo que tú quieres. no es algo que se tiene sino algo que se ejerce y es eminentemente dinámico. alguien puede tenerlo en una esfera de su vida y no tener ninguna. por tanto el poder es situacional también. la vida de todos los seres humanos está impreganada de relaciones de poder: lo ejerce el padre sobre los hijos, el jefe sobre los trabajadores, la policía sobre los conductores y así sucesivamente. incluso entre el grupo de amigos y se discute a donde ir o qué hacer, siempre hay alguien que consigue decantar la balanza hacia lo que quiere. esa persona es la que tiene el poder. no existe una relación en la que el poder no esté presente de una forma o de otra. </p><p style="text-align: justify;">el bdsm se basa en este hecho haciéndolo consciente. el poder no es algo que se dé implícitamente, más bien al contrario, se explicita y se pone sobre la mesa. de hecho es el centro de la relación, su fundamento. el principio básico del bdsm es que hay una persona que tiene el poder y otro, y otros, que no. esa situación se pone en evidencia con la expresión (TPE) Total Power Exchange, intercambio total de poder. a la persona que cede el poder se le conoce como sumiso, inferior o esclavo y al que lo ejerce Dominante, Superior o Amo. </p><p style="text-align: justify;">el grado o intensidad del poder involucrado en la relación depende de quienes entren en ella. durante la negociación que se establece al comienzo de la misma se ponen los límites, que no son más que los límites del ejercicio de ese poder. una vez terminada la negociación el Amo ejerce su poder sobre el esclavo en los términos establecidos. esto es igualmente válido para una sesión de una hora que para una relación de años. </p>

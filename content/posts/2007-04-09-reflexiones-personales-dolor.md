@@ -1,0 +1,10 @@
+---
+layout: post
+title: "Reflexiones personales dolor"
+date: 2007-04-09 05:11:00 +0000
+permalink: /2007/04/reflexiones-personales-dolor.html
+tags:
+  - reflexiones
+---
+
+<div align="justify">no me defino, y nunca me he definido, como masoquista. a mi el dolor, aún al menos, no me produce placer. sin embargo le estoy cogiendo cierto gustillo pero porque consigo sublimarlo, darle sentido. me gusta sufrir cuando a mi Amo le gusta que sufra. en nuestra sociedad huimos del dolor. muchas veces me sorprende, cuando en un grupo alguien quiere algo para el dolor de cabeza, el arsenal de pastillas que la gente tiene a mano para su uso personal y ajeno. cualquier cosa con tal de evitar el dolor. en una relación D/s no se puede huir de él. normalmente estás atado, o sujeto por las ataduras invisibles de la obediencia. entonces, si aparece tienes que enfrentarte a él. además hay un elemento más, una especie de 'orgullo esclavo'. quieres quedar bien ante tu Amo, no presentarle tu cara más débil, quieres ser fuerte, necesitas demostrar (le) (te) que no se equivocó al elegirte. pesa más su juicio que el tuyo propio. definitivamente aquí cuando el dolor aparece no puedes huir de él. afrontarlo de cara o dejar que te venza, son las dos opciones. si eliges la primera serás más fuerte, más valorado, más reconocido. si lo que ocurre es que triunfa la segunda darás marcha atrás un gran trecho y perderás todo lo recorrido. es mucho lo que te juegas. la única forma de vivir algo bien en la vida es vivirla con sentido y este dolor concreto, yo lo vivo como una forma de sumisión. hay una serie de conceptos, que esta mentalidad de huir del dolor, parece situar como trasnochados: valor, resistencia, aguante, fortaleza, disciplina. a m, sin embargo, me gustan mucho, e intento vivir el dolor desde ahí, cuando es una herramienta de mi entrenamiento como esclavo. cuando es un castigo por una falta no hay forma de que pueda sobrellevarlo. siempre lo paso mal.</div>

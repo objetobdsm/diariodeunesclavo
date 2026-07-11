@@ -1,0 +1,10 @@
+---
+layout: post
+title: "cartas desde la mazmorra 62"
+date: 2012-10-23 18:29:00 +0000
+permalink: /2012/10/cartas-desde-la-mazmorra-62.html
+tags:
+  - cartas
+---
+
+<br /><div style="text-align: justify;">el bdsm es a menudo sinónimo de dolor, de tortura. eso forma parte de nuestros universo, de nuestro horizonte de sentido. las pinzas, las ataduras, los latigazos, el control de la respiración, las palmadas, la electricidad, la tortura de los genitales... todo gira alrededor de producir dolor. el dolor en el bdsm es una forma de purificación, de purgar las faltas y de provocar placer al Amo. sin embargo dolor no es sinónimo de sufrimiento. como todos los alpinistas, gente que va al gimnasio, bailarines, actores, militares, policías, corredores de fondo, el dolor forma parte de sus actividades, pero éste no produce sufrimiento, sino incluso satisfacción y placer. el sufrimiento significa o viene por un dolor no aceptado. la aceptación del dolor es el límite que marca la diferencia entre lo que es sufrimiento y lo que no es. un esclavo acepta el dolor como parte de su camino, de su desarrollo como sumiso. cualquiera que haya estado en una sesión de este estilo sabe lo intenso que puede ser el dolor, y la satisfacción que lleva aceptarlo y, una vez pasado, la seguridad que produce los restos de ese dolor por el cuerpo. ese dolor aceptado te hace mejor, porque es un reto, una frontera que si consigues superar te demuestra lo que puedes soportar. es como subir una montaña. llegas con las piernas doloridas, casi sin respiración, con los brazos pesados, sin embargo llegar a la cima produce una felicidad que no te ofrece ninguna otra cosa.</div><div style="text-align: justify;">los Amos nos permiten a los esclavos vivir esta experiencia, esta sensación de éxito, de haber llegado a la cima, de habernos superado. por todo eso nuestra actiud siempre es de gratitud y agradecimiento.</div><div style="text-align: justify;">feliz semana.</div>

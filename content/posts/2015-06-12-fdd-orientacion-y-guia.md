@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD orientación y guía"
+date: 2015-06-12 07:45:00 +0000
+permalink: /2015/06/fdd-orientacion-y-guia.html
+tags:
+  - FdD
+  - sumision
+  - leather
+---
+
+<p style="text-align:justify;"><a href="http://diariodeunesclavo.net/wp-content/uploads/2015/06/2015_06_12.jpg"><img class="aligncenter size-full wp-image-8542" src="http://diariodeunesclavo.net/wp-content/uploads/2015/06/2015_06_12.jpg" alt="2015_06_12" width="450" height="600" /></a>el sometimiento de un esclavo por parte de un Amo tiene una dimensión que trasciende lo puramente sexual. eso lo hemos dicho muchas veces en este blog el sometimiento de un esclavo por parte de un Amo tiene una dimensión que trasciende lo puramente sexual. eso lo hemos dicho muchas veces en este blog. un esclavo natural, en contacto con su ser más profundo, sabe que necesita orientación. igual que el Amo de la imagen guía al esclavo para que coma su polla, también fuera de este contexto, el esclavo necesita ser llevado para conseguir sus metas, porque, como ser inferior que es, sabe que por sí mismo no puede conseguirlo. el orden, la disciplina, la obediencia, la humildad, son las herramientas que utiliza el Amo para llevarlo y conducirlo por un camino que no recorrería por sí mismo. cada uno de estos elementos contrarresta la inseguridad, la timidez, la debilidad, el cansancio y la apatía que guían normalmente a un esclavo. el Amo es la roca que lo mantiene a flote y que a la vez lo mantiene orientado y conectado consigo mismos. sin El estaría perdido. un esclavo natural, en contacto con su ser más profundo, sabe que necesita orientación. igual que el Amo de la imagen guía al esclavo para que coma su polla, también fuera de este contexto, el esclavo necesita ser llevado para conseguir sus metas, porque, como ser inferior que es, sabe que por sí mismo no puede conseguirlo. el orden, la disciplina, la obediencia, la humildad, son las herramientas que utiliza el Amo para llevarlo y conducirlo por un camino que no recorrería por sí mismo. cada uno de estos elementos contrarresta la inseguridad, la timidez, la debilidad, el cansancio y la apatía que guían normalmente a un esclavo. el Amo es la roca que lo mantiene a flote y que a la vez lo mantiene orientado y conectado consigo mismos. sin El estaría perdido.</p>

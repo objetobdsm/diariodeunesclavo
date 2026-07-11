@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3271 de esclavitud, 1243 de castidad"
+date: 2018-12-29 22:47:00 +0000
+permalink: /2018/12/dia-3271-de-esclavitud-1243-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">es algo a lo que el objeto empieza a acostumbrarse, o mejor dicho a lo que empieza a esperar que ocurra. cuando parece que todo está bien, que ya no puede ir más allá, llega el Dueño y da otra vuelta de tuerca, hunde al objeto aún más en la sumisión y en la obediencia, cada vez más profunda, cada vez más radical. hace unos días el Dueño declaró que el objeto ya no era humano en ningún sentido, que sus rasgos humanos habían sido eliminados y que cualquier interacción con otros humanos no era más que una simulación, un engaño por necesidades externas. eso ya parecía al objeto bastante radical, real pero radical. y hoy el Dueño ha vuelto a dar otro giro. el objeto no debe hablar, nunca, salvo situaciones de emergencia. eso significa que estando solo o con el Dueño el silencio debe ser la norma, y en el exterior, cuando se codee con humanos, las palabras deben ser las justas y necesarias. el Dueño lo expresó de una forma concreta "Deben decir de ti que eres un hombre de pocas palabras". es algo complicado porque en el trabajo del objeto hay que hablar bastante, pero es una orden del Dueño y así se comportará el objeto.<br/>en cierta medida es como si "condenara" al objeto a ser mudo, a una vida de silencio, que en caso del objeto es una vida de paz, porque el habla es una capacidad humana. las mesas no hablan, las sillas no hablan, las botas no hablan. vivir en silencio es una consecuencia lógica de ser un objeto. el silencio no implica no comunicarse, como ocurre con los animales. el Dueño sigue permitiendo que el objeto escriba y ese es el principal medio que debe emplear, tanto con el Dueño como con el resto del mundo, a través de este blog, por ejemplo, pero la palabra debe desaparecer, al menos en la medida de lo posible. es una orden Dueño y por tanto, un mandamiento para el objeto.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

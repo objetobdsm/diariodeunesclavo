@@ -1,0 +1,10 @@
+---
+layout: post
+title: "dia 1971 de esclavitud, 58 de castidad"
+date: 2015-06-08 22:57:00 +0000
+permalink: /2015/06/dia-1971-de-esclavitud-58-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">lo que se suponía que iba a ser un día tranquilo se complicó en el trabajo, como ocurre casi siempre. allí nunca se pueden hacer planes porque siempre saltan por lo aires, lo cual resulta muy inquietante para un esclavo que buscar orden, organización y repetir siempre las mismas cosas. este orden es el que busca un sumiso en las normas y las órdenes de su Amo, tener organizada la vida. al Dueño le ocurre más o menos lo mismo, porque como buen Amo es un controlador y le gusta tener todo supervisado y organizado.<br/>al perro le da tranquilidad saber lo que tiene que hacer, lo que va a ocurrir. desde pequeño siempre fue muy organizado y hacía listas de tareas para todo. fue uno de los primeros en su clase en usar una agenda, donde apuntaba todo. intuye el perro que es un rasgo que se ha manifestado luego plenamente en su sumisión. por eso le inquieta tanto cuando las cosas empiezan a suceder y no estaban previstas. esta es una de esas cosas que perfectamente se pueden vivir en el mundo vanilla pero que afectan extremadamente en el mundo bdsm. un esclavo, o un Amo, desordenado, pues no tienen mucho futuro en el bdsm ya que este está basado en el control y el control es, sobre todo, orden. aquí está parte del origen del estrés del perro este curso y supone que la razón por la que el Dueño quiere evitar que el perro siga por este camino el año que viene. hoy, el perro se lo agradece, sinceramente. sin orden no hay esclavitud posible. de hecho las normas que impone el Dueño son el orden sobre el caos y llega un momento en que el perro no puede vivir sin ellas. a más normas, más orden, y por tanto menos caos.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

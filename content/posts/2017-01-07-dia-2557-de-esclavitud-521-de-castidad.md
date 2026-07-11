@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2557 de esclavitud, 521 de castidad"
+date: 2017-01-07 22:47:00 +0000
+permalink: /2017/01/dia-2557-de-esclavitud-521-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">un día tranquilo y 402 ha aprovechado para rasurarse los genitales. como objeto no tiene derecho a tener unos genitales humanos. como en otras ocasiones, fue bastante humillante pero muy cómodo a la hora de ponerse de nuevo la jaula.<br/>a media mañana 402 fue a hacer un recado para el Dueño y después de hacerlo pudimos hablar. dentro de unos días este objeto estará a los pies del Dueño, bajo sus botas. y los dos, Dueño y objeto están ansiosos y deseosos de encontrarse. el Dueño ha dicho que 402 estará mucho, la mayor parte del tiempo, en subspace profundo, muy profundo.<br/>viéndolo en perspectiva, 402 siente que la última vez el Dueño sembró una semilla dentro de la mente de 402 que ha ido creciendo y que ha puesto a 402 en su lugar en el mundo. ya no quedan resistencias o barreras, la mente de 402 está abierta y es accesible al Dueño, por lo que puede hacer con ella lo que quiera: meter una idea, cambiarla, reprogramarla... la última vez bastó la voz del Dueño para mantener inmovilizado a este objeto y eso no era más que la superficie. ¿qué podrá hacer el Dueño esta vez?. cualquier cosa.<br/>una vez rota la "humanidad", ser tratado como un hombres es una carga y una fuente de ansiedad y desasosiego. una vez cruzada esta frontera no hay marcha atrás, una vez roto un objeto no puede volver a ser humano, aunque puede ser reconstruído y roto una y otra vez a voluntad del Dueño.<br/>a algunos Amos les cuesta entender y aceptar que precisamente eso es lo que anhelan muchos esclavos: ser dominados hasta el punto de convertirse en lo que el Amo quiere que sean. el hecho de "romperse", de descubrir no sólo que no hay escapatoria posible sino que además es eso lo que siempre ha querido, es sumamente liberador para un esclavo y un objeto, el punto culminante de la sumisión.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

@@ -1,0 +1,11 @@
+---
+layout: post
+title: "el poder de unas botas"
+date: 2007-12-05 11:48:00 +0000
+permalink: /2007/12/el-poder-de-unas-botas.html
+tags:
+  - botas
+  - reflexiones
+---
+
+<div align="justify">nunca sabe uno cuándo pasará algo que evoque su ser <span class="blsp-spelling-error" id="SPELLING_ERROR_0">bdsm</span>. hoy estaba hablando con mi AMO y me encontraba en la Plaza de las Ranas, cerca de las terrazas. de pronto mis ojos se fijaron en un tío que estaba allí sentado. no tenía nada de particular, salvo que llevaba unas fantásticas botas vaqueras repujadas. parecía unas sancho, de esas que no tiene un color muy definido porque son como brillantes y tienes matices. además estaba sentado de forma que su pie derecho descansaba sobre su rodilla izquierda, con lo que el pantalón se levantaba y se las veía perfectamente. así, el <span class="blsp-spelling-error" id="SPELLING_ERROR_1">tio</span>, que era de lo más <span class="blsp-spelling-error" id="SPELLING_ERROR_2">normalito</span>, se convirtió en un <span class="blsp-spelling-error" id="SPELLING_ERROR_3">tio</span> morboso, por obra y gracia de unas botas.... ni más ni menos. ese es el poder de las cosas. a veces es una chaqueta, o una gorra, o una camisa..... o unas botas, pero siempre algo puede marcar la diferencia entre ser del montón, o hacerte especial...... claro es que yo siento una especial predilección por las botas y el cuero. un fetiche es algo que evoca una realidad que está más allá del objeto mismo. las botas, por ejemplo, me evocan seguridad, el cuero, autoridad; el <span class="blsp-spelling-error" id="SPELLING_ERROR_4">latex</span> es morboso por su brillo y su textura y me transmite sumisión. veo a un Amo con cuero, pero me cuesta verlo con <span class="blsp-spelling-error" id="SPELLING_ERROR_5">latex</span>.</div><div align="justify">todo esto me lleva a una reflexión aún más profunda, porque aunque siguen fijando mi atención constantemente, ya no necesito que mi AMO lleve cueros o botas para sentirlo como alguien morboso. lleve lo que lleve, siempre me siento obligado a inclinarme ante EL. supongo que eso es obra de su trabajo sobre mi, trabajo que espero dure mucho tiempo. </div>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1384 de esclavitud"
+date: 2013-10-30 22:06:00 +0000
+permalink: /2013/10/dia-1384-de-esclavitud.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;"><span style="font-size:13px;line-height:19px;">45 días de castidad, 10 desde el último ordeño</span><br/>el perro está muy sensible últimamente a los juegos de poder de la no-vida. observando el comportamiento de la gente de alrededor, el perro ha visto que el bien más preciado por todos no es el dinero, sino el poder. tengas mucho o poco de lo primero, todos quieren imponer su criterio, manejar a los otros, ser obedecido, controlar en definitiva. muchos utilizan trucos o artimañas rastreras para conseguir su objetivo.<br/>a menudo los compañeros de trabajo pretenden hacer lo mismo con el perro, pero ellos no saben que el perro es "especialista" en estos juegos de poder y que ya tiene un Dueño a quien ha cedido todo el poder, así que no tiene nada para ellos. eso no significa que me someta a ellos, sino justo todo lo contrario. el Dueño tiene todo el poder y ha ordenado al perro que nadie lo pise sino El, y aquel a quien El de permiso.<br/>los "buscadores de poder" apelan al ego, al orgullo, a un montón de artimañas para conseguir lo que quieren: que les hagas caso, que les digas que tienen razón, que son mejores, más poderosos.... para un esclavo todas estas son palabras vanas, sin sentido, porque su referente en este sentido es su Dueño y lo que El ordena. al darle a El todo el poder, se lo quitas al resto.<br/>irónicamente hoy el perro ha comprobado que en la medida en que ha ido entrando en un proceso de sumisión y abandonándose al Dueño, sus relaciones han mejorado, se siente más autónomo, más libre en la no-vida con respecto a los demás. estos juegos ya no son importantes para el perro. lo único importante es su vida de esclavo, todo lo demás carece de importancia, y parece que eso le fastidia a la gente. el ego hace que se tomen a sí mismos demasiado en serio, que se dejen llevar por sus impulsos y sus pasiones primeras, que eso les lleve a la infelicidad.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1982 de esclavitud, 69 de castidad"
+date: 2015-06-19 22:28:00 +0000
+permalink: /2015/06/dia-1982-de-esclavitud-69-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">una etapa va terminando, y eso se nota porque hoy han comenzado las despedidas. en el trabajo ha culminado uno de los procesos y algunos compañeros nos hemos ido a comer. por supuesto el perro tenía permiso del Dueño. si no se lo hubiera dado no habría ido, da igual la circunstancia o el acontecimiento que fuera. sin embargo era más una comida de trabajo que una de placer así que el Dueño accedió y el perro fue.<br/>es curioso, y no deja de sorprenderse el perro, cómo la gente sigue considerando que el perro es humano, porque se comporta como humano, habla como humano, dice cosas como humano. sin embargo en su interior, sólo los que lo conocen, saben que es un esclavo voluntario, alguien que ha entregado su libertad a su Dueño y que no es más que un perro.<br/>siendo como es un perro, el esclavo se sintió un poco lejos de todo lo que pasaba a su alrededor durante la comida. hubo gente que bebió, más de la cuenta. otra, o la misma, estaba emocionada. lo que si se sentía en el aire es algo que el perro ha comentado desde hace algunas semanas; que debido a los cambios en el trabajo esto puede considerarse el final de algo.<br/>al perro no le gustaría que fuera sencillamente una cuestión laboral, sino que significara también un cambio cualitativo en su vida, en su trato con el Dueño. el perro cree que ambos están preparados y que habría que aprovechar la coyuntura del cambio en el trabajo. sin embargo eso no le corresponde al perro decidirlo ni verlo, sino al Dueño. El es quien lleva las riendas de todo lo concerniente a la vida del perro.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

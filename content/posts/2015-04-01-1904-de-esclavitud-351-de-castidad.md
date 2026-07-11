@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1904 de esclavitud, 351 de castidad"
+date: 2015-04-01 22:18:00 +0000
+permalink: /2015/04/1904-de-esclavitud-351-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">aunque hubiera una razón, el podía  ir a servir al Dueño como estaba planeado equivale a una falta, y por tanto merece un castigo. hoy el Dueño no se sentía muy contento y eso aumento el sentimiento de responsabilidad y por eso el perro estuvo hablando con el Dueño intentando compensar su fallo.<br/>lo hizo de la única forma que sabe, suplicando. le suplicó que le ayudara a amar el dolor y la tortura que le esperaba en el futuro cercano. el perro tiene una especie de trauma con eso. siente miedo ante cualquier forma de dolor y sabe que la única persona que puede ayudarle a superarlo es el Dueño. el bdsm se convierte, se ha convertido en muchos momentos, en una auténtica terapia para el perro y este tema del dolor es el siguiente que tiene que afrontar. de entrada el perro sabe que, nada más llegar, recibirá una serie de golpes, y que, según deseos del Dueño, debe recibirlos en completo y absoluto silencio, sin emitir sonido alguno, ni siquiera alterar el ritmo de la respiración.<br/>es un camino nuevo hacia la aceptación del dolor, hacia la conversión del perro en un masoquista que no pueda vivir sin él. igual que ahora no puede vivir el perro sin botas, o sin jaula. el perro aprenderá a poder vivir sin dolor y sabe que llegará a suplicarlo de rodillas a su Dueño.<br/>nada de esto fue buscado por el perro, ni elegido por él. todo fue ordenado y ha sido querido por el Dueño y para su satisfacción personal. mirando retrospectivamente el perro ve como el Dueño lo ha modelado, cambiado, adaptándolo para que el perro se convierta en lo que el Dueño quiere que sea.<br/>cuando veces habrá escuchado el perro esa frase de "yo soy así". es una frase que no puede decir el perro. a todo lo más el perro puede decir "yo soy como mi Dueño ha querido que sea".<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

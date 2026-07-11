@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2311 de esclavitud, 283 de castidad"
+date: 2016-05-14 22:49:00 +0000
+permalink: /2016/05/dia-2311-de-esclavitud-283-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">después de muchos obstáculos y problemas con la red social del blog, 402 la ha cambiado. lo que transforma el blog y da la posibilidad de intercambiar mensajes es un pequeño programa. a estos pequeños programas se les llama plugins. el nuevo plugins se demostró inmediatamente mejor que el anterior. tenía mejores funciones, estaba en español y no daba errores.<br/>inmediatamente algunos lectores se apuntaron a la red y ayudaron a ajustarla. la estética es más o menos, parecida a un mini-facebook. por fin se pueden colgar fotos de perfil, fotos de portada, etc. se puede cambiar el estado y rellenar un perfil. como todo, la forma es más fácil que el contenido. conectar a la gente es relativamente fácil con los programas actuales, lo difícil es tener algo que conectar.<br/>arreglar la red costó casi todo el día a 402: instalarla, ver si funciona, ponerla a prueba, etc... mucha gente ha escrito a este objeto diciendo que les cuesta encontrar Amos o esclavos. la idea original de esta red era poner en contacto a esas personas que sinceramente desean ponerse en contacto con gente que busquen realmente.<br/>hay muchas páginas, muchas redes sociales dedicadas al bdsm: fetlife, tuamo.net, gearmen, etc. para nada pretende 402 hacerle sombra o la competencia. este es un blog diferente. aquí se prima la calidad frente a la cantidad. de hecho esa es la opción consciente del Dueño y de este objeto. la mayoría de las páginas están llenas de fotos pero en el diariodeunesclavo hay que leer y no hay tantas fotos excitantes. es una opción y eso significa optar por unas cosas y dejar otras.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

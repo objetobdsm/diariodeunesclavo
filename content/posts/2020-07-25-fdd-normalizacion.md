@@ -1,0 +1,16 @@
+---
+layout: post
+title: "FdD normalización"
+date: 2020-07-25 17:23:00 +0000
+permalink: /2020/07/fdd-normalizacion.html
+tags:
+  - FdD
+  - amos
+  - leather
+---
+
+<div class="separator" style="clear: both; text-align: center;">
+<a href="/uploads/d9/09/d9096c5e307fb81118061e16476fcd8e737104b8a4598b5fe18e61395e47db6b.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="991" data-original-width="872" height="640" src="/uploads/47/0a/470a954470bb34f1c5be273340a6715d95cf762b2eb61b3bdd70038d8d649bce.jpg" width="561" /> </a></div>
+<div class="separator" style="clear: both; text-align: justify;">
+¿y si el bdsm fuera aceptado como una subcultura más, como una tribu más? ¿saldría de los sótanos, de las mazmorras, de los cuartos oscuros? veríamos escenas como esta, un Amo tomando un café en una céntrica calle de una gran ciudad. en cierto sentido sería estupendo, poder vivir la sumisión y la esclavitud voluntaria con un reconocimiento social. sin embargo también tendría sus inconvenientes. gran parte de la excitación del bdsm proviene de su carácter prohibido, marginal, excluyente. en cierta medida ya está pasando con el fenómeno "50 sombras de grey", la popularización de algo implica también cierta relajación, cierto descafeinamiento. por supuesto siempre habrá tendencias, incluso en el mismo bdsm actual con la Vieja Guardia y la Nueva Guardia, dos formas de ver nuestro mundo, pero esto no está seguro de si la "normalización" del bdsm sería beneficiosa o perjudicial. como siempre esto dejará esa cuestión a criterio del Dueño y su opinión será lo que El decida.<br />día 3845 de esclavitud, castrado permanentemente<br />hay días en los que no pasan prácticamente nada y otros en los que las cosas se aceleran de forma brutal produciendo la idea de que pierde el control.<br />hoy tocaba quitarse la jaula y limpiarse y afeitarse. sin embargo en la última semana el objeto se ha dado cuenta de que no huele por los restos de orina y parece que la limpieza diaria es suficiente. esto  lo ha puesto en conocimiento del Dueño y propuso prolongar quitarse la jaula un poco más. primero se le ocurrió un mes, ahora son quince días. eso significaría estar sin jaula 5 minutos doce veces al año. de hecho es llevarla para siempre de manera permanente. es otro paso más hacia la castración, a vivir sin sexo.<br />por ahora sólo es un experimento. hay cosas que el objeto no sabe como afrontará, como el pelo. hace mucho que no tiene pelo en los genitales y no sabe como le afectará esto.<br />por supuesto esto dependerá de si hay una visita al médico o si se produce alguna herida por llevarla. de igual forma entiende el objeto que si se produce alguna cuestión por la higiene se la quitará y la arreglará.<br />no hay punto de comparación entre las jaulas que ha llevado el objeto hasta ahora y el nub. tampoco es comparable el ritmo que tenía antes. se la quitaba prácticamente todos los días para limpiarse y ahora tiene que hacerlo una vez al mes. nada de esto iniciativa del objeto sino deseo del Dueño. como en otras ocasiones ha bastado una idea suya, un deseo, para que el objeto la haya madurado hasta convertirla en una necesidad.<br />sumisión en silencio, castidad y obediencia ciega. </div>
+<br />

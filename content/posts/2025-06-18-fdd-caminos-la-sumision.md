@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD caminos a la sumisión"
+date: 2025-06-18 03:55:00 +0000
+permalink: /2025/06/fdd-caminos-la-sumision.html
+tags:
+  - FdD
+  - tortura
+  - disciplina
+---
+
+<p></p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/b8/50/b850929287ca162fbaf2c63d846a16b0b9e6e37e938ee3914b4a3f4e1b8b518b.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="1470" data-original-width="1048" height="640" src="/uploads/1f/e1/1fe1581344acc8865088749e27b88e908d7d7fa121fea4c979a430a03f77df37.jpg" width="456" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><p></p><div class="separator" style="clear: both; text-align: justify;">el dolor es uno de los caminos hacia la sumisión. el otro es la humillación y un tercero es la obediencia. en los tres el sujeto se ve obligado a ponerse frente al ego, esa imagen y construcción de sí mismo, que se ha construido durante toda su vida a base de lo que le han dicho que es o que debe ser pero no es él. en la mayoría de las personas el ego es indistinguible de lo que realmente es uno, porque el ego sustituye a la naturaleza. el primer paso es ser consciente de esa dualidad y de que no se identifican. una cosa es el ego y otra eres tú, una cosa la imagen de lo que eres y tu auténtica persona. al ego no le gusta ni el dolor, ni las humillaciones, ni la obediencia y no les gusta porque las tres te sacan de tu zona de confort y te ponen en una posición que la sociedad no acepta y, por tanto, el ego no puede seguirte allí. cuando recibes un latigazo, lames unas botas o realizas algo que no te apetece, estás infringiendo el modelo de tío triunfador, exitoso, que disfruta de los placeres. mientras estás ahí, triunfando, gozando del placer y autocomplaciéndote, el ego está en su salsa. te hace creer que eres algo, que eres alguien. y realmente lo eres pero no porque el ego te lo diga o haga que te lo crees. el bdsm, para los inferiores al menos, es una lucha constante contra el ego, para descubrir, primero tu propia y auténtica naturaleza y para vivir acorde con ella.</div><div style="text-align: justify;"><br /></div><div class="separator" style="clear: both; text-align: center;"></div><p><br /> </p>

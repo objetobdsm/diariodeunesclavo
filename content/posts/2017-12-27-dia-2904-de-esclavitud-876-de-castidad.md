@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2904 de esclavitud, 876 de castidad"
+date: 2017-12-27 22:39:00 +0000
+permalink: /2017/12/dia-2904-de-esclavitud-876-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">nuevamente el objeto ha tenido la experiencia de lo que es la fantasía y lo que es la realidad. después de toda una semana, la pasada, de trabajo mañana y tarde, y esta de fiestas múltiples, el objeto había añorado la mordaza, la había echado mucho de menos y hoy, por fin, ha podido pasar mucho tiempo con ella. y le ha costado. pareciera coo si lo avanzado se hubiera desandado. en este tipo de cosas el entrenamiento ha de ser constante y permanente. en cuanto bajes la guardia o te despistes se retrocede.<br/>hoy le ha pasado esto al objeto con la mordaza pero también con el collar. después de tanto tiempo sin llevarlo, el cuerpo había perdido la costumbre y lo rechazó inicialmente. ya vivió eso el objeto con la jaula hasta que no sólo el cuerpo la integró sino que ya no se siente bien sin ella. supone el objeto que el objetivo último del Dueño es que pase lo mismo con la mordaza y el collar, hacer que el cuerpo los necesite de forma que se sienta mal cuando no están donde deben estar.<br/>además de esto han pasado varias cosas. la primera es que el objeto ha estado trabajando en el blog y navegando por internet, con lo que ha entrado, a media tarde, en una especie de medio subspace. no era un subspace completo pero si un estado de paz y tranquilidad que es el principal efecto del subspace. estos días de vacaciones han descansado al objeto y ahora está más centrado y tranquilo, en calma, integrado.<br/>la segunda cosa es una conversación con un hermano esclavo que ha sido tomado como propiedad y que ha comenzado su entrenamiento en el dolor. su Amo, que está lejos, ha delegado en otro Amo con experiencia para que lo entrene y su primera sesión ha sido un éxito. el objeto se alegra por él y le desea la mayor de las felicidades en este nuevo camino.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

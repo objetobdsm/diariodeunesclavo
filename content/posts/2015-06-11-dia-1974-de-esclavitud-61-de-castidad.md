@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1974 de esclavitud, 61 de castidad."
+date: 2015-06-11 08:59:00 +0000
+permalink: /2015/06/dia-1974-de-esclavitud-61-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el perro estuvo todo el día en un encuentro de trabajo, desde las nueve y media de la mañana a las siete de la tarde. sólo hubo una hora para comer. fue de eso encuentros maratonianos y a primera vista, aburridos. sin embargo este estuvo bien. por supuesto el perro fue con su jaula, aunque sin las botas. sigue haciendo demasiado calor y el Dueño permite que el perro lleve zapas. cree el perro que es el segundo verano que ocurre esto ¿o es el tercero?<br/>el hecho es que terminó el perro muy cansado y cuando llegó a casa sólo pudo sentarse en el salón, si se hubiera puesto a escribir, nada habría tenido coherencia. por eso el blog se retrasa. el perro no quiere sentarse a escribir cualquier cosa, y a veces no se siente capaz.<br/>sin embargo durante todo el día perro y Dueño han estado en comunicación y a ambos les hubiera gustado, habrían necesitado más bien, un buen encuentro de dolor. el Dueño también está estresado y le habría sentado muy bien tener a su perro para desahogarse.<br/>aún sin haber llegado al punto de ser masoca, el perro sabe que su camino como esclavo pasa por el dolor por deseo del Dueño. por eso el perro está empezando a entenar la mente. le ha dicho al Dueño que soportaría el castigo que quisiera imponerle sin emitir un solo sonido y que, además, besaría y lamería el látigo y/o la paleta que emplease con su perro.<br/>el objetivo es llegar a abrazar ya a mar el dolor, algo impensable para el perro hace unos años. de hecho era para él un límite innegociable, y ahora se ve aquí, aún sin que le guste, adorándolo y deseando experimentarlo. ese es el gran poder del Dueño: hacer que su esclavo desee algo que antes aborrecía.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

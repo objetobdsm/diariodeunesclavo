@@ -1,0 +1,12 @@
+---
+layout: post
+title: "17 días de castigo, 26 sin ordeñarse"
+date: 2011-05-06 22:09:00 +0000
+permalink: /2011/05/17-dias-de-castigo-26-sin-ordenarse.html
+tags:
+  - personal
+  - castigo
+  - castidad
+---
+
+<div style="text-align: justify;">algunos contactos de facebook ya han propuesto que grave cuando termine el castigo y lo publique en la red. sería una vuelta de tuerca más en el proceso de pérdida de intimidad de este esclavo, pero tal vez necesaria. lo bueno es que esa decisión no depende de mi sino de mi AMO. por supuesto cumpliré su voluntad y haré lo que El desee. hacer un video de cómo me ordeño y publicarlo, sabiendo que a partir de ese momento pierdes el control sobre él, me produce cierto pudor. tal vez precisamente por eso debería suplicar a mi AMO que me permitiera hacerlo, porque si existe pudor significa que el ego anda rondando cerca.</div><div style="text-align: justify;">hoy he vuelto a supurar y manchar la ropa interior. es algo que no controlo, ni decido, sencillamente ocurre. cuando me doy cuenta unas gotas de algo viscoso manchan los calzoncillos. muchas veces ocurre después de orinar. entonces no hay problema porque espero y me limpio, pero hoy ha ocurrido sin previo aviso. es algo relativamente nuevo para mi, porque realmente nunca, desde mi adolescencia, había estado tanto tiempo sin masturbarme.</div><div style="text-align: justify;">anímicamente me encuentro bien. posiblemente la perspectiva del fin de semana ayude. psicológicamente si que noto cambio, sí que es verdad que la castidad, a los sumisos, aumenta el deseo de ser sometidos. eso es al menos lo que le está ocurriendo a este esclavo. no es una sensación, al menos en este caso, de calentura que obliga a ser servicial con tu Amo para que te "libere", porque sabes que eso no ocurrirá, sino es más una sensación de estar centrado en lo que eres, en no despistarte con otras cosas, con otros pensamientos.</div><div style="text-align: justify;">tengo un poco de miedo porque este fin de semana tendré tiempo para descansar, después de un intenso período de trabajo, muy intenso. en otras circunstancias, antes de ser propiedad de mi AMO, me hubiera hartado a pajearme, casi hasta que me doliera la polla, y después de cada corrida me pegaría una enorme siesta. evidentemente eso no será posible, y temo que mi cuerpo reclame lo que antiguamente se le daba. si eso ocurre no tendré otra opción que soportarlo, resistir la tentación y reeducar mi cuerpo para que se someta a la voluntad de mi AMO.</div>

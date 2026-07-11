@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1618 de esclavitud, 66 de castidad"
+date: 2014-06-20 22:31:00 +0000
+permalink: /2014/06/dia-1618-de-esclavitud-66-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hoy todo ha cambiado de golpe. estaba en el trabajo, terminando algunas cosas. esto de terminar tiene mucho sentido porque, tras irse de vacaciones, el perro se incorporaría en otro puesto de trabajo en otro sitio. era un cambio de actividad que el Dueño había aprobado. sin embargo hoy ha venido alguien a tantear al perro para que ocupe un puesto en el mismo sitio, un cargo. supone el perro que es una especie de ascenso, de reconocimiento a su trabajo bien hecho. es más trabajo y también más responsabilidad, en terminología del perro, más no-vida. al salir de allí llamó inmediatamente al Dueño para comunicárselo y estuvieron hablando un buen rato. el Dueño presentó claramente las cosas a favor y en contra. la principal preocupación del Dueño es que el perro se pierda en su nueva tarea y el ego tome poder. en este nuevo cargo el perro tendrá que mandar, lo cual va en contra de su auténtica naturaleza, pero también puede plantearse el tema como un servicio, sin que nadie lo pise, como hasta ahora.<br/>y así es como se complica la vida de un esclavo, porque quedamos en madurarlo durante el fin de semana. de todas maneras ha sido un sondeo y no hay una propuesta firme así que tal vez se quede en nada. en cualquier caso el perro se siente bien de que hayan reconocido su trabajo y hayan pensado en él. al final ver las cosas como un servicio tienen su recompensa.<br/>la tarde la pasó el perro en la universidad, en el curso intensivo del master, pero con la cabeza dando vueltas sobre lo que era mejor para el perro.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

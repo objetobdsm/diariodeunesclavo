@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1401 de esclavitud"
+date: 2013-11-16 22:38:00 +0000
+permalink: /2013/11/dia-1401-de-esclavitud.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">62 días de castidad, 6 desde el último ordeño.<br/>telde, el pueblo donde vive el perro, está de fiestra y hoy, con permiso del Dueño, el perro ha salido a dar una vuelta por el mercadillo que han montado para tal ocasión. como siempre, el perro llevó unas botas, esta vez de motero, de las cuales colgó una foto en twiterr, vaqueros, camisa a cuadros y la omnipresente jaula. en medio de todo el gentío, rodeado de esas personas, el perro no pudo evitar imaginar lo que pensarían si supieran que llevaba esa jaula, si supieran que es un perro esclavo obediente y sumiso, que ha cedido el poder a otra persona y que le llama Dueño. las reacciones serían muy variadas, pero la mayoría serían negativas posiblemente, algunas incluso muy violentas. la razón es que para esas personas, su forma de ver la realidad es la realidad. no son capaces de imaginar, pensar y ver las cosas de otra forma. en cierto sentido son ciegos porque sólo ven un lado del cuadro.<br/>en este sentido sí que podemos llamarnos marginales, porque estamos al margen, en el límite de la sociedad. aún no es capaz de comprender lo que vivimos y sentimos. pero no me importa ser un marginal mientras me dejen vivir mi estilo de vida, aquello que desea vivir el perro. desde luego este blog no es para ellos, no lo escribe el perro para ellos, sino para los que comparten la vida del perro, una vida de sumisión y obediencia, de esclavitud voluntaria no consensuada.<br/>el resto del día el perro estuvo en casa, leyendo y escribiendo un poco. fue un día tranquilo y agradable, con la jaula siempre presente para que nunca olvide a quien pertenezco.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

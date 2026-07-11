@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2293 de esclavitud, 265 de castidad"
+date: 2016-04-26 22:28:00 +0000
+permalink: /2016/04/dia-2293-de-esclavitud-265-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">tras una mañana intensa de trabajo 402 estuvo en casa toda la tarde. tocaba otro día de entrenamiento con el buttplug. el Dueño ordenó que hoy tenía que llevarlo puesto dos horas. aparentemente era poco en comparación con las tres horas del domingo, pero 402 sólo pudo tenerlo dos intervalos de cuarenta y cinco minutos porque en ambas situaciones le entraron unos retortijones en el estómago tan grandes que se lo tuvo que quitar. uno no está siempre igual para poder llevar adelante el entrenamiento.<br/>aunque 402 se sintió como si hubiera fallado, el Dueño se mostró comprensivo y le quitó hierro al asunto. fracasar al cumplir una orden es lo peor que 402 puede imaginarse.<br/>durante el entrenamiento el DUeño tuvo que ir a una reunión. le gusta estar pendiente y aprovecahr el entrenamiento "físico" para entrar en la mente de 402 y hacer cosas allí: inculcar ideas, reprogramar, cambiar cosas. es cuando 402 entra en subspacey casi parece notar 402 como las cosas van cambiando allí.<br/>el hecho es que, al despedirse, ya con el buttplug puesto, le dijo este objeto al Dueño que estaba "empalado" y eso le gustó al Dueño. es una expresión que pone de relieve muy claramente la situación en la que se encuentra. el buttplug entra irremediablemente y 402 nota como el cuerpo sólo quiere expulsarlo y hace "fuerza" para que salga. es una lucah, una lucha de poder y de "voluntades" porque el cuerpo usa el dolor, y la mente de 402 la obediencia. al final este objeto está en medio e intenta aceptar ese dolor. y eso que aún usa el buttplug de menos tamaño. no puede llegar a imaginar o que será meterse el siguiente, o el siguiente.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

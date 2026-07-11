@@ -1,0 +1,10 @@
+---
+layout: post
+title: "Reflexiones personales V"
+date: 2007-02-08 17:10:00 +0000
+permalink: /2007/02/reflexiones-personales-iv.html
+tags:
+  - reflexiones
+---
+
+<div align="justify">¿por qué soy así? ¿por qué deseo tirarme a los pies de mi Amo y jurarle obediencia y sumisión permanentes? ¿por qué ardo en deseos de que El tome las riendas de mi vida y decida por mi? ¿<span class="blsp-spelling-error" id="SPELLING_ERROR_0">qué</span> me lleva a desear que me encadene, me tome como <span class="blsp-spelling-error" id="SPELLING_ERROR_1">una</span> propiedad y anule mi voluntad hasta hacerla suya? el sistema técnico-científico-médico buscaría la causa para explicarlo, pero eso no evitará que siga sintiendo así. prefiero la perspectiva de comprender y aceptar sin juicios. la aceptación es la clave de todo esto. "eres un perro esclavo que le gusta estar a los pies de su Amo", me digo a mi mismo.y puedo decirlo sin vergüenza o sin una valoración moral <span class="blsp-spelling-error" id="SPELLING_ERROR_2">castrante</span> y represiva. cuando lo pueda decir aún más <span class="blsp-spelling-error" id="SPELLING_ERROR_3">profundamente</span> <span class="blsp-spelling-error" id="SPELLING_ERROR_4">habré</span> ido más lejos en el camino de la aceptación. cuando ya no tenga que decirlo significará que lo he <span class="blsp-spelling-error" id="SPELLING_ERROR_5">integrado</span> perfectamente en mi interior. para mi esto no es solo un juego, es algo más. es mi terapia, mi válvula de escape, mi forma de lucha política. "soy un perro esclavo que le gusta estar a los pies de su Amo" no es una <span class="blsp-spelling-error" id="SPELLING_ERROR_6">afirmación</span> enfermiza, es una afirmación revolucionaria que sacude los cimientos de la sociedad <span class="blsp-spelling-error" id="SPELLING_ERROR_7">bienpensante</span> falsa, <span class="blsp-spelling-error" id="SPELLING_ERROR_8">erróneamente</span> equilibrada y engañosamente libre. </div>

@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD vintage pero de mucha utilidad"
+date: 2022-08-28 04:49:00 +0000
+permalink: /2022/08/fdd-vintage-pero-de-mucha-utilidad.html
+tags:
+  - FdD
+  - leather
+---
+
+<div dir="ltr"><div style="text-align: center;"><a href="/uploads/36/33/36331ac21f12d8243f35a0dc9df1fc70a7433fdf84c681e1d5047f2fde6d81ca.jpg"><img alt="" border="0" height="630" id="BLOGGER_PHOTO_ID_7137635102236935218" src="/uploads/e0/0f/e00f0142101cbf5e4581c429907d6db0e1abb14ee2127a917c12554c9aae4bd8.jpg" width="640" /></a><br /></div><div style="text-align: justify;">nadie podrá posiblemente establecer la fecha exacta del nacimiento del bdsm contemporáneo. algunos lo sitúan a finales de la segunda guerra mundial en estados unidos, posiblemente algo similar pasó en reino unido también. no hay que confundirse. el bdsm y las relaciones de Dominación/sumisión han existido siempre y desde siempre. nos referimos con esto a una subcultura determinada marcada por unos rituales, unas prácticas, unos valores, una estética y unas creencias determinadas. esta subcultura sí que podríamos situarla a mediados del siglo xx. por tanto ya nos acercamos a los 75 años de una forma de vida que no ha hecho sino crecer e ir ganando terreno a la cultura mainstream. ha tenido sus crisis, sin duda la más importante la del sida. y sus avances, sin duda el más importante internet. ahora parece gozar de buena salud y está surgiendo una nueva generación cuyo principal peligro es precisamente olvidarse de sus orígenes. el objeto ha encontrado por internet Amos jóvenes que se autodefinen como de la Vieja Guardia o Tradicionales o High Protocol (de protocolo estricto sería la traducción). eso indica que la tradición continúa. ya hay incluso un museo y un archivo para recoger nuestra historia. mientras tanto encontramos imágenes vintage, textos canónicos y lugares, la mayoría digitales, de encuentro para aprender y comunicarnos. el bdsm parece más pujante que nunca y eso nos permite entrenarnos para ser cada vez mejores. honremos a los que nos precedieron y creemos un mundo mejor para los que vienen tras nosotros.</div></div>  

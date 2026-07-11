@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD lo que soy"
+date: 2011-10-08 08:32:00 +0000
+permalink: /2011/10/fdd-lo-que-soy.html
+tags:
+  - bondage
+  - cadenas
+  - FdD
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/d8/4d/d84d89e04d1e72e07a932b542968322dca2a62ac813a0a50b5c281826ea505fe.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/d8/4d/d84d89e04d1e72e07a932b542968322dca2a62ac813a0a50b5c281826ea505fe.jpg" width="500" /></a></div><div style="text-align: justify;">existen una serie de preguntas en la vida, que algunos filósofos piensan que deben ser contestadas para alcanzar el pleno desarrollo y la felicidada. ¿quién soy? ¿qué hago aquí? ¿para qué vivo? son las llamadas preguntas existenciales. este perro ha comprobado que no tiene que haber necesariamente una única respuesta para estas preguntas. éstas pueden cambiar a través del tiempo, pero siempre tiene que haber una respuesta. cuando no es así andamos sin rumbos, deprimidos por no tener sentido, dirección hacia la que dirigirnos. sin embargo, cuando tenemos respuestas a estas preguntas, la vida se vive plenamente, llena, siendo capaces de afrontar las diferentes situaciones de otra manera. este perro estuvo perdido mucho tiempo. caminó sin tener respuestas, buscándolas y pensando que las había encontrado, para darse cuenta poco más tarde que no contestaban de verdad a sus preguntas. de pronto, en un momento dado, el bdsm empezó a contestar. la búsqueda cambió de dirección y se enfocó hacia otro sitio, hacia las relaciones D/s. sin embargo no fue hasta hace poco menos de dos años cuando realmente encontré respuesta, sobre todo porque alguien me las dio. no me dijo lo que era, pero me colocó en mi sitio, me puso en mi lugar y entonces, como en un puzzle, todo encajó. El sabía más de mi que yo mismo. siempre recuerda que en cuanto me vio en la puerta de su casa supo que era un esclavo auténtico y que sería suyo. fue así de simple para El. para este esclavo fue más complicado. hoy, día de su cumpleaños, quiero darle esta imagen. fisicamente no es este perro pero sí es este perro. para el resto del mundo estoy libre, pero mi AMO, Dueño y Señor, sabe que llevo esas cadenas y que El tiene la llave. realmente no soy un esclavo, soy Su esclavo. así es, así será, no puede ser de otra forma.</div>

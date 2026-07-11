@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1920 de esclavitud, 7 de castidad"
+date: 2015-04-18 22:30:00 +0000
+permalink: /2015/04/dia-1920-de-esclavitud-7-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hace sólo una semana que el perro estaba en presencia del Dueño y hace una semana el perro se estaba sacando la leche en su presencia, con su permiso. como se relató no fue realmente un orgasmo lo que tuvo el perro, pero tampoco una sacada de leche normal. al estar sin jaula el perro sintió que no debía seguir con la cuenta de castidad, a pesar de que el Dueño sabía que no había tenido un orgasmo. el hecho es que, a súplicas del perro, el Dueño comenzó la cuenta de nuevo. parece algo intrascendente, pero no lo es porque cuanto más avanza, más sumiso y obediente se siente el perro. no es que ahora no lo sea, pero a medida que pasan los días, su aumento le recuerda que ya no tienen nada que hacer con su pene, que no le pertenece y que, un hombre normal puede llegar a estar un par de días sin correrse, pero que el perro no es un hombre normal, ni siquiera es un hombre, así que no puede correrse. vivir en castidad, eso es lo único que sabe el perro. ya no controla su deseo, no controla su sexualidad. lo que pasó hace una semana no es más que la excepción que confirma la regla y que le hace saber al perro que da igual el tiempo que pase, que esa cuenta que ha comenzado no es una cuenta atrás, no tiene final, sólo aquel que el Dueño quiera. si el Dueño lo hubiera querido el perro habría vuelto de madrid sin sacarse la leche y habrían seguido subiendo los días sin fin. no hay límite para la autoridad del Dueño. no dice un mes, un año, veinte años. el Dueño podría ordenar al perro que se sacara la leche todos los días y no rompería la castidad, o no permitiría al perro sacársela en lo que le queda de vida. da igual. lo único que es importante es lo que Dueño quiera. su voluntad es la vida de este perro.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

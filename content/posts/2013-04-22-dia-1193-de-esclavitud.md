@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1193 de esclavitud"
+date: 2013-04-22 21:16:00 +0000
+permalink: /2013/04/dia-1193-de-esclavitud.html
+tags:
+  - personal
+---
+
+<br />26 días de castidad, 26 días desde el último ordeño.<br /><div style="text-align: justify;">el perro fue a trabajar pero no estaba físicamente mejor, lo cual significa que empeoró un poco. la mañana se fue en el trabajo y por la tarde fue a la facultad, aunque sólo media tarde.</div><div style="text-align: justify;">ayer, revisando las películas, el perro se dio cuenta que le faltaba una de las mejores que tenía. es de la productora bound&gagged y se titula opposite atracttions. la puso a bajar y hoy ya la tenía en el ordenador. el perro se puso a comprobar que estaba y se enganchó. pasó un buen rato viéndola. no es una película porno al uso, aunque sí tiene elementos de las pelis pornos. es una descripción de la relación entre dos Amos, sus dos esclavos y el perro humano de uno de estos esclavos.</div><div style="text-align: justify;">cuando terminó el perro de verlas dio la casualidad de que habló con el Amo y le dijo cómo había sentido envidia por esos esclavos. inmediatamente el dueño hizo caer en la cuenta al perro que estaba tentado a la suerte porque esos vivían una mentira, porque eran actores. el perro estaba viviendo una realidad. fue algo simple, sencillo, directo, evidente, pero el perro se dio cuenta que había sido el ego el que le había hecho añorar algo que ya tenía. la cadena de los de la película es de atrezzo, la que el Dueño le pone al perro cuando está en su presencia es real, dura, sin posibilidad de quitársela. ellos terminan cuando el director dice corten, el perro no puede escapar y es un esclavo durante todo el tiempo.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

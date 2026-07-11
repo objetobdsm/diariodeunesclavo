@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5405 de esclavitud, castrado permanentemente"
+date: 2024-11-05 23:47:00 +0000
+permalink: /2024/11/dia-5405-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> un nuevo día de trabajo y de viajes por formaciones, en este caso a lanzarote. el objeto va y viene en el día, lo cual resulta agotado pero también muy gratificante porque la gente agradece el desplazamiento y son conscientes de que te pegues la paliza para hacer algo por ellos. sin embargo este "reconocimiento" ya no es nada para el objeto. su ego está tan "controlado" por mi Señor que al final no es eso lo que le da paz y tranquilidad. lo único que  da paz al objeto es mi Señor, existir bajo sus botas y obedecerle, someterse a Él, depende de Él. mi Señor ha estado trabajando con el objeto el tema de que nada humano puede afectar ya al objeto, porque el objeto existe fuera de la esfera de lo humano. es una idea en la que ha estado profundizando desde hace tiempo: si el objeto es lo más bajo, nada le puede afectar porque todo queda por encima del objeto. no hay fracasos, ni éxitos, no hay alegrías, pero tampoco tristezas. no le afectan las críticas ni los elogios. quien no lleva una existencia humana no puede verse afectado por los humanos. es cierto que esto es más fácil decirlo que vivirlo, especialmente porque el objeto aún está entre esos humanos, y a veces algún resquicio queda. pero como dice mi Señor "Eso solo es temporal, momentáneo. La única realidad es que me perteneces". y es así. todas las cosas que puedan pasarle al objeto fuera de su existencia como objeto no son más que eso, coyunturas, circunstancias que desaparecerán. lo único constante y definitivo es que es un objeto, una propiedad de mi Señor.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

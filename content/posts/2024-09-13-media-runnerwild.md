@@ -1,0 +1,11 @@
+---
+layout: post
+title: "media runnerwild"
+date: 2024-09-13 17:14:00 +0000
+permalink: /2024/09/media-runnerwild.html
+tags:
+  - mass media
+  - bdsmedia
+---
+
+<p style="text-align: justify;"> comenzamos una sección relativamente nueva. las publicaciones del viernes estaban destinadas a los media: series, películas, noticias en las que había un componente bdsm. a veces no había nada que poner así que el objeto no lo ponía. sin embargo se le ha ocurrido que es la sección ideal para comentar y poner blogs o páginas que están por internet y que tratan del bdsm. en este caso es un blog que utiliza imágenes de inteligencia artificial para recrear situaciones de un mundo donde la esclavitud es legal. por supuesto está en inglés: en el mundo latino no hemos llegado a este grado de profundización, pero merece una visita, sin duda.</p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/68/f1/68f1914af92b05d2fa3757746ff60d86cf79b9016881ec108f802f63f09cfd2c.jpg" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="1728" data-original-width="1152" height="640" src="/uploads/7a/ba/7abab59f6c167036512a3dd5fc5620572a3f03622e6834c0d9f42827ad5b71a8.jpg" width="426" /></a></div><br /><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/27/10/27104a7c0e1908c104379941d2f45db3ff5db356a17908de8eb9f460250a8dfb.jpg" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="1440" data-original-width="1152" height="640" src="/uploads/a1/88/a188f6ef38626bf2d7137c832a7aa4ba6d856e41117722e0efa93a153dedd2b5.jpg" width="512" /></a></div><br /><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/cd/41/cd41f74a2a8e03931b2e6c8d796a31edc900ade24e237dbbbfd3f6d688088841.jpg" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="1728" data-original-width="1152" height="640" src="/uploads/d9/eb/d9ebf9b5d8cfe81781c877325d07e14436679aad7ad06b47474419300d78a0f6.jpg" width="426" /></a></div><p style="text-align: center;"><a href="https://runnerwild.bdsmlr.com/archive" target="_blank">enlace al blog</a></p>

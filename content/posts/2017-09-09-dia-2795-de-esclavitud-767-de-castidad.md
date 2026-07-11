@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2795 de esclavitud, 767 de castidad"
+date: 2017-09-09 22:38:00 +0000
+permalink: /2017/09/dia-2795-de-esclavitud-767-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el día ha sido de relax y salir un rato para dar una vuelta. después de una semana como la que ha tenido el objeto la verdad es que fue de agradecer. no estar con la mente ocupada en cosas del trabajo ha hecho que el objeto vuelva a lo realmente importante, a que es un objeto que vive para obedecer al Dueño. es curioso cómo ocurren las cosas. fue un hecho inesperado, no planificado, que ocurrió de pronto, pero que ha tenido repercusiones enormes. cuando aquella tarde de verano el Dueño consiguió meter al objeto en un estado tan profundo que no se acuerda, aún, de lo que ocurrió, el Dueño abrió una puerta que ahora el objeto no puede cerrar, ni quiere tampoco. basta una palabra suya para que el objeto caiga en ese estado. a veces es más rápido, a veces requiere un poco más, pero es algo a lo que el objeto no puede resistirte. ocurre, sencillamente. y cada vez que ocurre hay consecuencias. el objeto nota como el Dueño ha ido apropiándose de partes de su mente. es algo difícil de explicar pero cada vez que ha servir al Dueño desde aquel día, el Dueño ha hecho entrar al objeto en ese estado y, la verdad, el objeto no puede estar seguro de lo que pasa cuando está ahí. lo recuerda, porque luego lo escribe inmediatamente, pero cuando intenta volver con su mente y su recuerdo, no lo consigue. es como cuando alguien intenta recordar un sueño de hace meses. y sin embargo, día a día, como hoy, el objeto nota al Dueño dentro de su cabeza, pulsando, como otra conciencia que está ahí. es algo muy raro, pero a la vez muy real. espera el objeto poder expresarlo mejor más adelante, cuando le haya podido dar más forma.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

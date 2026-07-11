@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD nuevas mazmorras"
+date: 2025-03-23 02:36:00 +0000
+permalink: /2025/03/fdd-nuevas-mazmorras.html
+tags:
+  - FdD
+  - leather
+---
+
+<p> </p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/da/4d/da4dbefd133e40385535adf2f533f0c675bc3878f32213504a51a805c127bda3.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="960" data-original-width="541" height="640" src="/uploads/27/03/27035522d3563fcefa4f307ba9fd38f678851b8965999d7c0cf0a57ce49fe653.jpg" width="360" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: justify;">sabes que algo se está moviendo cuando ves que las grandes tiendas de moda, tipo zara o springfield, empiezan a traer pantalones de cuero o botas, o material que era propio de la cultura fetichista o bdms. el último pase de modelos de dsquared2 vimos dos modelos que  parecían Amos salidos de un bar bdsm: completamente vestidos de cuero con gorras de plato incluidas. eso nos lleva a preguntarnos si el cuero, el latex y otras prendas fetichistas están pasando al mainstream, dejando de ser minoritarias. curiosamente esto está coincidiendo con un cierre sistemático de muchos grupos bdsm en plataformas como telegram. el dato que comentaba un Amo hace poco era de 25 en los dos últimos meses, lo cual no deja de ser preocupante. es posible por tanto, que la estética se esté imponiendo pero en la ética, en el contenido, vayamos hacia atrás. no es algo raro, suele ocurrir, especialmente en grupos marginales o no normativos. se asume la estética y se convierte en fuente de beneficios por el capitalismo haciendo que los vanilla parezcan disidentes, mientras se radicaliza la persecución contra estos grupos alternativos. de todas formas el bdsm ha sobrevivido en las mazmorras y en los sótanos. no queremos visibilidad ni reconocimiento. hemos podido vivir nuestra sexualidad hasta ahora y lo seguiremos haciendo. lo que ellos no saben es que sus golpes nos hacen más fuertes.... y además nos producen placer. </div><br /><p></p>

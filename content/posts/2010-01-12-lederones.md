@@ -1,0 +1,11 @@
+---
+layout: post
+title: "lederones"
+date: 2010-01-12 08:42:00 +0000
+permalink: /2010/01/lederones.html
+tags:
+  - imagenes
+  - leather
+---
+
+<a onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}" href="/uploads/cc/5a/cc5a2372b9c666298497787d1d3c42d78f7e36b2f5cb46a7cb0d4d7e4a3999db.jpg"><img id="BLOGGER_PHOTO_ID_5414267901229961634" style="DISPLAY: block; MARGIN: 0px auto 10px; WIDTH: 400px; CURSOR: hand; HEIGHT: 286px; TEXT-ALIGN: center" alt="" src="/uploads/cc/5a/cc5a2372b9c666298497787d1d3c42d78f7e36b2f5cb46a7cb0d4d7e4a3999db.jpg" border="0" /></a><br /><a onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}" href="/uploads/2f/f4/2ff4c4ee59b94e11578a9cce5ac1a50f2af88be99b226c97b7e7d07d231510e5.jpg"><img id="BLOGGER_PHOTO_ID_5414267896055991010" style="DISPLAY: block; MARGIN: 0px auto 10px; WIDTH: 320px; CURSOR: hand; HEIGHT: 400px; TEXT-ALIGN: center" alt="" src="/uploads/2f/f4/2ff4c4ee59b94e11578a9cce5ac1a50f2af88be99b226c97b7e7d07d231510e5.jpg" border="0" /></a><br /><a onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}" href="/uploads/af/6f/af6f1c3c72253a73e74323b79790b1e1b262b31c6d694274dbccafb24682d1a7.jpg"><img id="BLOGGER_PHOTO_ID_5414267894835232706" style="DISPLAY: block; MARGIN: 0px auto 10px; WIDTH: 354px; CURSOR: hand; HEIGHT: 400px; TEXT-ALIGN: center" alt="" src="/uploads/af/6f/af6f1c3c72253a73e74323b79790b1e1b262b31c6d694274dbccafb24682d1a7.jpg" border="0" /></a><br /><div align="justify">a nadie que haya seguido mínimamente este blog se le escapa mi afición y mi devoción por los tios vestidos de cuero. se ha convertido casi en una obsesión, por eso me considero un fetichista de ese material. muchas veces he dicho, y sigo recalcándolo, que basta ver a alguien con una prenda de cuero para que me quede mirando embobado. últimamente las botas han ganado bastante terreno, deduzco que por influencia de mi anterior AMO, y ahora también entro en ese estado cuando veo un botero. para animarme el día les pongo estas fotos que espero sean de su agrado.</div>

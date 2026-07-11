@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5410 de esclavitud, castrado permanentemente"
+date: 2024-11-10 23:57:00 +0000
+permalink: /2024/11/dia-5410-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> cualquiera podría pensar que un día encerrado, sin nada especial que reseñar, es un día perdido. pero para los objetos ningún día es perdido. un día estando almacenado, sin ser usado por mi Señor, es un día con sentido, el sentido de la existencia. eso sería como decir que no merece tener un par de botas porque un día mi Señor no se las pone. mi Señor de hecho colecciona figuras, que no "usa" sino contempla y disfruta viendo. si el objeto fuera algo así, no para ser usado sino contemplado o poseído, también todo tendría sentido. el objeto estuvo en casa, leyendo y trabajando en silencio, con el aire acondicionado puesto porque estamos en medio de una ola de calor. de hecho hace más calor que en verano, 30ºC. aún así mi Señor ha ordenado que mañana lleve las botas. son algo irrenunciable, parte de la naturaleza del objeto. forman parte de su esencia. al igual que la jaula y la mordaza, y en algún momento, la capucha que anule la identidad del objeto.</p><p style="text-align: justify;">con respecto a la jaula nueva el objeto lo ha estado intentando y no hay forma. la piel de su escroto es demasiado ancha y queda pillada con el aro y la jaula, así que, por ahora, no podrá usar la jaula negativa, esta no al menos. lo interesante ha sido la conversación que se ha creado en la comunidad al respecto, en referencia a la castración, física o química, de la que habló mi Señor. algunos esclavos han preguntado sobre eso y han intercambiado opiniones. el objeto cree que por fin ha conseguido lo que buscaba: un grupo de Amos y esclavos que estaban dispersos y que comparten una misma visión del bdsm.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

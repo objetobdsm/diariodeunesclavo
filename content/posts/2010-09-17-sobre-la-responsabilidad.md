@@ -1,0 +1,12 @@
+---
+layout: post
+title: "sobre la responsabilidad"
+date: 2010-09-17 07:30:00 +0000
+permalink: /2010/09/sobre-la-responsabilidad.html
+tags:
+  - vida real
+  - esclavitud
+  - sumision
+---
+
+<div style="text-align: justify;">en una relación D/s es el AMO el que asume la mayor parte de la responsabilidad. cuando acepta a un esclavo, acepta también su cuidado, la orientación, el apoyo, la educación, la formación, el soportarlo en momentos de crisis, etc. es una gran carga y no deja de sorprenderme que alguien esté dispuesto a asumirla. por eso valoro tanto a cualquiera que sea Amo y que desee recorrer ese camino. produce en mi sentimientos de agradecimiento y reconocimiento. me parece que ser Amo es más difícil que ser esclavo, al menos para mi, por eso, supongo, ocupo el lugar que ocupo.</div><div style="text-align: justify;">el esclavo también asume una responsabilidad, pero se me antoja que la obediencia que debe, hace que ésta sea delegada. es el AMO quien decide y suya también la responsabilidad. el esclavo es responsable de llevar esas órdenes hasta sus últimas consecuencias y de la mejor manera posible.</div><div style="text-align: justify;">aparentemente la obediencia es más difícil que la responsabilidad porque en el mundo no bdsm, en el no-mundo, se prima la libertad sobre la sumisión, entendida ésta como irresponsabilidad absoluta: no quieres saber de nada ni de nadie, salvo lo más inmediato y sin que produzca complicaciones. normalmente el no-mundo entiende la libertad como hacer lo que te apetezca sin pensar ni asumir las consecuencias, es decir, de modo irresponsable.</div><div style="text-align: justify;">traspasado a nuestro mundo la gente cree que ser Amo es ser libre sin responsabilidades, y nada más lejos de la realidad. a mayor capacidad de acción, mayor grado de responsabilidad y mayor repercusión de las decisiones que tomas. hacer lo que te da la gana en cada momento sin pensar en las consecuencias es fácil, llevar a un esclavo por el camino de la sumisión es extremadamente complicado. por eso hay amos y AMOS. en mi caso sé que pertenezco a un AMO porque nada de lo que hace le es ajeno o elude sus responsabilidades. por eso ante EL sólo puedo arrodillarme e inclinar la cabeza a sus pies, en reconocimiento de su valía y en agradecimiento por no haberme dejado abandonado y perdido. EL es mi AMO, el último que tendré. será EL o nadie.</div>

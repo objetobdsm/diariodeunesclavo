@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5589 de esclavitud, castrado permanentemente"
+date: 2025-05-04 22:33:00 +0000
+permalink: /2025/05/dia-5589-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el día de hoy se ha dividido la mañana en que el objeto estuvo enfermo. realmente fue un dolor de espalda y un orzuelo que le ha salido al objeto. una vez terminadas las formaciones fuentes parece que, como en otras ocasiones, relajarse ha implicado que salgan algunas tensiones contenidas. </p><p style="text-align: justify;">por la tarde el objeto estuvo trabajando en el master y entregó una tarea del mismo. la espalda le seguía doliendo y el orzuelo seguía allí también. la combinación de todos estos elementos hizo mella en el objeto, haciéndole perder un poco la ataraxia y la propia existencia. el objeto lo pone bajo las botas de mi Señor que le explicó lo que estaba pasando. no es un problema sino un pequeño bache debido a las condiciones en que tiene que estar el objeto, por ahora.</p><p style="text-align: justify;">el entrenamiento del puto ha dado hoy un giro inesperado, tiene como orden que debe pedir permiso para comenzar y para terminar el día. y anoche se le olvidó hacerlo. por la mañana de hoy el objeto estaba esperando que pidiera permiso y lo hizo pero no había caído en que ayer se le olvidó. el objeto se lo hizo ver y el punto se sintió avergonzado. por supuesto merecía un castigo y por supuesto lo recibió. en este caso se trató de escribir cien veces una frase, como un castigo de escuela. además aprovechó el objeto para tener una tutoría muy intensa con el punto de forma que un fallo se convirtió en una oportunidad fantástica para aprender y enseñar al puto lo que significa ser un esclavo.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2089 de esclavitud, 61 de castidad"
+date: 2015-10-04 22:28:00 +0000
+permalink: /2015/10/dia-2089-de-esclavitud-61-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el perro ha estado todo el día en casa. estuvo navegando por internet y encontró, en un blog sobre castidad, la siguiente frase: "realmente la castidad no va de no correrse, sino de renunciar al control de tu cuerpo y darle ese control a otra persona". esta frase encierra todo el sentido que tiene vivir en castidad. no es una cuestión de autosatisfacción, sino una práctica de sumisión hacia el Amo, el Dueño en este caso.<br/>la cosa va mejorando. cada vez el perro encuentra más esclavos en fetlife. desde que le "bloquearon" en facebook el perro sabe que no necesita esa red social. es el probllema del que abusa de poder. ocupar una posición de monopolio es tener un gran poder, y hace falta saber controlar el ego para ser capaz de controlar ese poder y mucho teme el perro que el ego crecido es algo muy ocmún en la sede de facebook.<br/>en concreto el perro ha mantenido diálogos con un esclavo de costa rica, en el otro lado del atlántico. como en otras ocasiones es una pena que no haya sido tomado como propiedad por ningún Amo o Ama, porque a él no lel importaría si fuera uno u otra. fetlife ofrece más información, libertad y sintonía con el bdsm que cualquier otra red social que conozca el perro. desde aquí reitera la invitación a unirse a ella, a pesar de que está en inglés. el perro estará conectadoa a fetlife mientras esté delante del ordenador y aceptará cualquier invitación de amistad así que, si alguien desea hablar con el perro, ese es el camino más directo. así lo quiere el Dueño y así obedece el perro.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo</p>

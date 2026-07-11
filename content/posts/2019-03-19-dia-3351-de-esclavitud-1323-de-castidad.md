@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3351 de esclavitud, 1323 de castidad"
+date: 2019-03-19 22:32:00 +0000
+permalink: /2019/03/dia-3351-de-esclavitud-1323-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hoy recordando el pasado, alguna expe­riencia realmente marcante el objeto recuerde una vez que fue a servir al Dueño. tal vez fuera la premiere vez que fue con una jaula de castidad. era una de plástico cb 3000 o algo así. pero comprada en china, de muy mala calidad. en un momento dado el Dueño amordazó fuertemente objeto con cinta americana, dándole varias vueltas alrededor de la cabeza. luego ató fuertemente las manos del objeto a la espalda y empezó a torturarle los pezones. no sabe el objeto si fue por la mala calidad o por la excitación que se rompió el aro de la jaula y le pincho un buen trozo de la piel del escroto. el dolor era muy intenso y el objeto intentó decirle al Dueño que estaba pasando pero era imposible. no podía articular palabra ni emitir sonidos salvo gruñidos que el Dueño interpretó relacionados con la tortura de los pezones. el dolor se hacía cada vez más intenso y los ojos del objeto empezaron a llorar. las lágrimas caían mientras el objeto seguía forzando las ataduras sin resultado e intentaba explicar al Dueño que el aro de la jaula le estaba pinchando el escroto. lo peor fue tal vez la impotencia que sentía el objeto y la desesperación por no poder comunicarse. cuando las lágrimas eran demasiados para la tortura de los pezones, el Dueño paró y le quitó la mordaza al objeto que le comunicó lo ocurrido. para cualquiera pudiera parecer una escena que salió mal y que hay que garantizar que el inferior puede usar la palabra de seguridad, pero para el objetivo, ahora en la distancia, es uno de mis mejores recuerdos y una de las situaciones más intensas como esclavo porque no tenía control sobre lo que pasaba. no podía huir ni pedir auxilio. no podía escapar del dolor y tenía que aceptarlo. el objeto estaba perdido en su propia sumisión y no podía hacer nada para evitarlo.<br/>sumisión en silencio, castidad y obediencia ciega</p>

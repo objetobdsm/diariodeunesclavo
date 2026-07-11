@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1187 de esclavitud"
+date: 2013-04-16 20:17:00 +0000
+permalink: /2013/04/dia-1187-de-esclavitud.html
+tags:
+  - personal
+---
+
+<br />20 días de castidad, 20 días desde el último ordeño<br /><div style="text-align: justify;">hoy el perro, como todos los días desde hace cerca de un mes, tras ducharse por la mañana, se puso la jaula como ha ordenado su Dueño y Señor. la ha llevado puesta todo el día, por la mañana y por la tarde. durante la mañana estuvo resolviendo problemas sin para, a medida que iban apareciendo. casi no le molestó, salvo en algún momento que pensó que, debido a la postura, se había pinchado un testículo. sin embargo lo mejor vino por la tarde, cuando el perro, por cuestiones de trabajo, tuvo que hablar ante un auditorio de unas 70 personas. en aquel momento no lo pensó, pero luego se dio cuenta que había estado enjaulado delante de ellos, que su polla y sus genitales habían estado controlados por su Dueño incluso en aquella situación donde todos le escuchaban atentamente. fue una experiencia interesante por eso. ¿quién dijo que no era posible vivir la esclavitud 24/7? en aquel momento era un perro esclavo, hablando delante de mis compañeros de trabajo, pero un perro esclavo al fin y al cabo. </div><div style="text-align: justify;">el Dueño sabía de la situación y le dio una orden taxativa al perro: "Nadie te pisa. Solo yo o quien yo quiera". por supuesto el Dueño fue obedecido y nadie pisó al perro. el perro hizo su trabajo, y lo hizo lo mejor posible para, así también, honrar a su Amo. una vez terminado éste, ya a las siete de la tarde, el perro regreso a casa, donde se quitó la jaula para limpiarla. sólo el hecho de llevarla con honor y orgullo, llena al perro de satisfacción.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

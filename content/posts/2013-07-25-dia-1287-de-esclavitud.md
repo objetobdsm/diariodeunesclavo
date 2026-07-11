@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1287 de esclavitud."
+date: 2013-07-25 21:28:00 +0000
+permalink: /2013/07/dia-1287-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">120 días de castidad, 120 desde el último ordeño.</div><div style="text-align: justify;">en números redondos, día más, dia menos. hoy hace cuatro meses que el perro está en castidad. es mucho tiempo, muchísimo. el perro no recuerda haber estado tanto tiempo sin correrse siquiera, ni ordeñarse, ni nada. lo sorprendente para el perro es que haya esclavos y Amos que no entiendan las opciones que el perro tomó y la vida que el Dueño le está dando al perro. recibir críticas de los que no son amantes del bdsm lo entiende, pero que también vengan críticas de esclavos solo le puede llevar a pensar que esos esclavos no saben lo que es realmente la sumisión.</div><div style="text-align: justify;">el perro recuerda muy bien la crítica de un Amo que le comentaba que se había encontrado con esclavos que decían ser muy sumisos pero que después eran incapaces hasta de arrodillarse, hasta de lamer unes simples botas. igual que hay Amos que piensan que dominar es follar fuerte, hay esclavos que piensan que someterse se limita a ser follados fuertemente. las dos cosas son falsas.</div><div style="text-align: justify;">ser esclavo tiene que ver con la obediencia, con acatar órdenes, con poner la confianza en tu Amo. la sumisión tiene que ver con la existencia de un orden en el que el Amo está arriba y tú estás abajo y ese orden da estabilidad a tu existencia, a tu vida. como esclavo puede este perro atestiguar, que desde que pertenece al Dueño, el perro ha crecido, ha mejorado en todos los aspectos. el perro está más tranquilo y calmado, más centrado.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

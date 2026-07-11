@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1369 de esclavitud"
+date: 2013-10-15 22:24:00 +0000
+permalink: /2013/10/dia-1369-de-esclavitud.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;"><br/>30 días de castidad, 10 desde el último ordeño<br/>el perro intentó hoy levantarse temprano para actualizar el blog antes de ir a trabajar, pero fue imposible. el cuerpo no respondía. el descanso es necesario y haber trabajado este fin de semana se arrastra.<br/>aún así hoy ha sido un día intenso porque el Dueño estaba de un estado anímico muy concreto. es ese estado en el que lo mejor que puede hacer el esclavo es ofrecerse, someterse, y aceptar ser torturado, ofreciéndolo su dolor para mejorar el ánimo del Dueño. este perro entraría en esa dinámica gustoso. hoy hubiera soportado cualquier cosa con tal de que el Dueño estuviera a gusto.<br/>en el fondo es la conclusión lógica de todo el proceso. si perteneces al Dueño, el Dueño tiene derechos sobre ti, tiene derecho a cualquier cosa, incluso a producirte dolor para su placer. no cree el perro que sea tanto un tema de sadismo, cuanto un ejercicio de la propiedad que llega al extremo de ver como alguien sufre porque te pertenece. es este un matiz importante que no debe infravalorarse.<br/>el hecho es que mantuvimos una conversación muy intensa donde las palabras: propiedad, anulación, objetificación, aparecieron muy a menudo.<br/>incluso en la distancia, el perro sufrió porque la jaula contenía la polla del perro que luchaba por salir ante sus palabras. no podía el perro hacer nada sino someterse y obedecer al Dueño.<br/>todo el resto del día fue nada en comparación a eso. el perro estaba dispuesto, en la distancia, a cualqueir cosa. la distancia nunca ha sido un inconveniente pero a veces es muy pesada y en días como hoy, uno desearía estar a los pies del Dueño, y vivir encerrado en la mazmorra.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

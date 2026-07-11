@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD egoísmos"
+date: 2012-09-09 07:57:00 +0000
+permalink: /2012/09/fdd-egoismos.html
+tags:
+  - leather
+  - FdD
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/92/2a/922abbd5f7fc10170cca7601c488fa5ff3288e34fdf0c0b1cde76892d90bc312.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/92/2a/922abbd5f7fc10170cca7601c488fa5ff3288e34fdf0c0b1cde76892d90bc312.jpg" /></a></div><div style="text-align: justify;">en la tradición de la Vieja Guardia, se consideraba que los chaps eran una prenda que indicaba un menor compromiso que los pantalones completamente de cuero. la combinación jeans/cuero no era bien vista. sin embargo hoy en día los chaps son claramente una prenda bdsm, mientras los pantalones de cuero han entrado a formar parte del armario de muchas personas a las que el bdsm no les llama la atención. hoy en día estos valores se han invertido, los chaps son una prenda inequívocamente fetiche. cada vez que reflexiona este perro sobre esto, no puede evitar recordar la premisa, también de la Vieja Guardia, de que los cueros uno tenía que ganárselos, bien mostrando su dedicación y compromiso, bien realizando alguna tarea o función que mereciera entregarlos. el tema era llevarlos con orgullo, porque imperaba la premisa de que lo que no es ganado con esfuerzo, no es valorado. así, hoy en día, hay gente que lleva el cuero, pero que sinceramente no se lo merece, bien porque son Amos que utilizan sin ninguna consideración a sus esclavos, o sumisos que lo único que pretenden es usar a sus Amos para conseguir placer, y todo lo que ellos desean. en ambos casos la relación gira en torno a ellos exclusivamente cuando, de hecho, la relación D/s gira alrededor del otro. el Amo cuida, guía y protege al esclavo y hace que se desarrolle ofreciéndole la oportunidad de darle placer al Amo; el esclavo obedece y se somete a los deseos y órdenes del Amo. desde esta perspectiva no hay nada menos egoísta que una relación de Dominación/sumisión </div>

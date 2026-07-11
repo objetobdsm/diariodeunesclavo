@@ -1,0 +1,10 @@
+---
+layout: post
+title: "542 días de esclavitud"
+date: 2011-07-11 22:18:00 +0000
+permalink: /2011/07/542-dias-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">hoy he tenido un mosqueo serio, con algo de mi no vida. la gente no parece entender determinadas cosas, y aquellos en los que confías te vuelven la espalda y acaban traicionándote. soy consciente de que es un sentimiento duro y bastante negativo, pero tal vez por eso valoro tanto la palabra dentro de mi vida, cuando la das, la tienes que mantener. los valores de lealtad, fidelidad, coherencia con la palabra dada son importantes, muy importantes porque es lo único que nos mantiene en una relación D/s. la esclavitud no es legal, nos guste o no, y entonces solo queda la promesa dada. ayer mismo me sugirieron romper esa promesa y quedar para tener sexo sin decírselo a mi Dueño. por supuesto podría haberlo hecho, pero entonces ¿qué? ¿qué sentido tiene todo el entrenamiento, toda la preparación, el mismo compromiso dado a mi Dueño? "no se va a enterar", me dijo. no importa, pensé yo, siempre sabré que he cometido una falta y que no he cumplido mi palabra. desde ese momento valdré menos como esclavo y menos aún como persona. </div><div style="text-align: justify;">cuento esta experiencia porque en mi no-vida la palabra prácticamente no vale nada. cada vez estoy descubriendo a mi alrededor más actitudes ego-istas, ego-céntricas, egó-latras..... tal vez sea por el trabajo realizado estos meses sobre el ego, o tal vez sea sencillamente que la gente se va manifestando tal y como es con el tiempo. el hecho es que me siento profundamente decepcionado con determinadas personas de mi entorno más inmediato. sin embargo esto tiene algo de positivo. supongo que no los echaré de menos cuando de el Gran Salto y acabe encerrado en la mazmorra de mi Dueño.</div>

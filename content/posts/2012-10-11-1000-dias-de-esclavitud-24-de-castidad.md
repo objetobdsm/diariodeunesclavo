@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1000 días de esclavitud, 24 de castidad"
+date: 2012-10-11 22:00:00 +0000
+permalink: /2012/10/1000-dias-de-esclavitud-24-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">era un día aparentemente normal, con mucho trabajo por la mañana y la facultad por la tarde, sin embargo sentí la alegría del Dueño cuando le mandé un mensaje diciéndole lo de los 1000 días. eso fue suficiente para animar el día y hacer que este perro se sintiera feliz. el tiempo pasó y a última hora de la tarde empezó a enviarme mensajes diciendo lo que quería que hiciera para conmemorar este dia. debía vestirme completamente de cuero, amordazarme, ponerme las muñequeras de cuero y la capucha y grabar un video con un cartel donde diera las gracias por estos 1000 días de esclavitud. cuando este perro llegó a su casa lo hizo como había ordenado el Dueño. se lo envió y luego se ordeñó, también por orden del Dueño, intentando disfrutar. debía ordeñarme con un video concreto en el que aparecía lamiendo las botas del Amo, que El había grabado en uno de nuestros encuentros. sin embargo no pude llegar a ese video concreto porque buscándolo, encontró este perro uno en el que estaba amordazado mientras el Amo le ponía las botas en la cara, y otro donde este perro aparecía comiéndoselas. aquello fue demasiado para un perro y enseguida salió la leche. fue un poco extraño porque, al tener que ver el video, este perro se ordeñó sentado, no a cuatro patas como las últimas veces, pero sabe que esto es una excepción por el tiempo transcurrido, que su forma natural de ordeñarse será como la de los animales, a cuatro patas.</div><div style="text-align: justify;">en cualquier caso ha sido un gran día porque este perro ha servido al Amo y el Amo está contento y feliz, renovando la promesa de esclavitud permanente y de que este perro no volverá a ser libre nunca más.</div>obediencia ciega para el esclavo, poder absoluto para el Amo.<br />

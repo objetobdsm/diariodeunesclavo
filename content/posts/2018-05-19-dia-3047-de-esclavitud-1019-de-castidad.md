@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3047 de esclavitud, 1019 de castidad"
+date: 2018-05-19 22:16:00 +0000
+permalink: /2018/05/dia-3047-de-esclavitud-1019-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">cada cual tiene derecho a poner sus límites, a llegar a donde quiera, a servir de la manera que, voluntariamente, se haya negociado. es cierto que un trato es un trato y que, una vez hecho, el mismo trato debe contener los límites del mismo, su duración y la forma de renegociarlo. todo inferior tiene derecho a entrar en el bdsm siguiendo su propio ritmo, atendiendo a sus propias necesidades, sin ser forzado más allá de donde quiera o desee ir. este objeto reivindica este derecho para los inferiores, para otros inferiores. esto, sin embargo, no lo desea para esto. en algún momento del proceso, ya tampoco importa mucho cuando, aunque hay un video que tanto objeto como Dueño identifican como ese momento, el objeto se rompió y supo que había llegado a casa. no fue consciente hasta tiempo después, pero ahora sabe que en ese momento perdió toda posibilidad de volver a ser libre alguna vez. se entregó en cuerpo, alma y espíritu al Dueño y Éste lo cogió y lo encadenó a su vida. ahora esto no desea ninguna consideración, ningún límite, ninguna opción de decidir, de voluntad. al contrario. ahora sabe que todo lo que hace el Dueño es por su bien, que sólo siguiendo sus órdenes será feliz y que cualquier deseo que tenga el Dueño debe ser una norma para la vida del objeto. incluso en la distancia el Dueño lo ve todo, lo sabe todo, lo siente todo. es como si tuviera una cámara que lo observara permanentemente. pero la realidad es otra, que hasta hace poco el objeto no sabía. no es que el Dueño sepa como piensa el objeto, es que el objeto ya piensa como lo desea el Dueño. el lavado de cerebro, la reprogramación es una realidad porque el Dueño lo realiza cada día con el objeto. la grandeza de esto es que el propio objeto no se había dado cuenta de eso. ahora ya no hay escapatoria, pero ¿quién querría huir de aquello que ha deseado toda su vida?<br/>sumisión en silencio, castidad y obediencia ciega.</p>

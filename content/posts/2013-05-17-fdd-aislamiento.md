@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD aislamiento"
+date: 2013-05-17 06:16:00 +0000
+permalink: /2013/05/fdd-aislamiento.html
+tags:
+  - bondage
+  - privación sensorial
+  - FdD
+---
+
+<br /><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/38/ab/38abebb1d6ba4c894e697a99a2ec7a5bcea0b384131e0e8c551a1ad2a17ee809.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/38/ab/38abebb1d6ba4c894e697a99a2ec7a5bcea0b384131e0e8c551a1ad2a17ee809.jpg" /></a></div><div style="text-align: justify;">frente a la humillación pública de ayer, el aislamiento de hoy; frente a vivir hacia afuera, el volverse hacia dentro. son las dos caras de la moneda de la esclavitud. el perro no sólo debe vivir experiencias, debe además interiorizarlas, asumirlas, integrarlas, hacerlas suyas. la único forma de hacer eso es estar consigo mismo aislado. parece algo muy obvio pero también muy escaso y difícil de conseguir. normalmente los humanos no desean estar solos, porque eso implica enfrentarte contigo mismo, con tus defectos y virtudes. estar a solas contigo mismo implica aceptarte como eres y eso no está dispuesto todo el mundo. a los esclavos les pasa igual por eso es necesario a veces provocar la situación. precisamente cuanto menos dispuesto esté el esclavo, más necesario hacerlo porque eso indica que está volcado hacia fuera.</div><div style="text-align: justify;">las normas son sencillas; impedir que puede moverse pero asegurándose que puede estar atado un prolongado período de tiempo, y privación sensorial. la mejor forma de conseguir esto últimamente es como una capucha que elimine los estímulos sensoriales. una vez conseguido esto hay que dejar al perro en un lugar. al principio se resistirá hasta que acepte que no hay escapatoria. luego  cuando al final consiga rendirme, empezará a entrar en contacto con su yo más profundo. es como domar a un caballo. al principio salta y se encabrita, pero luego, si perseveras, se amansa y lo domas. esto no ocurra hasta que el esclavo pierde la excitación por ser esta atado y quiere liberarse de su situación. entonces es cuando empieza el proceso más interesante. para todo esto falta el tener elemento, tal vez el más importante: tiempo.</div>

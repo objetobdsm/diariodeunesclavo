@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1111 días de esclavitud, 5 de castidad,1 del último ordeño"
+date: 2013-01-30 22:11:00 +0000
+permalink: /2013/01/1111-dias-de-esclavitud-5-de-castidad1.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">.el perro no sabe lo que le pasa hoy. ha cometido dos fallos estúpidos con respecto a sendas órdenes del Dueño. han sido sin intención, auténticos despistes, pero no por ello dejan de ser "desobediencias". la primera fue por no leer adecuadamente las instrucciones que el Dueño había dado sobre un pequeño encierro que tenía que hacer, y la segunda fue que al terminar dicho encierro tenía que hacer algo que al perro se le pasó completamente. cuando el Dueño le hizo caer en la cuenta, la vergüenza fue mayúscula. por supuesto hubo un castigo aunque el Dueño fue comprensivo. el motivo de tal estado de despiste, aparte de la no-vida, que cada vez es más asfixiante, fue que, tras el ordeño de ayer, el Dueño ha establecido que ya no merezco usar mi pene para nada que no sea una mera función fisiológica de orinar y, de vez en cuando, vaciar el interior de los testículos. por tanto, a partir de ahora, ha establecido que eyaculare siempre flácido, sin tener erección. para conseguirlo debo hacerlo siempre con algo insertado en el ano, preferiblemente el estimulador de ayer. si ordena un ordeño debe el perro deternerse en cuanto comience a ponérseme dura. al final parece que lo de ayer si fue realmente un ordeño prostático, porque hoy el perro no ha parado de supurar cada vez que iba al baño, cosa que no ocurría cuando la eyaculación era con orgasmo. en definitiva el Dueño quiere que todos los ordeños sean como el de ayer. esa orden ha dejado al perro un poco en estado de shock, desconcertado, despistado. es cierto que eso va más acorde con su naturaleza, y con los objetivos que se había planteado, pero también suscita algunos miedos, sobre todo porque lo de ayer fue desconcertante y, hasta cierto punto, involuntario. es de suponer que podrá repetirlo pero resulta más duro con algo metido en el ano.<br />obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

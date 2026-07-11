@@ -1,0 +1,8 @@
+---
+layout: post
+title: "FdD códigos tradicionales"
+date: 2021-11-13 06:45:00 +0000
+permalink: /2021/11/fdd-codigos-tradicionales.html
+---
+
+<div dir="ltr"><div>FdD códigos tradicionales</div><div><a href="/uploads/12/85/1285b11daff939d134d21cd38940f689f43c10d26bfba8237222fc47b3e2727d.png"><img alt="" border="0" height="474" id="BLOGGER_PHOTO_ID_7031055289389065330" src="/uploads/80/02/8002eae6f6eb75de60eb9aa7c42d7dce4c86d7302de7522b6e5dae618a8bad6a.png" width="640" /></a></div><div style="text-align: justify;">en el listado de códigos tradicionales del bdsm, tener ropa fetichista con una línea amarilla como la FdD de hoy significa que le gustan los water sports, en concreto jugar con la orina: hacerla beber, la lluvia dorada, etc. el objeto no deja de maravillarse de la pluralidad de fetiches que hay. es toda una declaración de principios de la variedad de la sexualidad humana, pero también de que, al menos en el bdsm, todos tienen un elemento común, que está también en otras formas de sexualidad pero no tan explícitamente: la asimetría de la relación, el juego del poder, el intercambio del control. aquí no es sencillamente que alguien lleve un distintivo amarillo. ese distintivo está sobre un pantalón de cuero que se introduce en una bota alta. no es sólo la orina, es la orina en una relación de poder, de control, de Dominación y sumisión. es lo característico del bdsm, porque en este contexto hasta tomar café puede convertirse en un fetiche, siempre que hay alguien que controle y alguien que se someta.</div></div>  

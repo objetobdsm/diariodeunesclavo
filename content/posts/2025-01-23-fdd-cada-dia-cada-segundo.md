@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD cada día, cada segundo"
+date: 2025-01-23 07:50:00 +0000
+permalink: /2025/01/fdd-cada-dia-cada-segundo.html
+tags:
+  - FdD
+  - chaps
+  - leather
+---
+
+<p></p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/58/70/5870a8099c072b59b7f6e90a7c181d59ac4f74a02a6c9d66c8c5c8f1b83fd025.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="875" data-original-width="639" height="640" src="/uploads/82/ef/82efccfacfac5238e169de443263d46d7819b06bfe581c4be7c058dc18dda112.jpg" width="468" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: justify;">cuando un inferior se convierte en esclavo de un Amo nada le pertenece: ni sus propiedades, ni su mente, ni siquiera su cuerpo. este se convierte en un instrumento para, en primera instancia, dar placer a su Señor. no hay intimidad, no hay nada privado, nada que pueda o deba ser ocultado al Amo. aquello que las personas humanas se reservan para si ya no tiene sentido cuando uno es una propiedad de su Dominante. esto es lo más evidente en una relación bdsm pero a veces los árboles no nos dejan ver el bosque, y nos olvidamos de algo importante, como es el hecho de que también el esclavo ha perdido la capacidad de vestirse con lo que le gustaba, de cortarse el pelo al estilo que lo hacía antes, de comer la comida que le encantaba. todo eso también entra a ser parte de lo que el Amo tiene, posee y ordena. por supuesto todo esto está limitado por la negociación previa y por el estilo de relación de Dominación/sumisión que hayan establecido, pero en su forma más radical, la esclavitud implica todo esto. y esto es, justamente, lo más duro. porque someterse en una sesión está bien, es excitante, produce placer. pero cuando la sesión termina y te miras al espejo y ves que estás rapado, con lo que te gustaba tu pelo, o que llevas una ropa que te parece humillante o tienes que escuchar todo el día la música clásica que deleita a tu Amo pero que tú nunca escucharías, la esclavitud y la sumisión se ponen a prueba. es en el día a día, como en cualquier relación, donde se forja el auténtico vínculo entre Amo y esclavo, no en una sesión que dura lo que dura y que llega hasta donde llega. éstas sirven para reforzarla, para asentarla, para profundizarla incluso, pero servir a tu Señor es una cosa de cada minuto de tu existencia.</div><br /><p></p>

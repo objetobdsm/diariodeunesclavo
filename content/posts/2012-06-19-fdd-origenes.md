@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD orígenes"
+date: 2012-06-19 07:51:00 +0000
+permalink: /2012/06/fdd-origenes.html
+tags:
+  - leather
+  - FdD
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/46/22/46224d858fb008e74a2c990730f5951ceea71f62002ee81acdf63d824b00d57e.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/46/22/46224d858fb008e74a2c990730f5951ceea71f62002ee81acdf63d824b00d57e.jpg" width="326" /></a></div><div style="text-align: justify;">siempre han existido Amos, y siempre han existido esclavo. tal vez no fueran como los conocemos hoy en día, pero esta realidad forma parte de la existencia humana. siempre ha existido gente que tomaba el control y gente que lo cedía. es cierto que la forma que ha adquirido últimamente, tal y como la conocemos, proviene de la segunda guerra mundial y que tiene un trasfondo militar, de soldados que vivieron experiencias fuertes de obediencia y dolor en entornos completamente masculinos. en una guerra se obedece sin rechistar, se confia plenamente en tus compañeros porque tu vida depende de ello, y el uniforme marca la diferencia entre la vida y la muerte. no es de extrañar que en este entorno se desataran los instintos más profundos que estaban allí latentes. nosotros somos herederos de esa historia y debemos honrarla y respetarla. por eso las normas y las reglas rigen nuestra vida, vestimos de una forma concreta que nos identifica y nos situa en el mundo, y, sobre todo, vivimos según una jerarquía donde hay quienes ordenan y quienes obedecen. una vez aceptado esto la vida es muy sencilla, muy fácil, casi demasiada. no somos bichos raros, tenemos una historia, que ha sido silenciada en muchos sentidos. este perro no puede dejar de pensar que hubiera pasado si llega a nacer 20 o 30 años antes, sin internet, sin contacto exterior. posiblemente no habría desarrollado estos sentimientos y tomado estas opciones que le han llevado a ponerse a los pies de su Dueño, pero no dejaría de ser un sumiso y posiblemente esta tendencia hubiera salido por otro lado. en cualquier caso este perro está agradecido de vivir en esta época, poder escribir este blog y poder pertenecer a su Dueño.</div>

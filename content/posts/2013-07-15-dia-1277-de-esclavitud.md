@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1277 de esclavitud."
+date: 2013-07-15 21:58:00 +0000
+permalink: /2013/07/dia-1277-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">110 días de castidad, 110 desde el último ordeño.</div><div style="text-align: justify;">el perro ha vuelto un poco a la normalidad, después de aproximadamente de tres meses de trabajo intenso, muy intenso. por la mañana fue a la facultad a terminar algunas cosas que le han quedado pendientes, y por la tarde tomó café con dos amigos, aunque pareció más un encuentro de trabajo. el perro llevó la jaula puesta todo el día, y se dio cuenta de que, sin ella, ya no sería él mismo. es como si hubiera cruzado una puerta sin retorno, un paso del que no pudiera o quisiera dar marcha atrás. desde que pertenece al Dueño siempre ha buscado algo que le hiciera sentir permanentemente esclavo, permanentemente controlado, un símbolo de su sumisión. pensó en una época que un collar, o una cadena que se pudiera llevar públicamente sería lo adecuado, pero nada se puede comparar a una jaula que aprisiona los genitales. nunca te olvidas realmente que la llevas y cuando tomas conciencia de que está ahi, que es la mayor parte del tiempo, siempre viene el Dueño a tu mente. en la no-vida es un recordatorio permanente de que no perteneces ya a ese mundo en que el que se supone que estás, sino a otro, que aunque aparentemente oculto, siempre está presente. cuando estos amigos preguntaban mi opinión o querían que les contara algo, no podía el perro evitar pensar en lo que dirían si pudieran tocar la entrepierna y darse cuenta de lo que llevaba allí. el hecho es que el perro les dio su opinión, les comentó cosas, pero nunca, en ningún momento, dejó de ser un perro, una propiedad de su Dueño.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1901 de esclavitud, 348 de castidad"
+date: 2015-03-29 22:35:00 +0000
+permalink: /2015/03/dia-1901-de-esclavitud-348-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el perro ha vuelto hoy a estar centrado en su pene. ha vuelto a recordar cuando era suyo y lo usaba para darse placer hasta hacerse daño y como hoy sería uno de esos días. lo hizo con cierta añoranza, melancolía podría decir incluso, pero sabiendo también que ese tiempo ha pasado y que cualquier uso indebido de la misma traería graves consecuencias. y no está pensando el perro necesariamente en el castigo que el Dueño le impondría por desobedecer, que sí; sino en el sentimiento de rechazo, culpa, infidelidad y asco que sentiría el propio perro. el perro sabe que vive en castidad y que es un estado definitivo, no transitorio; que esta es su vida ahora. sabe que la polla que lleva no le perteneces sino que pertenece al Dueño y que es El quien puede hacer uso como guste. esto lo ha interiorizado tanto el perro que no lo vive como una imposición de fuera, sino como algo natural, obvio, evidente. es lo que tiene que ser. así deben ser las cosas. si se masturbara o dejara que otro hiciera uso de ella, alteraría el orden natural en el que vive el perro. y eso sería incluso peor que sentir el castigo del Dueño. el perro va creciendo, madurando en sumisión, y correrse voluntariamente buscando el propio placer sería un paso atrás.<br/>ya en otras ocasiones ha expresado incluso que podría ser un castigo que el Dueño le impusiera. de hecho, ante una falta, el Dueño dijo unas palabras catastróficas para el perro: "Durante una semana puedes hacer lo que quieras". cualquier otro pensaría que es una "liberación". el perro lo vivió como un castigo despiadado. justo, pero despiadado. ¿la parte positiva? que sirvió para que el perro se diera cuenta de lo mucho que depende del Dueño y de sus palabras, y de su control. el control hace al perro mejor, mucho mejor, y para controlar al perro la jaula debe estar en la polla del perro.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "731 días de esclavitud, 7 de castidad"
+date: 2012-01-16 23:30:00 +0000
+permalink: /2012/01/731-dias-de-esclavitud-7-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">hoy fue un día muy movido, con mucho, muchísimo trabajo. por la mañana intecambié mensajes con mi Dueño y de pronto, la conversación aumentó de tono. "Realmente creo que para mi ya eres una posesión, una propiedad". estas palabras bastaron para que se produjera un efecto inmediato en el cuerpo de este esclavo. tal vez en otro momento no hubieran producido ese efecto, no sé. tal vez este perro estaba tan sensible sobre el tema que le llegó más de lo normal. el hecho es que le pregunté a mi Dueño si le gustaba el concepto de obejto del que habíamos estado hablando. me dijo que prefería el de propiedad, porque un objeto puede ser poseído o no, pero que yo de hecho lo era, era SU propiedad. nuevamente el cuerpo reaccionó. estaba en una cafetería con el móvil y no podía levantarme sin que la gente se diera cuenta de lo empalmado que estaba. "a partir de ahora utilizaremos ese término", dijo. así que soy una propiedad, un objeto propiedad de mi Dueño. uff. decírmelo a mi mismo ya cuesta, no porque sea algo ajeno, sino por la profundidad de lo que significa.</div><div style="text-align: justify;">pude recomponerme y trabajar por la mañana, y por la tarde recibí de pronto otro mensaje, ordenándome que me ordeñara por la noche pensando en al conversación de la mañana. así lo hice. llegué, me desnudé y empecé a pensar en la conversación mientras veía un video de boundgods, con aquellos tios atados como objetos. luego me puse el cockring y a los dos golpes ya estaba saliendo la leche de una forma brutal. no emitíe ningún gemido, no me cambió la expresión de la cara, sencillamente salió porque mi Dueño me lo había ordenado. me duché y así acabó un día que fue intenso, tanto en mi vida, como en mi no-vida.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluta para el Amo.</div>

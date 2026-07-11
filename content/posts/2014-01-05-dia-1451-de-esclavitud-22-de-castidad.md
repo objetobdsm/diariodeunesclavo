@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1451 de esclavitud, 22 de castidad"
+date: 2014-01-05 22:55:00 +0000
+permalink: /2014/01/dia-1451-de-esclavitud-22-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">un día de trabajo en la biblioteca insular, en las palmas de gran canaria. no había ido desde la última remodelación y la verdad es que al perro le gustó. estuvo allí toda la mañana y sólo se levantó para tomar un café a media mañana.<br/>al perro le sorprendió comprobar la cantidad de gente que estaba allí. la idea era trabajar un poco allí, realmente toda la mañana, para estar por la tarde danto una vuelta por triana. sin embargo al mediodía ya había tanta gente que el perro se agobió y se fue a casa donde pasó toda la tarde.<br/>lo más interesante fue que el perro estuvo todo el tiempo con botas y jaula. a veces el perro se preguntaba si alguno de los que estaban en la sala de lectura se habría dado cuenta de que estaba enjaulado. el perro imagina que no se dieron cuenta, y si alguno se hubiera dado cuenta, seguro que sería porque él mismo llevaría una puesta. produce un extraño morbo pensar que podría el perro cruzarse con otros esclavos que vivan en castidad, cin jaula en sus genitales.<br/>durante un tiempo que el perro estuvo en la biblioteca casi ni se dio cuenta que la llevaba. sin embargo por la tarde se hizo más presente, sobre todo porque empezaron a molestar los testículos del perro. parece que las comidas navideñas están pasando factura y, al apretar un poco más el pantalón, también aprieta un poco más la jaula.<br/>ha sido el primero día que el perro, con permiso del Dueño, estuvo fuera de casa, y la verdad es que no lo echaba de menos. no estuvo mal, pero al perro no le importaría nada ser encerrado durante bastante tiempo en una mazmorra bajo llave.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

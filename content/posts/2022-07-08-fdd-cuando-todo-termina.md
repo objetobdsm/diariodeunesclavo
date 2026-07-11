@@ -1,0 +1,11 @@
+---
+layout: post
+title: "FdD cuando todo termina"
+date: 2022-07-08 11:18:00 +0000
+permalink: /2022/07/fdd-cuando-todo-termina.html
+tags:
+  - FdD
+  - esclavitud voluntaria
+---
+
+<div dir="ltr"><div style="text-align: center;"><a href="/uploads/b0/2e/b02ebd3f6c1d9da8657d6fd9e6885dcfa5f70d86b12318ccf9491d8c6c0cdf0e.jpg"><img alt="" border="0" height="640" id="BLOGGER_PHOTO_ID_7134658399852761602" src="/uploads/71/7f/717fdea9581bfaf31619d2f2d71d193bbf716cd509ba7a1a25a6101f82f92a6d.jpg" width="608" /></a></div><div style="text-align: justify;">¿qué pasa cuando una sesión termina? después de correrte la excitación desciende o desaparece. la realidad se impone. alguien tiene que hacer el desayuno o la comida, limpiar la casa, ir a trabajar. después de los latigazos y las pinzas hay que curar las heridas, hacer el aftercare y asegurarse que todo está bien. hay muchos que no pasan de ahí. cuando se corren y se termina la sesión recogen sus cosas, se visten, salen de la mazmorra o de la casa y vuelven a su vida cotidiana hasta que les da otra vez el apretón y vuelven a entrar en recon, o mensajean al último Amo con el que estuvieron a ver si le apetece volver a tenerlo a sus pies. y todo esto está bien. el objeto no ve nada malo en ello. sin embargo no es para el objeto. en su naturaleza parece no estar terminar una sesión sino convertir su vida en una completa, y eso no significa mantener la misma intensidad que cuando estamos en una, sino no dejar de someterse y servir al Dueño. por eso el collar, las muñequeras y las tobilleras no deberían quitarse nunca. siempre deberían estar ahí, lo que significaría que el objeto siempre está en presencia de su Dueño. algunos no podemos aspirar a otra cosa porque salir de la casa, salir de la mazmorra vestido con ropas de calle es una falsedad, algo que nos deja incompletos. nuestra sumisión no termina con una corrida sino que sigue después, de hecho se perpetua sin corridas, gracias a los nuevos dispositivos de castidad. una cosa es tan válida como la otra. porque hay Amos que solo quieren esclavos para jugar un rato y otros que buscan propiedades que dominar y entrenar. lo bueno de esta mazmorra es que aquí cabe todo el mundo.</div></div>  

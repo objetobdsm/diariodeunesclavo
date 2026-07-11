@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 3344 de esclavitud, 1316 de castidad"
+date: 2019-03-12 22:28:00 +0000
+permalink: /2019/03/dia-3344-de-esclavitud-1316-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el objeto se despertó temprano hoy se sentó delante dle ordenador con la intención de trabajar. sin embargo lo que hizo fue ponerse a navegar por internet y encontró un par de páginas interesantes. una de ellas era de una mujer que estaba en un proceso de objetificación. no suele ver el objeto blogs bdsm heteros, pero este le cautivó porque, independientemente dle sexo, se sintió identificado con la experiencia del objeto.<br/>y así, como quien no quiere la cosa, empezaron a despertarse sentimientos en el interior del objeto.la despersonalización y deshumanización que estaba sufriendo,el proceso radical de deconstrucción era algo que le llegaba profundamente al objeto, y así, casi sin darse cuenta, el objeto comenzó el día muy sumiso y sometido.<br/>es curioso como el objetono se siente nada atraído por las esclavas pero si por los esclavos, incluso siendo dominados por Amas. lo que más gustó al objeto fueron los post de textos donde explica lo que está pasando. llama a su Dueño "Lord" y poco a poco va dejando de ser humana, convirtiéndose en una cosa.<br/>sobra decir que eso es lo que desea y añora el obejto y está en proceso de conseguirlo. el Dueño le enseñó la diferencia entre dolor y sufrimiento. ahora el objeot sabe que el sufrimiento viene de ser tratado como un humano, de cuando se cree humano. sólo cuando el objeto vive su naturaleza de objeto, el sufrimiento desaparece y el dolor se hace soprotable, cualquier dolor, pero especialmente el infligido por el Dueño. el dolor físico es algo llevadero, soportable y hasta deseable. el dolor purifica al objeto y lo hace más objeto aún.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

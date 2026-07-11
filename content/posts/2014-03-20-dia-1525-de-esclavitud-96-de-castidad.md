@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1525 de esclavitud, 96 de castidad"
+date: 2014-03-20 22:07:00 +0000
+permalink: /2014/03/dia-1525-de-esclavitud-96-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">tal y como preveía ayer, el "enfrentamiento" ha seguido coleando. aunque compañeros de trabajo no he tenido que relacionarme con la compañera que ayer montón todo el espectáculo, pero el perro ha tenido que enfrentarse a su propio ego, que no se resiste a ser un elemento pasivo en su vida. quiere protagonismo, mucho protagonismo, cada vez más; y lo que tiene es cada vez menos. el ego se manifiesta en el orgullo herido, en la vergüenza, en pensamientos irracionales sobre cómo debió haber sido la situación y no fue. el perro no deja de maravillarse la fuerza que tiene, la capacidad para imponerse, para hacerse presente. toda esta experiencia está sirviendo para que el perro comprenda lo necesario de su entrenamiento, del silencio, del bondage, de la obediencia. es una lucha encarnizada entre el ego, y el verdadero yo del perro.<br/>de hecho una frase le vino al perro a la cabeza hoy: es hora de mazmorra. el perro necesita estar encerrado, sometido, forzado a obedecer... todo lo que lleva implícita la esclavitud. el perro recuerda con añoranza cuando estuvo por última vez a los pies del Dueño y estuvo gran parte del tiempo en silencio, amordazado, teniendo que comunicarse con una libreta si quería o necesitaba decir algo. es justo lo que necesita el perro en estos momentos.<br/>por la tarde el perro recibió una buena noticia: aprobó el examen que había hecho a principios de semana, además de una forma muy satisfactoria. así es como debe trabajar el perro, con resultados pero sin presunciones, sin aspavientos, sin exageraciones. un perro debe obtener resultados de una manera discreta y eficiente.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1262 de esclavitud"
+date: 2013-06-30 21:27:00 +0000
+permalink: /2013/06/dia-1262-de-esclavitud.html
+tags:
+  - personal
+---
+
+95 días de castidad, 95 desde el último ordeño.<br /><div style="text-align: justify;">el perro estuvo todo el día dedicado a temas familiares. si, aún tiene familia, la familia de sangre, porque después está la posibilidad de la familia leather. la primera te la imponen, la segunda la eliges. tu familia leather son todas aquellas personas que comparten contigo gustos, intereses, fetiches, relaciones de poder y que, en el caso de un esclavo propiedad de un Dueño, se corresponden con la familia leather del Amo. cuando entras a formar parte de la Casa de un Amo, entras a formas parte de su familia. el collar es tal vez el símbolo más evidente de que así ha sido, de que ya perteneces a un grupo distinto. en algunos casos eso significa ruptura definitiva con tu grupo anterior, en otros se puede pertenecer a ambos. en este caso el Dueño valora la familia tradicional y permite mantener esas relaciones, no así tal vez el resto de amigos y conocidos.</div><div style="text-align: justify;">al perro llega un momento en que tanta "familia" le resulta agobiante, opresiva, tal vez porque es una imposición no aceptada, no así como las órdenes dadas por el Dueño o la esclavitud, que es mayor control y presión pero que al haber sido aceptada resulta no sólo agradable, sino necesaria y disfrutada por el perro. cada orden es como una caricia y una muestra del control del Dueño. tal vez por eso, nada más llegar a casa, el perro se afeitó los genitales. esta última semana notó como le había crecido un poco el vello. las molestias eran evidentes, así que el perro se rasuró y, como en otras ocasiones, la sensación de humillación volvió a hacerlo sentir un auténtico esclavo al servicio de su Dueño.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

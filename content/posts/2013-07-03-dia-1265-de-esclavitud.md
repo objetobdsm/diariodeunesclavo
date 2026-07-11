@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1265 de esclavitud."
+date: 2013-07-03 21:45:00 +0000
+permalink: /2013/07/dia-1265-de-esclavitud.html
+tags:
+  - personal
+---
+
+<span style="text-align: justify;">98 días de castidad, 98 desde el último ordeño.</span><br /><div style="text-align: justify;">el perro tenía que pasar una prueba dura en la facultad y el perro la pasó hoy. cuando lo hizo se la ofreció al Dueño, una ofrenda de sumisión porque el Dueño siempre ha estado ahí, apoyando al perro. la mejor recompensa fue cuando el Dueño devolvió el mensaje diciendo que estaba orgulloso de su perro. son estas pequeñas cosas, aparentemente sin importancia, las que ayudan al perro a seguir adelante ya a avanzar en la sumisión.</div><div style="text-align: justify;">en los últimos dos meses el perro ha estado algo despistado por cuestiones laborales. había mucho trabajo y tenía que terminar varias cosas pero lo interesante es que, a pesar de que la no-vida podía haber absorvido al perro, fue su vida de sumisión la que le ha ayudado a sobrellevar esa situación de estrés. la sumisión ha hecho más fuerte al perro, más tranquilo, más atento a sus emociones y con mayor capacidad para gestionar situaciones complicadas. </div><div style="text-align: justify;">aquí aparece de nuevo la ironía, o mejor la paradoja. cuando más sometido y dominado, más socialmente funcional se vuelve el perro. cuanto menos cosas controla, más seguro se siente de sí mismo, y cuanto más desea ser encerrado y encadenado, más es capaz de gestionar situaciones conflictivas de estrés.</div><div style="text-align: justify;">por todo esto no puede el perro sino recalcar el carácter terapeútico del bdsm y de una relación D/s. su vida ha mejorado considerablemente desde que pertenecer al Dueño. está más equilibrado, consigue los logors que se le plantean y es socialmente más funcional. ¿alguien se atrevería a decir que eso es malo?</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

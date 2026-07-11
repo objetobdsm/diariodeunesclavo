@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2303 de esclavitud, 275 de castidad (I)"
+date: 2016-05-06 09:50:00 +0000
+permalink: /2016/05/dia-2303-de-esclavitud-275-de-castidad-i.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">9:50 caminando por madrid 402 se ha dado cuenta que se ha convertido en lo que siempre le puso. pero no obra suya, como hace desde meses ha sido el Dueño: pantas de cuero, botas, polo y chaqueta para la lluvia. si 402 se hubiera visto a si mismo por la calle no habría podido quitarle los ojos de encima. es cierto que el tiempo ayuda porque parece invierno en madrid.<br/>el día comenzó siento 402 despertado por el Dueño abruptamente. le puso unas botas y le amordazó fuertemente. este objeto se sintió como todo el tiempo hasta ahora, completamente entregado. a continuación le ató las manos a la espalda y la orden fue sencilla.<br/>-¡Excítame! - y 402 lo hizo.<br/>en poco tiempo el Dueño volvió a correrse, la segunda vez en menos de doce horas. este objeto no tuvo que hacer prácticamente nada, salvo intentar liberarse de las ataduras. eso fue suficiente para excitar al Dueño.<br/>Como el Dueño tenía que trabajar un poco, ordenó a 402 que saliera a dar una vuelta por madrid con la ropa que ha descrito. ahora está en una cafetería de chueca escribiendo, con la nueva jaula puesta, que se adapta perfectamente al pequeño pene del objeto, las botas y el panta de cuero.<br/>a las 12 más o menos el Dueño vendrá a buscar a su objeto para ir a ropafetish, la tienda fetichista para ver si encuentran el traje de latex. sin duda algunos se fijan en la pinta del objeto pero 402 está orgulloso de llevar la ropa que el Dueño ha decidido que lleve. cuando comenzó 402 su camino de sumisión nunca pensó que acabaría caminando por madrid así, de esta guisa. queda todo un día por delante que 402 sea intenso y seguro lo será.</p><br/><p style="text-align:justify;">(continuará)</p>

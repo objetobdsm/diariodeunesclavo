@@ -1,0 +1,12 @@
+---
+layout: post
+title: "esclavo encapuchado 2"
+date: 2010-03-30 07:51:00 +0000
+permalink: /2010/03/esclavo-encapuchado-2.html
+tags:
+  - imagenes
+  - capucha
+---
+
+<div class="separator" style="clear: both; text-align: center;"><a href="/uploads/26/cf/26cfc720f08a0104989fe3db3eb2749f15cbc2ae7f88b1941f2f44b3d8c0f2b7.jpg).jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="400" src="/uploads/26/cf/26cfc720f08a0104989fe3db3eb2749f15cbc2ae7f88b1941f2f44b3d8c0f2b7.jpg).jpg" width="310" /></a></div><div class="separator" style="clear: both; text-align: justify;">nuevamente la capucha, nuevamente la ausencia de identidad, nuevamente convertir al esclavo en un objeto. ¿por qué tengo tanta fijación con eso? supongo que porque, en lo más profundo de mi ser, deseo anularme en mi AMO, someterme a ÉL, servirle de forma que deje de ser algo para convertirme en nada. algunos lo expresan diciendo que se convierten en una prolongación de su amo. eso me vale, pero mi AMO es demasiado importante para que tenga a algo como yo como prolongación. prefiero sentir que me anulo y EL me rehace de nuevo, dejo de ser algo para ser nada, para luego ser algo: lo que EL quiera que sea.</div><div class="separator" style="clear: both; text-align: justify;">en este caso concreto se une eso con otro elemento sumamente atractivo para mi: el hecho de la privación sensorial: no habla, no ve, no oye: sencillamente "es". está indefenso, sin saber por dónde ir, tiene que ser llevado, conducido porque no sabría por donde tirar. aunque deseara escapar no podría, está impedido. está a merced del AMO.</div><div class="separator" style="clear: both; text-align: center;"><br />
+</div><a href="/uploads/d7/81/d781ef040d12f3ceea5340326e77f91d1f54fca2fb05368fe94deebba2be01d2.jpg).jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="400" src="/uploads/d7/81/d781ef040d12f3ceea5340326e77f91d1f54fca2fb05368fe94deebba2be01d2.jpg).jpg" width="300" /></a>a veces no basta con tener limitados los sentidos, o estar atado. a veces es necesario asegurar al esclavo para que no vaya a ningún sitio. la correa me evoca muchas cosas: un perro guiado por su Amo, tenerlo bien sujeto para que no vaya por donde quiere, tenerlo controlado, etc.aquí está esperando a que su Amo decida usarlo y hacer con él lo que desee. me encantan estas dos fotos.

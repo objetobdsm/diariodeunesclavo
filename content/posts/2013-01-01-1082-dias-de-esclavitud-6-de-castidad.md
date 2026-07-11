@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1082 días de esclavitud, 6 de castidad"
+date: 2013-01-01 22:13:00 +0000
+permalink: /2013/01/1082-dias-de-esclavitud-6-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">hoy es un día especial para este perro y no porque sea el primer día del año sino porque cada uno de enero es el cumpleaños del blog. como ha dicho el perro a menudo, comenzó como una forma de relatar los encuentros sexuales del perro antes de que fuera perro, antes de cualquier cosa. mucho ha pasado en estos 7 años. desde el primer año con sólo 9 entradas al presente, con más de 1000, aquí está condensado prácticamente todo el el proceso por el cual un tio con tendencias sumisas se vuelve un perro propiedad de un Amo.</div><div style="text-align: justify;">la verdad es que nunca pensé que fuera un blog con tantos seguidores y tantas visitas. el perro siempre pensó que sería algo minoritario. ahora, con casi 300 visitas diarias, y cerca de 240 seguidores este perro se siente contento, especialmente porque no es un blog exclusivamente de fotos o imágenes, para eso está la versión tumblr del blog. otra cosa de la que está orgulloso este perro es del proceso inverso. todo blog comienza muy fuerte y a medida que pasa el tiempo las entradas van disminuyendo. sin embargo con diariodeunesclavo, la cosa ha sido al revés. ha ido de menos a más.</div><div style="text-align: justify;">en otras ocasiones ha dicho el perro que escribe el blog que le hubiera gustado leer cada día, cada mañana. imagino que habrá algunos Amos y esclavos que harán eso, y el perro es capaz de entender la alegría de ver una actualización y la frustración de ver que no hay ninguna.</div><div style="text-align: justify;">en cualquier caso, felicidades a tod@s y a cada uno, porque lector o escritor, hoy estamos de celebración. le blog cumple un año más.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para Amo.</div>

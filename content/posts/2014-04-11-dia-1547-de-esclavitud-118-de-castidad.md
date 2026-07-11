@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1547 de esclavitud, 118 de castidad"
+date: 2014-04-11 22:26:00 +0000
+permalink: /2014/04/dia-1547-de-esclavitud-118-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">hoy era la celebración de "good night" en triana, la principal calle comercial de las palmas. se trata de que las tiendas abren hasta medianoche, con actuaciones por las calles.<br/>el perro fue a dar un paseo por allá y entró en una tienda de zapatos buscando botas. el perro llevaba las suyas, y sorprendentemente, el perro se encontró con otro botero. hubo un reconocimiento cuando se fijó en las del perro, y el perro en las suyas. eran como de vestir, lisas y sin tacón. el perro no tiene dudas de que el otro reconoció las sendra. pero no pasó de ahí.<br/>a veces, cuando esto ocurre, un encuentro "a distancia", como pasó hace una semana con el botero de telde, o el de hoy; el perro se pregunta si alguno de ellos lee el blog y se reconoce en las situaciones relatadas en él. si así fuera, el perro quedaría expuesto en el sentido de que pondrían cara al perro-esclavo que escribe estas líneas. eso le resulta excitante al perro, a pesar de su timidez. la humillación destruye el ego.<br/>mañana el perro estará bajo las botas del Dueño de nuevo. el perro no sabe lo que le espera, pero eso tampoco es importante. lo único importante es el deseo del Dueño.<br/>¿qué significa para el perro vivir en castidad? pues ir a ver al Dueño y volver sin haberse ordeñado. aunque algo frustrante, el perro le encontraría extremadamente perverso, y por tanto humillante.<br/>cada vez que el perro va a ver al Dueño es como si probara lo que sería su vida tras el Gran Salto, lo que podría ser una vida de esclavitud real y auténtica, sin apenas no-vida.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

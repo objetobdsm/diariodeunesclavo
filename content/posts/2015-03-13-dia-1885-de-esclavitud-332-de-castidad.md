@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1885 de esclavitud, 332 de castidad"
+date: 2015-03-13 22:29:00 +0000
+permalink: /2015/03/dia-1885-de-esclavitud-332-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">ya está todo preparado. dentro de poco más de una semana el perro estará, de nuevo, bajo las botas de su Dueño. ha pasado mucho tiempo desde la última vez, demasiado, pero ya está resuelto. es difícil definir la mezcla de excitación y emoción que eso produce en el perro, así como algo de temor, porque el perro sabe que el Dueño lo torturará en esta ocasión. el camino del dolor como forma de sumisión y de entrega es un camino nuevo. el perro nunca se ha definido como masoquista, sino más bien como fetichista, pero es el camino que el Dueño quiere que el perro recorra y el perro aprenderá a amar y acoger el dolor que el Dueño quiera infligirle con obediencia y entrega. el perro llegará a suplicar al Dueño que lo castigue, que lo torture, que le produzca dolor. eso lo sabe el perro. ya ocurrió con las botas. ahora el Dueño quiere que ocurra con esto, y ocurrirá.<br/>esta afirmación no nace de la certera o seguridad del propio perro, sino del convencimiento de que el Dueño siempre consigue lo que quiere. y si esto el lo que quiere el perro sabe que no puede resistirse, así que mejor aceptarlo y seguir adelante disfrutando de ello lo más posible.<br/>revisando los primeros videos que el Dueño hizo de nuestros primeros encuentros,el perro se sorprendió de lo presente que estaba el dolor, sobre todo producido por pinzas en todas las partes del cuerpo. eso fue mitigándose pero siempre estuvo ahí, y el Dueño, una vez asegurado que me tiene bajo su control, imagino que quiere darle rienda suelta. ya se lo ha dicho al perro. no quiere que éste gima ni emita ningún sonido mientras lo azota o tortura. debe aceptarlo en silencio y abrazarlo como una entrega a su Dueño. así lo desea El y así será.... pronto, muy pronto.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

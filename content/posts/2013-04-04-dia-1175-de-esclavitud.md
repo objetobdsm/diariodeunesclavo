@@ -1,0 +1,10 @@
+---
+layout: post
+title: "dia 1175 de esclavitud"
+date: 2013-04-04 20:11:00 +0000
+permalink: /2013/04/dia-1175-de-esclavitud.html
+tags:
+  - personal
+---
+
+<br />8 días en castidad, 8 días desde el último ordeño<br /><div style="text-align: justify;">"Ya no volverás a sentirte libre". esta es la frase que el Dueño ha mandado a su perro hoy y que ha estado presente todo el día. es una frase categórica, determinante, sin posibilidad de marcha atrás. si el Amo desea una cosa lo consigue, si el Dueño dice algo, se cumple. puede tardar más o menos,  pero se cumple.viéndome  embotado y llevando una jaula de castidad casi permanentemente, uno no puede sino reconocer eso, que eso es así. hace unos años me hubiera reído de quien me hubiera dicho que terminaría de esta forma. igualmente me hubiera reído de todo aquel que hubiera afirmado que estaría ocho días sin masturbarme o tener sexo, sin sentir un orgasmo,  sin placer sexual genital. placer sexual genital, la apreciación es importante porque si que siente el perro placer, especialmente cuando cierra el dispositivo después de haberlo lavado, o por las mañanas. es el placer de la sumisión, de vivir en obediencia, de pertenecer a un Amo, de tener Dueño. Es un placer que trasciende lo puramente físico y que ayuda al perro a sobrevivir,</div><div style="text-align: justify;">ya ha llegado a un punto el perro en el que puede llegar a olvidarse de la jaula, pero entonces la toca, se palpa discretamente la entre pierna para notar que está ahí, y la sensación de sumisión vuelve y se instala en su mente, y se da cuenta que para todos aparentemente es un ciudadano libre y responsable, pero en su interior, y bajo la ropa, no es sino un perro, un esclavo, una propiedad controlada y dominada.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

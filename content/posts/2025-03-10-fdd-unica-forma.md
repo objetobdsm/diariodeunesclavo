@@ -1,0 +1,12 @@
+---
+layout: post
+title: "FdD única forma"
+date: 2025-03-10 02:20:00 +0000
+permalink: /2025/03/fdd-unica-forma.html
+tags:
+  - control respiración
+  - bondage
+  - FdD
+---
+
+<p> </p><div class="separator" style="clear: both; text-align: center;"><a href="/uploads/fa/0e/fa0ebcc7ef5dee9f2e9ddc6ffedef0a122a34a8d1df9a963d753943c8abbb71e.jpeg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="443" data-original-width="400" src="/uploads/2a/32/2a32b083b8a77fbca8126df579b097e8eb84bb413e736d21db835539508f7170.jpg" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: justify;">"Respiras porque Yo te lo permito". esta es la frase que suele decir mi Señor y que viene a la mente del objeto cuando ha visto la foto del día de hoy. respirar es algo básico, imprescindible para la vida, para existir. sin aire llega la muerte lo que significa que el aire es la vida. el breath control es precisamente por eso, la práctica más radical, y a la vez transformadora, dentro del bdsm. puede hacerse con una bola, puede hacerse con una capucha, con una cuerda, o incluso con las manos sobre la nariz y la boca del inferior. también puede hacerse con un collar que va presionando impidiendo que el esclavo respire. por supuesto el bondage es necesario porque no hay garantías de que el inferior no intente resistirse. no es algo voluntario, es su instinto de supervivencia quien anula cualquier otro mecanismo. y precisamente por eso, una vez experimentada, toma el esclavo conciencia de que su supervivencia también está en manos de su Amo. lo está a nivel psicológico, existencial e intelectual. el breath control le muestra que también lo está a nivel físico. esto es una práctica de alto nivel, que no se puede hacer a la ligera pero que es profundamente transformadora, brutal diría el objeto. destroza completamente al ego, lo hace desaparecer, así como la voluntad del esclavo. no debe hacerse a la ligera porque dejar a alguien sin voluntad puede ser peligroso. hay que saber sustituir una voluntad por otra, la del inferior por la del Amo. es la única forma de sobrevivir. </div><br /><p></p>

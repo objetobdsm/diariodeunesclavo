@@ -1,0 +1,10 @@
+---
+layout: post
+title: "1037 dias de esclavitud, 4 de castidad"
+date: 2012-11-17 22:15:00 +0000
+permalink: /2012/11/1037-dias-de-esclavitud-4-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">había el perro quedado con una amiga, con permiso del Dueño, por supuesto. fuimos a la plazoleta farray, por la zona del parque santa catalina. dos mesas más allá había un grupo de chicos jóvenes, modernos ellos. no hubieran llamado la atención de ese perro si no fuera porque uno de ellos, al levantarse, dejó entrever unos pantalones de cuero y unas botas. eran discretos en el sentido de que no eran brillantes, y estaban bastante machacados, lo que significa que los usaba bastante. este perro no pudo dejar de mirarlo hasta que desapareció, con la que parecía la novia, por cierto, por un extremo de la plaza. descubrir que hay gente así, que lleva con tanta soltura una prenda tan llamativa, es como un soplo de aire a un perro amante del cuero. pero también es una excepción porque en las palmas no es común, nada común, ver esto. el hecho es que fue suficiente para que el perro se sintiera animado el resto de la noche. </div><div style="text-align: justify;">este fin de semana no ha sido como los otros, cuando echaba mucho de menos al Amo. no significa que no lo añore, eso es cada segundo, sino que acepto que la situación es esta y que sigo siendo suyo pase lo que pase, esté donde esté, haga lo que haga. es cuando olvida el perro este principio cuando empiezan los problemas y quiere estar donde está el Amo. "quiere", qué palabra tan curiosa para un perro. aún me queda mucho por aprender, por madurar como esclavo, por entregar al Dueño. un perro no "quiere", solo servir a su Dueño. querer implica voluntad y voluntad implica ego. el perro sabe que el Amo le adiestrará bien hasta conseguir el objetivo: eliminar el ego y con él, la voluntad.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

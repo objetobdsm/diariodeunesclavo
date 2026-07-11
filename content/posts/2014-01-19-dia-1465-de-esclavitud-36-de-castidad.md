@@ -1,0 +1,10 @@
+---
+layout: post
+title: "dia 1465 de esclavitud, 36 de castidad"
+date: 2014-01-19 22:58:00 +0000
+permalink: /2014/01/dia-1465-de-esclavitud-36-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">un nuevo día encerrado en casa, intentando trabajar en el blog, sin conseguirlo demasiado. hoy el perro no se siente nada inspirado y piensa que va a hacer una porquería, algo que no merece la pena. eso hace que retrase lo inevitable, que es actualizar el blog. además el resto del trabajo le agobia. cuando las tareas se acumulan el perro sufre una especie de bloqueo, por su incapacidad para decidir por dónde empezar.<br/>además siente que ha emepezado un nuevo ciclo bajo. esta mañana es perro se levantó triste y algo deprimido. no se ha preocupado porque sabe que, anímicamente, pasa regularmente por estos ciclos. durante un tiempo está animado, y hasta diría a veces que exaltado, y se siente capaz de cualquier cosa. sin embargo, cuando pasa ese ciclo, los sentimientos y las emociones son justamente las contrarias. se levanta deprimido y sin ganas de hacer nada.<br/>en la vida de este esclavo se suceden estos ciclos, porque igual pasa con el sexo. hay etapas en las que parece que no tiene sexo, que no se siente atraído por nada. son las etapas en las que es más fácil la castidad. sin embargo, cuando pasa algún tiempo y el ciclo cambia, el perro está tan caliente que estaría pajeándose todo el día. en esos momentos es cuando es más necesaria la jaula y cuando más peligro corre el perro de perderse en la autosatisfacción.<br/>estos ciclos explican que haya pasado tanto tiempo casi sin supurar, o sin nombrar la castidad y que el viernes pasado olvidara ponerme la jaula. el perro está en un momento que la castidad se lleva sin ninguna ayuda externa. está interiorizada. sabe el perro que no durará, que vendrá otro momento de excitación extrema donde necesitaría una jaula de metal permanentemente insertada en su cuerpo. pero ahora no es ese momento.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

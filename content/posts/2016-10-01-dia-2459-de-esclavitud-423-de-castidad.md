@@ -1,0 +1,10 @@
+---
+layout: post
+title: "dia 2459 de esclavitud, 423 de castidad"
+date: 2016-10-01 22:50:00 +0000
+permalink: /2016/10/dia-2459-de-esclavitud-423-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">402 tiene que hacer obras en casa y empiezan este lunes, así que ha tenido que dedicar todo el día de hoy a desarmar muebles y recoger cosas. forma parte de esas cosas del mundo de la no-vida de las que no puede escapar aunque quiera.<br/>debido a las obras 402 tiene que salir de casa y vivrá fuera un tiempo, por lo que no sabe si podrá escribir a menudo. parece que serán quince días pero espera que terminen antes.<br/>lo cursos de eso es que le ha ayudado a 402 a entender ciertas cosas. por ejemplo ayer y hoy este objeto durmió en el suelo con el colchón, ya que había desarmado la cama, y resulta que ha dormido mejor que estas semanas atrás.<br/>al comentarlo con el Dueño dijo que eso también era parte de su naturaleza de objeto, que había aprendido a usar las cosas pero no a ser usado por ellas, a no dejarse influir por el lujo y cosas así. pensándolo bien 402 cada vez es más partidario de la sencillez, de no hacer ostentación ni con la ropa, ni con la decoración, ni con os demás objetos. sencillamente funcionalidad que sean útiles y ya está.<br/>si le preguntaran a 402 diría que un uniforme sería lo mejor para él. unas botas, unos vaqueros y un poco o camiseta del mismo colos siempre si fuera necesario y ya está, con eso sería feliz. si además viviera en una mazmorra de una habitación con un colchón en el suelo y un lavabo, sería suficiente. cada vez va descubriendo este objeto que se necesita muy poco para vivir y que cuanto menos se tiene mejor se siente uno.<br/>por eso estas obras servirán también par simplificar mucho la vida de 402, eliminando lo superfluo que uno va acumulando con los años.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

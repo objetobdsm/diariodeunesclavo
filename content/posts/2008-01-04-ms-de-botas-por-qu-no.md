@@ -1,0 +1,13 @@
+---
+layout: post
+title: "más de botas ¿por qué no?"
+date: 2008-01-04 06:30:00 +0000
+permalink: /2008/01/ms-de-botas-por-qu-no.html
+tags:
+  - botas
+  - dominacion
+  - imagenes
+  - sumision
+---
+
+<div align="justify"><a href="/uploads/8c/e5/8ce57701d82ee02af8bbd8dbd8bb630c1fa0bc112b1ea53841b8afde06e52d9b.jpg"><img id="BLOGGER_PHOTO_ID_5140350123651683570" style="DISPLAY: block; MARGIN: 0px auto 10px; CURSOR: hand; TEXT-ALIGN: center" alt="" src="/uploads/8c/e5/8ce57701d82ee02af8bbd8dbd8bb630c1fa0bc112b1ea53841b8afde06e52d9b.jpg" border="0" /></a>  no lo puedo evitar, pero además no quiero hacerlo. últimamente lo de las botas me coge mucho. y antes no era así, el cuero era mi fetiche principal y las botas un mero complemento. lo que pasa es que, desde que soy esclavo de mi AMO, lamer sus botas se ha convertido en una señal de sumisión y de sometimiento, de respeto, de entrega, de humildad, de servicio.</div><br /><br /><a href="/uploads/9c/13/9c136325117e9376b40b68d958a96374ececba0395bd1910e1475b76ac5d9e0c.jpg"><img id="BLOGGER_PHOTO_ID_5140350127946650882" style="DISPLAY: block; MARGIN: 0px auto 10px; CURSOR: hand; TEXT-ALIGN: center" alt="" src="/uploads/9c/13/9c136325117e9376b40b68d958a96374ececba0395bd1910e1475b76ac5d9e0c.jpg" border="0" /> <p align="justify"></a>entre AMOs y esclavos lamer las botas es el saludo típico, normal, una señal de respeto. creo que entre mi AMO y yo tiene ese significado, pero lo trasciende y se convierte en algo más. el ejemplo más claro es que en cuanto nos vemos y hay posibilidad me arrodillo y besos sus pies, tenga puesto lo que tenga puesto. por supuesto besar unas botas no tiene comparación pero no son indispensables.<br /></p><a href="/uploads/19/fa/19fa6b8cee40e31e9718d83d471d49285e2db9cf1e0003dbdea3a56ac600bd22.jpg"><img id="BLOGGER_PHOTO_ID_5140350132241618194" style="DISPLAY: block; MARGIN: 0px auto 10px; CURSOR: hand; TEXT-ALIGN: center" alt="" src="/uploads/19/fa/19fa6b8cee40e31e9718d83d471d49285e2db9cf1e0003dbdea3a56ac600bd22.jpg" border="0" /> <p align="justify"></a>en eso reconozco que va copando más aspectos de mi interior, que se va haciendo más fuerte y tomando posesión de más aspectos de mi vida, en que ya el fetichismo como tal pasa a un segundo plano. pero eso no me extraña porque hace tiempo que aprendí que lo que me pone en el fondo, no son los objetos, sino la relación con quien los lleva. unas botas son bonitas, llevadas por un tío autoritario son la hostia.... el cuero es agradable, llevado por mi AMO es increíble<br /></p>

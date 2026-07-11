@@ -1,0 +1,10 @@
+---
+layout: post
+title: "845 días de esclavitud, 4 de castidad"
+date: 2012-05-10 22:20:00 +0000
+permalink: /2012/05/845-dias-de-esclavitud-4-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">últimamente han proliferado en el blog algunos comentarios en referencia a la futura vida en la mazmorra. este perro considera que tal vez sería conveniente hacer algunas apreciaciones o clarificaciones al respecto.</div><div style="text-align: justify;">cuando este perro se encontró con su Amo, o mejor dicho cuando su Amo encontró a este perro, pronto se hizo evidente la sintonía hasta el punto de plantear la posibilidad de un tipo de vida determinado. la esclavitud, fruto de los sentimientos y opciones vitales que cada uno había hecho, así como de las necesidades existanciales. mi AMo necesitaba poseer, este perro necesitaba ser poséido. la conclusión resulta evidente para cualquiera. a partir de ahí empiezan a construirse unos planes que se concretan especialmente en una vida de servicio, obediencia y sumisión que, en el caso de este perro, se visualiza en vivir encerrado, cosa que ha expresado repetidamente en este blo. ni mi AMo, ni este esclavo, entienden eso como que la puerta de la mazmorra se cerrará y echarán la llave a un río. significa que mi Amo tendrá esa llave, la única llave, y la usará como El desee. ¿que quiere que esé 1 o 2 meses sin salir? que así sea, ¿que quiere que vaya a trabajar a algún lugar público pero sin hablar con nadie? que así sea ¿que desea que sea su asistente personal en su empresa? que así sea. </div><div style="text-align: justify;">el hecho fundamental es que, pase lo que pase, volveré siempre a sus botas, las lameré y posiblemente me meta en un saco de cuero, apriete fuerte las correas y duerma a los pies de su cama. no es este perro quien decide eso, sino su AMo. y por eso sé que viviré en una mazmorra, porque El así lo quiere.</div>obediencia ciega para el esclavo, poder absoluto para el AMo.<br />

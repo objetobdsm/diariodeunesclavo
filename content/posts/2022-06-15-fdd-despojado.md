@@ -1,0 +1,8 @@
+---
+layout: post
+title: "FdD despojado"
+date: 2022-06-15 12:02:00 +0000
+permalink: /2022/06/fdd-despojado.html
+---
+
+<div dir="ltr"><div style="text-align: center;"><a href="/uploads/bf/5f/bf5fc08f04ff509e717ee03053cfe72244cebae61a526e639d6328bc2ea3b46c.jpg"><img alt="" border="0" height="640" id="BLOGGER_PHOTO_ID_7126505907583190050" src="/uploads/82/03/820315a625bccbaebf7192be6378dd216930841297b71807091cabb681fef3c1.jpg" width="420" /></a> </div><div style="text-align: justify;">la de hoy no es una imagen de muy buena calidad, más bien al contrario. ¿por qué la habrá elegido el objeto? se preguntarán. pues precisamente por eso, porque al no ser de buena calidad tiene más posibilidades de ser una imagen real tomada en cualquier salón de cualquier casa de cualquier lugar del mundo. además lo importante es lo que muestra: un inferior con grilletes en manos y pies, arrodillado y sometido, completamente desnudo. el objeto no sabe si hay algo en la mesa sobre la que apoya la frente, si está adorando una imagen de su Amo o sencillamente le han puesto ahí como castigo o esperando hasta que sea usado de nuevo. ¿realmente importa? lo realmente importante es que este inferior debería ser un ejemplo para todos los inferiores. está despojado de todo, no sólo de la ropa sino de toda dignidad, de toda prestancia, de todo orgullo, de todo ego. ahora solo es una propiedad obediente.<br /></div></div>  

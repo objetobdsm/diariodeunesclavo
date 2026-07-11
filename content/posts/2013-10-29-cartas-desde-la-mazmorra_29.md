@@ -1,0 +1,10 @@
+---
+layout: post
+title: "cartas desde la mazmorra"
+date: 2013-10-29 16:26:00 +0000
+permalink: /2013/10/cartas-desde-la-mazmorra_29.html
+tags:
+  - cartas
+---
+
+<p style="text-align:justify;"><span style="font-size:13px;line-height:19px;">una mazmorra es una prisión subterránea, lo que implica necesariamente que es oscura. como prisión no puede tener muchas aberturas y además está por debajo del nivel del suelo. una mazmorra es susceptible siempre de ser más oscura.</span><br/>al perro se le ocurre que es una metáfora de la vida del esclavo. cuanto más oscura la mazmorra, más sumiso el esclavo. algo así es lo que ocurre cuando a un esclavo se le tapa los ojos o se le pone una capucha. la privación sensorial es el correlato de la privación de libertad de la mazmorra. el bondage del cuerpo es lo mismo que lo que hace una jaula, una celda, o la propia mazmorra.<br/>últimamente el perro se siente un poco así, cada vez más abajo, más metido en la mazmorra. el Dueño suele decir que el perro ya está en esa mazmorra, una mazmorra mental.<br/>el perro entiende que pocos pueden comprender lo que significa vivir o tener una mazmorra oculta en la mente. es la sensación de que no puede escapar, no puedes desobedecer. hay cierto margen pero no hay escapatoria.<br/>a veces la mazmorra se oscurece y, paradójicamente, ese es el mejor momento porque significa que el esclavo está más sumiso, más obediente.<br/>lo principal es que el Dueño tiene la llave de la mazmorra y de la mente del perro. por supuesto eso exige una enorme responsabilidad. el Dueño puede y sabe usar esa responsabilidad para el bien del perro. ahí está la clave de todo. incluso cuando castiga, tortura, premia o adoctrina, el Dueño sabe que lo hace por el bien del perro y el perro lo vive como una bendición, como un regalo.<br/>el perro sabe que la llave la tiene el Dueño y puede hacer con ella lo que quiera. lo mejor es que el perro acepta eso. sabe que acabará en una mazmorra, poruq eel Dueño así se lo ha dicho. es es su deseo. como El dice, todo terminará cuando de el último empujón al perro y cierre la puerta.<br/>feliz semana.</p>

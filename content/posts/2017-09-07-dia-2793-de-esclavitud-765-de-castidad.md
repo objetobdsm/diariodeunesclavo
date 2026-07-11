@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 2793 de esclavitud, 765 de castidad"
+date: 2017-09-07 22:23:00 +0000
+permalink: /2017/09/dia-2793-de-esclavitud-765-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">a veces, demasiado a menudo, la ceguera no es una cuestión física. no tenemos ningún problema visual, pero no vemos lo que tenemos delante por varias razones. la primera suele ser porque no queremos verlo, porque nos asusta o nos incomoda lo que podemos llegar a ver. también puede ser porque aceptar lo que vemos significa poner en cuestión muchos de los preceptos y conceptos que hemos aprendido durante nuestra vida, y que en algunos momentos hemos incluso defendido a capa y espada. reconocer que nos equivocamos en esos momentos no es fácil. también puede ser porque cuestiones nuestras más profundas creencias y eso signifique poner nuestro mundo patas arriba o del revés.<br/>ninguna de estas razones han funcionado con el objeto, pero aún así muchas veces no ve la realidad. a menudo suplica al Dueño, y le dice que es un objeto que añora ser anulado, controlado, sometido. y entonces el Dueño dice "Ya lo eres". tres palabras, sólo tres pero que demuestran lo ciego que a veces está el objeto y que no ve lo que le rodea. lleva más de dos años sin un orgasmo, y sabe que no los volverá a tener; usa botas por deseo del Dueño que ha hecho que se sienta descalzo sin ellas; tiene que suplicar permiso para casi cualquier cosa, salvo tal vez comer e ir al baño..... ¿cómo no puede ver el objeto que es algo más allá de un esclavo? ¿que ha pasado una frontera en cuanto a humillación y que está por debajo de los humanos, e incluso de los animales? es un ser anulado que sólo mantiene determinadas cosas que le hacen parecer humano por las circunstancias, pero el Dueño está decidido a eliminarlas también. el control del Dueño sobre la mente del objeto es total, y el objeto ya no tiene escapatoria. sólo se añora lo que ya se tiene cuando se está tan ciego para no ver que eso ya es una realidad.<br/>sumisión en silencio, castidad y obediencia ciega.</p>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "990 dias de castidad, 14 de castidad"
+date: 2012-10-01 21:02:00 +0000
+permalink: /2012/10/990-dias-de-castidad-14-de-castidad.html
+tags:
+  - personal
+---
+
+<br /><div style="text-align: justify;">este perro ha vuelto a supurar al ir al baño, casi una quincena de castidad ya se nota bastante. cada vez que esto ocurre la humillación hace mella en este perro y le hace repasar la situación: sin poder masturbarse, orinando sentado, ordeñándose a cuatro patas como un animal ¿se puede caer más bajo?, si, porque esta pregunta la hace el ego, no el esclavo, y porque sólo así el ego desaparecerá y podrá el Amo hacer uso de su propiedad.</div><div style="text-align: justify;">mañana, a los quince días de castidad, este perro intentará eyacular mediante un consolador o estimulador prostático. este perro no lo ha hecho nunca así que no sabe cómo saldrá. este fin de semana este perro realizó la primera "confesión" al revisar las normas de esclavitud, diciendo las faltas cometidas, esperando un castigo del Amo, si Este lo considera oportuno. es duro porque tienes que admitir que a lo mejor has tenido pensamientos o deseos que no eran adecuados, o que no has puesto la suficiente diligencia en una orden. </div><div style="text-align: justify;">este fin de semana, además, ha habido una actualización de las normas de esclavitud, introduciendo las últimas órdenes dadas por el Amo. se pueden consultar en las páginas que antes estaban en la cabecera y ahora han pasado a la columna lateral, bajo el título "la vida como esclavo", justo debajo de "en estos momentos", que es donde se publican los mensajes de twitter de este perro. allí también pueden encontrar el nuevo apartado de biblioteca.</div><div style="text-align: justify;">están siendo muchos cambios pero son necesarios porque realmente el deseo del Amo de ejercer más control es real y se está produciendo poco a poco.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

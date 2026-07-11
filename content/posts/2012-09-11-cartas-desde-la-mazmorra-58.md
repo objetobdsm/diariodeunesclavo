@@ -1,0 +1,10 @@
+---
+layout: post
+title: "cartas desde la mazmorra 58"
+date: 2012-09-11 17:53:00 +0000
+permalink: /2012/09/cartas-desde-la-mazmorra-58.html
+tags:
+  - cartas
+---
+
+<br /><div style="text-align: justify;">la mazmorra es el lugar natural de un esclavo. allí es donde se siente como en casa. sin embargo no hay muchos Amos que puedan mantener a sus esclavo encerrados, ni siquiera a su disposición las 24 horas del día. como en la antigüedad, tener esclavos era un privilegio reservado a los más pudientes. hoy, con la esclavitud voluntaria, el Amo no tiene que hacer un desembolso económico para comprar un esclavo, pero tiene que hacer otro tipo de "inversiones". </div><div style="text-align: justify;">antes, la riqueza económica implicaba una superioridad moral e intelectual. hoy esa correlación se ha roto. el Amo actual no necesariamente tiene que ser rico, pero si debe ser los suficientemente inteligente y mantener unos niveles de excelencia persona suficientes como para poder "mantener" al esclavo a su merced.</div><div style="text-align: justify;">hoy la mazmorra no tiene que ser física necesariamente, ya que puede ser mental, intelectual, moral. el esclavo actual, al ser una esclavitud elegida, al menos en un momento del proceso, siente la necesidad de someterse y esa necesidad es la mejor baza que un Amo puede utilizar. el esclavo no podrá escapar si depende de su Amo, si su Amo ha conseguido un vínculo tan estrecho que no es necesaria otra cadena.</div><div style="text-align: justify;">el Amo actual tal vez tenga más de maquiavelo que de capataz de un barco negrero. El va manejando la mente del esclavo hasta que se va configurando a su mano, según sus deseos, según lo que el Amo quiera.</div><div style="text-align: justify;">la esclavitud, el poseer un esclavo, sigue siendo un privilegio de unos pocos. antes lo era por tener capacidad económica, ahora lo es para aquellos que consiguen que el esclavo descubra y desarrolle aquello que es más profundo, sus deseos de servir y de someterse.</div><div style="text-align: justify;">feliz semana.</div>

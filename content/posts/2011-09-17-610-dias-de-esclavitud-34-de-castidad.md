@@ -1,0 +1,10 @@
+---
+layout: post
+title: "610 días de esclavitud, 34 de castidad"
+date: 2011-09-17 22:55:00 +0000
+permalink: /2011/09/610-dias-de-esclavitud-34-de-castidad.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">este perro se ha puesto las primeras botas de esta temporada. aún hace calor, mucho calor, pero sentía esa necesidad, ese deseo de llevar botas. cuando eso ocurre es como un recordatorio permanente de a quien pertenezco y de cual es mi lugar en el mundo. ya tienen ese sentido para este perro y, nada más ponérmelas, mi Amo me viene a la mente. durante la mañana, mientras recorría la ciudad haciendo cosas, no podía evitar pensar en mi Dueño, en cómo le pertenezco y en cómo está orientada toda mi existencia a ser digno de Él. sudé mucho, pero también estuve orgulloso de mostrar y llevar mis botas en público.</div><div style="text-align: justify;">por la tarde este perro estuvo en casa, salvo un rato que salió a correr un poco. el calor le dejaba tirado. a última hora de la tarde tuve otra conversación muy interesante con perrodepresa, un esclavo sin AMo, por ahora, pero que encuentro tiene unos valores y una naturaleza de esclavos poco comunes. espero que tenga suerte y que este perro sea testigo de su entrega a un Amo que lo merezca.</div><div style="text-align: justify;">se han producido varias erecciones hoy, y parece que lo que temía va a pasar, que el mes de tranquilidad se ha terminado y empieza un período de estar tenso y afrontar tentaciones y deseos. hasta ahora había resultado muy llevadero, y creía este perro que iba a ser así debido al entrenamiento realizado. nada más lejos de la realidad. vendrán días duros, sin duda. además de las erecciones he supurado más de la cuenta y eso es otro indicativo. pensaba este perro que había superado esta etapa, pero nunca puede darse nada por hecho, y menos en la sumisión.</div>

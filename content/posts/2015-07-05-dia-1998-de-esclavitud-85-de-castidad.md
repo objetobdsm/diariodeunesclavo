@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1998 de esclavitud, 85 de castidad"
+date: 2015-07-05 22:06:00 +0000
+permalink: /2015/07/dia-1998-de-esclavitud-85-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">si había alguna duda de que el verano había llegado, hoy se ha disipado. el calor ya empieza a ser muy molesto. el perro estuvo la mañana en casa encerrado, pero por la tarde tenía una reunión familiar a la que el Dueño permitió que fuera. es algo extraño porque, incluso siendo su familia, el perro se sintió un poco extranjero entre ellos. nunca cuadró de verdad porque parecía que todos los familiares de su edad tenían intereses y gustos distintos a los suyos, algo que se mantiene en la edad adulta. aún así hay acontecimientos familiares donde uno tiene que estar presente por convencionalismo social.<br/>el perro sabe que tras el Gran Salto la familia también quedará atrás, y aunque parezca poco aceptable, no le importará demasiado hacerlo, salvo por un pequeño grupo de personas.<br/>que nadie con pretensiones pseudopsiquiátricas saque conclusiones tipo: "claro, su necesidad de sometimiento viene de una relación familiar falta de afecto y está compensando", o "el complejo de edipo está mal curado por una padre ausente"... y cosas por el estilo. chorradas. el perro fue criado en una típica familia de clase media con todo el apoyo y cariño que podía recibir. de hecho es un profesional valorado, con dos licenciaturas, a punto de terminar un master y con un doctorado en ciernes. no, el perro es un perro por otro motivo, por algo que aún no ha conseguido discernir. no sabe si es genético, cultural o que, pero es algo más profundo que está en su interior. cuando se somete al Dueño siente cosas con las que nada en su vida pasada o presente, vamos a dejar el futuro por si acaso, se puede comparar. es algo que trasciende la psicología. casi podría decir que es místico, porque sólo bajo las botas del Dueño, atado, amordazado, sometido, incluso torturado, el perro se ha sentido reconciliado con el universo.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>

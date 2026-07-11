@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5542 de esclavitud, castrado permanentemente"
+date: 2025-03-18 23:48:00 +0000
+permalink: /2025/03/dia-5542-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> un día parecido al de ayer estando por la mañana en casa y por la tarde clase y formación. en ese sentido un día completo. el objeto estuvo en casa todo el tiempo porque la formación fue online y no tuvo que salir para nada. por tanto fue un día de silencio, salvo lo obvio de la formación, adorando a mi Señor y disfrutando de la idea de que pasado mañana este objeto estará bajo sus botas. publicó las entradas de ayer y recibió un mensaje de un sumiso que llamó la atención del objeto. en ese mensaje le decía que le había impactado la entrada, por lo que ocurrió ayer en la formación, y que nunca había pensado que el bdsm sirviera para hacerte mejor "persona". el objeto le contestó que era una consecuencia de la Dominación y la sumisión. ningún Amo quiere una propiedad que no valga o que pierda su valor con el paso del tiempo. más bien al contrario, todo propietario quiere revalorizar lo que tiene y eso significa que un esclavo, o un objeto, debe ser pulido para convertirlo en algo aún mejor. a eso es a lo que llamamos "entrenamiento". eso es lo que mi Señor ha hecho con el objeto durante estos quince años: hacerlo mejor, cada vez mejor. y aquí volvemos a encontrarnos con la paradoja. resulta que un objeto sin ego es más valorado por los humanos que un humano con un ego enorme. cada vez es más evidente para el objeto que los egos son los que destruyen las relaciones entre seres humanos y, en el fondo, lo que los hace muy infelices, extremadamente infelices, de forma que vivir sin ego es el mejor camino para la felicidad. y un inferior no tiene ego.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

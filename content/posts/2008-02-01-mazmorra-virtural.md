@@ -1,0 +1,10 @@
+---
+layout: post
+title: "mazmorra virtural"
+date: 2008-02-01 09:42:00 +0000
+permalink: /2009/01/mazmorra-virtural.html
+tags:
+  - reflexiones
+---
+
+<div align="justify">desde que entré en contacto con <span class="blsp-spelling-error" id="SPELLING_ERROR_0">internet</span> me he ido construyendo, poco a poco, una identidad virtual. para ello tuve que hacer varias elecciones: un nombre, una orientación, páginas donde anunciarme, etc. poco a poco fui tejiendo un entramado que me permitió conocer gente, esclavos y Amos, y tener sesiones, en el rol de Amo y en el de esclavo. aún no tenía definido bien mi papel, o no quería definirlo, y me presentaba como 50%. muchos rechazaban esto porque creían que las cosas tenían que se blancas o negras, cuando la mayoría de las veces la vida es, sencillamente, gris. así fue como conocía mi AMO: EL 100% activo, 120% dominante. y ante EL yo me volví 120% sumiso. aún mantuve mis perfiles abiertos, aunque EL controlaba todos los mensajes. pronto tuvo todas mis claves, así que tenía, y tiene, acceso a mi vida virtual. puede leer mi correo, acceder a mis perfiles y cambiarlos, leer cualquier mensaje..... la semana pasada, en una conversación por <span class="blsp-spelling-error" id="SPELLING_ERROR_1">chat</span> que pareció <span class="blsp-spelling-error" id="SPELLING_ERROR_2">intrascendente</span>, me ordenó cambiar mi dos perfiles y ponerme 100% sumiso. eso significaba de hecho una mazmorra virtual: no podía servir a ningún AMO, ni tampoco contactar con ningún sumiso. EL me ha enseñado que hay muchos tipos de ataduras y muchos tipos de mazmorras. poco a poco ha ido cerrando el cerco y limitándome: mis movimientos, mis relaciones cibernéticas, mi horario. lo quiere controlar todo, y yo quiero que lo haga, deseo que lo haga, espero que lo haga, le suplico que lo haga.</div>

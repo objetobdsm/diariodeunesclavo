@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5370 de esclavitud, castrado permanentemente"
+date: 2024-09-28 22:33:00 +0000
+permalink: /2024/09/fdd-meditar.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el día de hoy estuvo marcado por una comida familiar, el cumpleaños de uno de los progenitores del objeto. mi Señor ordenó al objeto ir porque no hacerlo implicaría un problema innecesario pero fue algo completamente agotador. de hecho en más de una ocasión el objeto se planteó qué estaba haciendo allí. no tenía ningún sentido. no se sentía vinculado con ninguna de aquellas personas ya que el vínculo más importante, y casi el único que mantiene el objeto, es el de sumisión con mi Señor. esto entiende que esto puede parecer extraño y chocante para muchos lectores pero es la realidad. a lo largo de nuestra existencia vamos eligiendo nuestros vínculos, mientras que la familia es un impuesto que parece que tenemos que aceptar obligatoriamente. sin embargo pronto te das cuenta de que, especialmente en familias disfuncionales, y no conoce el objeto ninguna que no lo sea de una forma o de otra, hay preferencias, enemistades, celos, peleas, incongruencias... que se supone que tenemos que soportar "porque somos familia", "porque somos de la misma sangre". esta ideología de la sangre y del parentesco es la causante de muchas de las infelicidades de los humanos. no hay más que recordar a caín y abel. mi Señor le ha dado al objeto una nueva familia con Él como cabeza indiscutible. hoy el objeto comió con un montón de extraños que no lo conocen y que si lo hicieran no lo aceptarían. ¿merece la pena tanto esfuerzo? lo único bueno es que, si se repite el esquema de encuentros humanos anteriores, mañana será un día de sumisión profunda.</p><p>sumisión en silencio, castidad y obediencia ciega.</p>

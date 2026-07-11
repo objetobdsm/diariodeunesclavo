@@ -1,0 +1,10 @@
+---
+layout: post
+title: "relaciones D/s"
+date: 2007-10-25 05:24:00 +0000
+permalink: /2007/10/relaciones-ds.html
+tags:
+  - imagenes
+---
+
+<div align="justify"><a href="/uploads/b8/9c/b89cf3101f23298d16ab31e02e4246bd42e7418f2ce36f99a10172b1c37b961d.jpg"><img id="BLOGGER_PHOTO_ID_5046505935007237778" style="FLOAT: left; MARGIN: 0px 10px 10px 0px; CURSOR: hand" alt="" src="/uploads/b8/9c/b89cf3101f23298d16ab31e02e4246bd42e7418f2ce36f99a10172b1c37b961d.jpg" border="0" /></a>¿quien encierra a quien? las transacciones de poder en una relación D/s (Dominación/sumisión) son complejas. esta foto, por ejemplo. no se sabe si es un Amo que está esperando para encerrarte o un esclavo que está saliendo de su jaula. yo me inclino a pensar en lo primero. ¿el motivo? tal vez la intuición, tal vez el deseo... pero hay elementos simbólicos más importantes a tener en cuenta. por ejemplo lleva un brazalete en el brazo izquierdo. también lleva gorra, pero sobre todo lleva guantes. mi AMO hace eso, cuando empieza una sesión, simbólicamente, se pone unos guantes. así me ha condicionado de forma que cuando veo unos, mi primer impulso es considerar que es un AMO preparado para una sesión.</div><div align="justify">desde luego para mi esa jaula sería suficiente para vivir, sirviendo a mi AMO y sometiéndome a EL. las relaciones D/s están llenas de aparentes contradicciones, de paradojas. dejarse encerrar para ser libre, ceder poder para conseguirlo, perderse para acabar siendo dueño de si.... a quien no esté en esto le parecerá una locura. me encanta estar un poco loco.</div><br /><div align="justify">esta foto está sacadas de <span class="blsp-spelling-error" id="SPELLING_ERROR_0">internet</span>, así que supongo que son libres. si no es así <span class="blsp-spelling-error" id="SPELLING_ERROR_1">ponte</span> en contacto con el blog y las retiro de inmediato</div>

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1356 de esclavitud"
+date: 2013-10-02 21:03:00 +0000
+permalink: /2013/10/dia-1356-de-esclavitud.html
+tags:
+  - personal
+---
+
+<div style="text-align: justify;">18 días de castidad, 18 desde el último ordeño</div><div style="text-align: justify;">un esclavo nunca ha llegado a su destino, nunca cumple del todo su objetivo porque siempre puede servir más y mejor. esta reflexión viene a cuento porque el perro ha pensado hoy que tal vez se haya acomodado últimamente. la comodidad puede hacer mella en un esclavo y hacerle perder el norte. quien consigue todo lo que desea puede llegar a no valorar lo que tiene. no es que el perro lo haya conseguido todo, pero no se puede quejar, la verdad. tal vez el truco sea desear lo que tienes y no llorar por lo que no tienes. a algunos esclavos no se les permite usar los muebles del Amo, o comer en el suelo. puede parecer radical pero se trata de que el esclavo no olvide que todo es una cesión del Amo, un regalo que te hace. la comodidad puede convertirse en tu enemigo.</div><div style="text-align: justify;">el perro se ha propuesto evitar eso con una especie de "dieta" de voluntad. si le apetece un dulce o un capricho, reprimirse, o comer algo que no le apetezca tanto, o hacer algo que no lo agrade. se trata de poner a prueba la voluntad, de irla forjando, endureciendo.</div><div style="text-align: justify;">el perro ha comenzado hoy yendo al gimnasio por la mañana, antes del trabajo. fue cansado retomarlo, pero también produjo al perro una sensación de bienestar. no será lo único que haga el perro. no quiero acomodarme y dejar que las cosas alejen al perro de su objetivo. </div><div style="text-align: justify;">nunca hay que detenerse, siempre se puede avanzar un poco más, dar otro paso, aprender algo nuevo que puedas utilizar para servir a tu Amo.</div><div style="text-align: justify;">obediencia ciega para el esclavo, poder absoluto para el Amo.</div>

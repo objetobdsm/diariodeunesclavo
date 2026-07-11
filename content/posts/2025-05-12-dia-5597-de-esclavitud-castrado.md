@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 5597 de esclavitud, castrado permanentemente"
+date: 2025-05-12 22:46:00 +0000
+permalink: /2025/05/dia-5597-de-esclavitud-castrado.html
+tags:
+  - personal
+---
+
+<p style="text-align: justify;"> el objeto sigue bajo pero adelante. de esta situación también se puede aprender especialmente se puede aprender. los inferiores no somos perfectos, ni mantener el mismo estado total el tiempo. es cierto que la ataraxia es el gran refugio del esclavo pero como ha dicho hoy mi Señor "Nunca te ha exigido que estés así siempre". el Amo le dijo que era normal que se sintiera así. </p><p style="text-align: justify;">por la tarde el objeto estuvo "aconsejando" a un esclavo que lleva varios días queriendo hablar con el objeto y tras el permiso de mi Señor. con sus tutorandos y esclavos e inferiores que se acercan a través de internet. está siendo toda una experiencia. el objeto no cree que tenga nada especial que decir solo que lleva  mucho tiempo recorriendo el cansancio de la sumisión y la obediencia a mi Señor. </p><p style="text-align: justify;">lo que no deja de sorprender son la cantidad de situaciones que el objeto considera raras o extrañas en la que se ven inmersos tanto  Amos como esclavos. de esto se puede hacer una lectura positiva y una lectura negativa. la positiva es que cada uno tiene derecho a vivir como quiera, desde o necesite, no estamos aquí para juzgar a nadie y todos los inferiores pueden su sumisión como la sientan. la visión negativa es que puede haber Amos que se aprovechan de las necesidades de los sumisos de servir para tener comportamiento deshonestos o poco éticos. todo sumiso, todo esclavo, es muy valioso y sin duda hay Amos que no merecen ni son dignos de tener los esclavos que tienen.</p><p style="text-align: justify;">sumisión en silencio, castidad y obediencia ciega.</p>

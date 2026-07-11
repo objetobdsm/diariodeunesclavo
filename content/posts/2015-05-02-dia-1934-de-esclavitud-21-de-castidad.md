@@ -1,0 +1,10 @@
+---
+layout: post
+title: "día 1934 de esclavitud, 21 de castidad"
+date: 2015-05-02 22:43:00 +0000
+permalink: /2015/05/dia-1934-de-esclavitud-21-de-castidad.html
+tags:
+  - personal
+---
+
+<p style="text-align:justify;">el perro fue a la gastrofest, una supuesta feria gastronómica con algunos amigos. nuevamente se sorprendió el perro de que, en un entorno así, nadie supiera que llevaba la jaula puesta. el tema fue que, en un momento dado, el perro se dio cuenta de que, si pasara algo, no tenía la llave para abrir y quitarse la jaula. todo el mundo la vería si tuviera que quitarse los pantalones por alguna razón. también cayó en la cuenta de que, si le entraban ganas de orinar, con esta nueva jaula no podría hacerlo de pie bajo ningún concepto. tendría que aguantarse o ir a algún local donde hubiera retrete y no sólo urinarios. eso le hizo reflexionar al perro sobre cómo un simple objeto de resina, bien moldeado y colocado, puede alterar tu vida. y ya no está pensando en el sexo, que es otro cantar. está reflexionando sobre la vida normal y corriente, una vida que para el perro es no-vida, pero es la que tiene que llevar.<br/>mentiría el perro si dijera que no se lo pasó al menos un poco bien en la feria, pero también mentiría si no dijera que cree se lo hubiera pasado mejor yendo con su Dueño. por la tarde el perro estuvo en casa, encerrado, pero deseando estarlo durante muchísimo tiempo. el vivir así, encerrado, ha entrado a formar parte de sus deseos más íntimos, de su proyecto de vida. el salir por ahí, el estar siempre aparentando cosas en una vida social vacía y con poca profundidad es algo cada vez más lejano para este perro. cada vez está más convencido de que nació para estar de rodillas, para vivir encerrado y encadenado a merced de su Dueño, que tiene la lleva de las cadenas, de la jaula, de la mazmorra, de la jaula de castidad. eso es lo único que desea el perro hoy.<br/>obediencia ciega para el esclavo, poder absoluto para el Amo.</p>
