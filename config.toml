@@ -1,9 +1,9 @@
-baseURL = "http://localhost:1313/"
+baseURL = "https://diariodeunesclavo.netlify.app/"
 languageCode = "es-es"
-title = "Diario de un esclavo"
+title = "Diario de un objeto"
 
 [params]
-  description = "Migración del blog a Hugo"
+  description = "Vivencias y reflexiones de un esclavo sobre el BDSM y las relaciones D/s."
 
 [markup]
   [markup.goldmark]
