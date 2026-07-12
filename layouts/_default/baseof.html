@@ -6,13 +6,26 @@
   <title>{{ if .Title }}{{ .Title }} | {{ end }}{{ site.Title }}</title>
   <link rel="stylesheet" href="/css/style.css">
 </head>
+
 <body>
   <div class="site">
+
     <header class="site-header">
-      <h1 class="site-title"><a href="/">{{ site.Title }}</a></h1>
+      <h1 class="site-title">
+        <a href="/">{{ site.Title }}</a>
+      </h1>
+
       {{ with site.Params.description }}
         <p class="site-description">{{ . }}</p>
       {{ end }}
+
+      <nav class="site-nav">
+        <ul>
+          {{ range site.Menus.main }}
+            <li><a href="{{ .URL }}">{{ .Name }}</a></li>
+          {{ end }}
+        </ul>
+      </nav>
     </header>
 
     <main class="site-content">
@@ -22,6 +35,7 @@
     <footer class="site-footer">
       <p>Generado con Hugo</p>
     </footer>
+
   </div>
 </body>
 </html>

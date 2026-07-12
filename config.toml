@@ -1,6 +1,6 @@
 baseURL = "https://diariodeunesclavo.netlify.app/"
 languageCode = "es-es"
-title = "Diario de un objeto"
+title = "Diario de un eclavo"
 
 [params]
   description = "Vivencias y reflexiones de un esclavo sobre el BDSM y las relaciones D/s."
@@ -9,3 +9,35 @@ title = "Diario de un objeto"
   [markup.goldmark]
     [markup.goldmark.renderer]
       unsafe = true
+
+[menu]
+
+  [[menu.main]]
+    identifier = "inicio"
+    name = "Inicio"
+    url = "/"
+    weight = 10
+
+  [[menu.main]]
+    identifier = "diario"
+    name = "Diario"
+    url = "/posts/"
+    weight = 20
+
+  [[menu.main]]
+    identifier = "temas"
+    name = "Temas"
+    url = "/tags/"
+    weight = 30
+
+  [[menu.main]]
+    identifier = "archivo"
+    name = "Archivo"
+    url = "/archivo/"
+    weight = 40
+
+  [[menu.main]]
+    identifier = "sobre"
+    name = "Sobre mí"
+    url = "/sobre/"
+    weight = 50

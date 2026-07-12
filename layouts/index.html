@@ -1,33 +1,76 @@
 {{ define "main" }}
-  <article>
-    <h1>Entradas</h1>
 
-    {{ $posts := where site.RegularPages "Section" "posts" }}
-    {{ if gt (len $posts) 0 }}
-      <ul class="post-list">
-        {{ range $posts.ByDate.Reverse }}
-          <li>
-            <h2><a href="{{ .RelPermalink }}">{{ .Title }}</a></h2>
+<section class="home-intro">
 
-            <div class="post-meta">
-              {{ .Date.Format "02/01/2006 15:04" }}
+  <h1>Diario de un Esclavo</h1>
+
+  <p class="intro">
+    Vivencias y reflexiones sobre BDSM, relaciones D/s y más de veinte años
+    de experiencias personales compartidas en este diario.
+  </p>
+
+</section>
+
+<section class="latest-posts">
+
+  <h2>Últimas publicaciones</h2>
+
+  {{ $posts := where site.RegularPages "Section" "posts" }}
+
+  {{ if gt (len $posts) 0 }}
+
+    <ul class="post-list">
+
+      {{ range first 8 ($posts.ByDate.Reverse) }}
+
+        <li>
+
+          <h3>
+            <a href="{{ .RelPermalink }}">{{ .Title }}</a>
+          </h3>
+
+          <div class="post-meta">
+            {{ .Date.Format "02/01/2006 15:04" }}
+          </div>
+
+          {{ with .Plain }}
+            <div class="summary">
+              {{ . | truncate 320 }}
             </div>
+          {{ end }}
 
-            {{ $texto := .Plain }}
-            {{ if $texto }}
-              <div class="summary">
-                {{ $texto | truncate 320 }}
-              </div>
-            {{ end }}
+          <p class="read-more">
+            <a href="{{ .RelPermalink }}">Leer entrada completa →</a>
+          </p>
 
-            <p class="read-more">
-              <a href="{{ .RelPermalink }}">Leer entrada completa →</a>
-            </p>
-          </li>
-        {{ end }}
-      </ul>
-    {{ else }}
-      <p>No hay entradas en la sección <code>posts</code>.</p>
-    {{ end }}
-  </article>
+        </li>
+
+      {{ end }}
+
+    </ul>
+
+    <p class="view-all">
+      <a href="/posts/">Ver todas las publicaciones →</a>
+    </p>
+
+  {{ else }}
+
+    <p>No hay publicaciones disponibles.</p>
+
+  {{ end }}
+
+</section>
+
+<section class="explore">
+
+  <h2>Explora el Diario</h2>
+
+  <ul>
+    <li><a href="/archivo/">📅 A través de los años</a></li>
+    <li><a href="/tags/">🏷 Explorar por temas</a></li>
+    <li><a href="/sobre/">📖 Empieza por aquí</a></li>
+  </ul>
+
+</section>
+
 {{ end }}
