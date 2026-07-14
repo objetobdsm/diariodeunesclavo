@@ -6,7 +6,7 @@ permalink: /2025/02/fdd-paz-y-equilibrio.html
 tags:
   - FdD
   - esclavitud voluntaria
-  - bondge
+  - bondage
   - privación sensorial
 ---
 

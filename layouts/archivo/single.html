@@ -1,0 +1,30 @@
+{{ define "main" }}
+
+<article class="page">
+
+  <h1>{{ .Title }}</h1>
+
+  {{ .Content }}
+
+  <nav class="topic-map">
+
+    {{ $pages := where site.RegularPages "Section" "posts" }}
+
+    {{ range ($pages.GroupByDate "2006") }}
+
+      <a href="/posts/#{{ .Key }}">
+        {{ .Key }}
+        <span>({{ len .Pages }})</span>
+      </a>
+
+      {{ if ne .Key "2000" }}
+        <span class="topic-separator">·</span>
+      {{ end }}
+
+    {{ end }}
+
+  </nav>
+
+</article>
+
+{{ end }}

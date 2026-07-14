@@ -1,0 +1,41 @@
+{{ define "main" }}
+
+<header class="section-header">
+
+  <h1>diario</h1>
+
+  <p class="intro">
+    Este es el archivo completo del Diario. Aquí encontrarás todas las entradas
+    publicadas, ordenadas cronológicamente. Puedes recorrerlas desde las más
+    recientes hasta las más antiguas o dejarte llevar por la curiosidad.
+  </p>
+
+</header>
+
+{{ $posts := where site.RegularPages "Section" "posts" }}
+
+<ul class="post-list">
+
+{{ range $posts.ByDate.Reverse }}
+
+<li>
+
+  <h2>
+    <a href="{{ .RelPermalink }}">{{ .Title }}</a>
+  </h2>
+
+  <p class="post-date">
+    {{ .Date.Format "2 January 2006" }}
+  </p>
+
+  {{ with .Plain }}
+  <p>{{ . | truncate 260 }}</p>
+  {{ end }}
+
+</li>
+
+{{ end }}
+
+</ul>
+
+{{ end }}

@@ -5,6 +5,8 @@ date: 2026-06-03 10:00:00 +0000
 permalink: 
 tags:
   - FdD
+  - bondage
+  - mordazas
 ---
 ![Foto de dia](/uploads/2026/2026_06/2026_06_03.webp)
 

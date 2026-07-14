@@ -1,35 +1,43 @@
-# Sesiones de trabajo
+# sesiones de trabajo
 
-Este documento resume el trabajo realizado en cada sesión y sirve como punto de partida para la siguiente.
+este documento resume el trabajo realizado en cada sesión y sirve como punto de partida para la siguiente.
 
 ---
 
-## Sesión 001 · 12 de julio de 2026
+## sesión 001 · 12 de julio de 2026
 
-### Objetivo
+### objetivo
 
-Comenzar la segunda etapa del proyecto tras la migración desde Blogger.
+comenzar la segunda etapa del proyecto tras la migración desde blogger y definir la identidad editorial del diario.
 
-### Completado
+### completado
 
-- Limpieza del repositorio.
-- Organización de las herramientas de migración.
-- Revisión de la estructura de Hugo.
-- Creación del menú principal.
-- Definición de la nueva filosofía del proyecto.
-- Creación de la documentación interna.
+- reorganización completa de la documentación.
+- creación de la arquitectura editorial.
+- definición de la estructura principal del sitio.
+- creación de las páginas:
+  - sobre este diario
+  - archivo
+  - biblioteca
+  - escritos
+  - acompañamiento
+  - empieza por aquí
+- rediseño de la portada.
+- reorganización de la navegación.
+- definición de la guía de estilo.
 
-### Decisiones
+### decisiones
 
-- El proyecto deja de entenderse como un blog tradicional.
-- Se convierte en un archivo editorial.
-- El contenido será siempre el protagonista.
-- Diseño minimalista.
-- Estética nocturna.
-- Sin dependencias de temas externos.
+- el proyecto deja de entenderse como un blog.
+- pasa a concebirse como un diario y un archivo editorial.
+- la lectura es prioritaria frente a la tecnología.
+- los archivos se sustituyen siempre completos.
+- la voz del diario se expresa siempre en minúsculas.
+- el diario escribe siempre en voz baja.
 
-### Próxima sesión
+### próxima sesión
 
-- Crear la arquitectura de navegación.
-- Diseñar el sistema visual.
-- Construir la nueva portada.
+- revisar la portada desde un punto de vista editorial.
+- construir el archivo cronológico.
+- comenzar la biblioteca viva.
+- seguir refinando la experiencia de lectura.

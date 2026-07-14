@@ -1,0 +1,30 @@
+{{ define "main" }}
+
+<article class="page">
+
+  <h1>temas</h1>
+
+  <p class="page-intro">
+    cada palabra abre un camino recorrido por el diario.
+  </p>
+
+  <nav class="topic-map">
+
+    {{ range $index, $term := .Data.Terms.Alphabetical }}
+
+      {{ if gt $index 0 }}
+        <span class="topic-separator">·</span>
+      {{ end }}
+
+      <a href="{{ $term.Page.RelPermalink }}">
+        {{ $term.Page.Title }}
+        <span>({{ $term.Count }})</span>
+      </a>
+
+    {{ end }}
+
+  </nav>
+
+</article>
+
+{{ end }}

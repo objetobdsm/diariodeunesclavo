@@ -1,23 +1,48 @@
 {{ define "main" }}
-  <article class="post-single">
-    <p class="back-home"><a href="/">← Volver al inicio</a></p>
 
-    <h1>{{ .Title }}</h1>
+<article class="post-single">
 
-    <div class="post-meta">
-      {{ .Date.Format "02/01/2006 15:04" }}
-    </div>
+  <h1>{{ .Title }}</h1>
 
-    {{ with .Params.tags }}
-      <ul class="tag-list">
-        {{ range . }}
-          <li>{{ . }}</li>
-        {{ end }}
-      </ul>
+  <div class="post-meta">
+    {{ .Date.Format "2 January 2006" }}
+  </div>
+
+  <div class="post-content">
+    {{ .Content }}
+  </div>
+
+  {{ with .Params.tags }}
+  <div class="post-tags">
+    {{ range $index, $tag := . }}
+      {{ if $index }} · {{ end }}
+      <a href="/tags/{{ $tag | urlize }}/">{{ $tag }}</a>
     {{ end }}
+  </div>
+  {{ end }}
 
-    <div class="post-content">
-      {{ .Content }}
+  <hr>
+
+  <nav class="chapter-nav">
+
+    <div class="chapter-prev">
+      {{ with .NextInSection }}
+        <a href="{{ .RelPermalink }}">← más reciente</a>
+      {{ end }}
     </div>
-  </article>
+
+    <div class="chapter-archive">
+      <a href="/archivo/">archivo</a>
+    </div>
+
+    <div class="chapter-next">
+      {{ with .PrevInSection }}
+        <a href="{{ .RelPermalink }}">más antigua →</a>
+      {{ end }}
+    </div>
+
+  </nav>
+
+</article>
+
 {{ end }}

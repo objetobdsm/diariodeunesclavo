@@ -169,6 +169,10 @@ a:hover{
    contenido
    ========================================================== */
 
+/* ==========================================================
+   contenido
+   ========================================================== */
+
 .content{
 
   padding:1rem 0 4rem;
@@ -419,7 +423,7 @@ blockquote{
 
   gap:2rem;
 
-  margin:0 0 1.2rem;
+  margin:0 0 2.5rem;
 
   font-size:.95rem;
 
@@ -463,44 +467,21 @@ blockquote{
 
 }
 
+
 /* ==========================================================
-   índice temático
+   pie
    ========================================================== */
 
-.topic-map{
+.site-footer{
 
-  margin-top:1.8rem;
+  margin-top:2rem;
 
-  font-size:1.05rem;
+  padding:2rem 0;
 
-  line-height:1.85;
-
-}
-
-.topic-map a{
-
-  color:var(--text);
-
-  text-decoration:none;
-
-}
-
-.topic-map a:hover{
-
-  color:var(--link);
-
-}
-
-.topic-map a span{
+  border-top:1px solid var(--border);
 
   color:var(--muted);
 
-}
-
-.topic-separator{
-
-  color:var(--muted);
-
-  margin:0 .45rem;
+  font-size:.9rem;
 
 }

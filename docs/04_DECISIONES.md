@@ -1,23 +1,35 @@
-# Decisiones
+# decisiones
 
-## D-001
+## d-001
 
-**Fecha**
+**fecha**
 
 2026-07-12
 
-**Decisión**
+**decisión**
 
-El proyecto deja de concebirse como un blog y pasa a
-organizarse como un archivo editorial.
+el proyecto deja de concebirse como un blog y pasa a organizarse como un archivo editorial.
 
-**Motivo**
+**motivo**
 
-Permite crecer incorporando nuevas secciones sin perder
-la identidad del diario.
+permite crecer incorporando nuevas secciones sin perder la identidad del diario.
 
-D-001: El proyecto evoluciona de blog a archivo editorial.
-D-002: Se adopta Hugo sin temas externos para mantener el control completo del diseño.
-D-003: La documentación del proyecto se centraliza en docs/.
-D-004: La documentación de la migración pasa a conservarse como archivo histórico (99_MIGRACION_ARCHIVO).
-D-005: La navegación combinará recorrido cronológico y temático.
+---
+
+## d-002
+
+**fecha**
+
+2026-07-12
+
+**decisión**
+
+la identidad editorial del diario se construye íntegramente en minúsculas.
+
+esta convención se aplicará a la navegación, las páginas institucionales y, siempre que sea posible, a los nuevos textos escritos específicamente para el diario.
+
+**motivo**
+
+las minúsculas forman parte de la voz del proyecto.
+
+el diario habla siempre en voz baja.

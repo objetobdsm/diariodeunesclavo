@@ -1,0 +1,18 @@
+{{/* Años del diario */}}
+
+{{ $years := slice }}
+
+{{ range where site.RegularPages "Section" "posts" }}
+  {{ $year := .Date.Format "2006" }}
+  {{ if not (in $years $year) }}
+    {{ $years = $years | append $year }}
+  {{ end }}
+{{ end }}
+
+<p class="archivo-years">
+
+{{ range sort $years }}
+  <a href="/archivo/{{ . }}/">{{ . }}</a>{{ if ne . (index (last 1 (sort $years)) 0) }} · {{ end }}
+{{ end }}
+
+</p>

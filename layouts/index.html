@@ -2,73 +2,40 @@
 
 <section class="home-intro">
 
-  <h1>Diario de un Esclavo</h1>
-
   <p class="intro">
-    Vivencias y reflexiones sobre BDSM, relaciones D/s y más de veinte años
-    de experiencias personales compartidas en este diario.
+    más de veinte años escribiendo.
   </p>
 
 </section>
 
-<section class="latest-posts">
+<section class="home-latest">
 
-  <h2>Últimas publicaciones</h2>
+  <h2>últimas entradas</h2>
 
-  {{ $posts := where site.RegularPages "Section" "posts" }}
+  {{ $posts := first 5 (where site.RegularPages "Section" "posts").ByDate.Reverse }}
 
-  {{ if gt (len $posts) 0 }}
+  <ul class="post-list">
 
-    <ul class="post-list">
+    {{ range $posts }}
 
-      {{ range first 8 ($posts.ByDate.Reverse) }}
+    <li>
 
-        <li>
+      <h3>
+        <a href="{{ .RelPermalink }}">{{ .Title }}</a>
+      </h3>
 
-          <h3>
-            <a href="{{ .RelPermalink }}">{{ .Title }}</a>
-          </h3>
+      <p class="post-date">
+        {{ .Date.Format "2 January 2006" }}
+      </p>
 
-          <div class="post-meta">
-            {{ .Date.Format "02/01/2006 15:04" }}
-          </div>
-
-          {{ with .Plain }}
-            <div class="summary">
-              {{ . | truncate 320 }}
-            </div>
-          {{ end }}
-
-          <p class="read-more">
-            <a href="{{ .RelPermalink }}">Leer entrada completa →</a>
-          </p>
-
-        </li>
-
+      {{ with .Plain }}
+      <p>{{ . | truncate 220 }}</p>
       {{ end }}
 
-    </ul>
+    </li>
 
-    <p class="view-all">
-      <a href="/posts/">Ver todas las publicaciones →</a>
-    </p>
+    {{ end }}
 
-  {{ else }}
-
-    <p>No hay publicaciones disponibles.</p>
-
-  {{ end }}
-
-</section>
-
-<section class="explore">
-
-  <h2>Explora el Diario</h2>
-
-  <ul>
-    <li><a href="/archivo/">📅 A través de los años</a></li>
-    <li><a href="/tags/">🏷 Explorar por temas</a></li>
-    <li><a href="/sobre/">📖 Empieza por aquí</a></li>
   </ul>
 
 </section>
