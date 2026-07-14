@@ -1,0 +1,43 @@
+{{ define "main" }}
+
+<article class="page">
+
+  <h1>{{ .Title }}</h1>
+
+  <div class="page-content">
+
+    {{ .Content }}
+
+    {{ $pages := where site.RegularPages "Section" "posts" }}
+    {{ $years := slice }}
+
+    {{ range $pages }}
+      {{ $year := .Date.Format "2006" }}
+      {{ if not (in $years $year) }}
+        {{ $years = $years | append $year }}
+      {{ end }}
+    {{ end }}
+
+    {{ $sorted := sort $years "value" "desc" }}
+
+    <nav class="archivo-years">
+
+      {{ range $i, $year := $sorted }}
+        <a href="#" class="archivo-year" data-year="{{ $year }}">{{ $year }}</a>{{ if lt $i (sub (len $sorted) 1) }} · {{ end }}
+      {{ end }}
+
+    </nav>
+
+    <div id="archivo-content">
+
+      <p class="archivo-placeholder">
+        selecciona un año.
+      </p>
+
+    </div>
+
+  </div>
+
+</article>
+
+{{ end }}

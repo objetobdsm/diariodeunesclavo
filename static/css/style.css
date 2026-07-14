@@ -112,7 +112,29 @@ a:hover{
 }
 
 .site-description{
+/* ==========================
+   Archivo
+========================== */
 
+.archivo-panels {
+  margin-top: 2rem;
+}
+
+.archivo-panel {
+  display: none;
+}
+
+.archivo-panel.active {
+  display: block;
+}
+
+.archivo-panel h2 {
+  margin-top: 0;
+}
+
+.archivo-placeholder {
+  color: #777;
+}
   margin-top:1rem;
 
   color:var(--muted);
@@ -504,3 +526,61 @@ blockquote{
   margin:0 .45rem;
 
 }
+
+.archivo-years {
+  margin-top: 2rem;
+  line-height: 2.2;
+  font-size: 1.05rem;
+}
+
+.archivo-years a {
+  text-decoration: none;
+}
+
+.archivo-years a:hover {
+  text-decoration: underline;
+}
+
+/* ==========================
+   Archivo
+========================== */
+
+.archivo-years {
+  margin: 2rem 0 0;
+  line-height: 2.2;
+}
+
+.archivo-years a {
+  color: inherit;
+  text-decoration: none;
+}
+
+.archivo-years a:hover {
+  text-decoration: underline;
+}
+
+
+/* ==========================
+   Archivo
+========================== */
+
+.archivo-panels {
+  margin-top: 2rem;
+}
+
+.archivo-panel {
+  display: none;
+}
+
+.archivo-panel.active {
+  display: block;
+}
+
+.archivo-panel h2 {
+  margin-top: 0;
+}
+
+.archivo-placeholder {
+  color: #777;
+}
+
