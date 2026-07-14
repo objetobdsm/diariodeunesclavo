@@ -4,12 +4,6 @@
 
   <h1>diario</h1>
 
-  <p class="intro">
-    Este es el archivo completo del Diario. Aquí encontrarás todas las entradas
-    publicadas, ordenadas cronológicamente. Puedes recorrerlas desde las más
-    recientes hasta las más antiguas o dejarte llevar por la curiosidad.
-  </p>
-
 </header>
 
 {{ $posts := where site.RegularPages "Section" "posts" }}
@@ -25,7 +19,8 @@
   </h2>
 
   <p class="post-date">
-    {{ .Date.Format "2 January 2006" }}
+   {{ $meses := dict "January" "enero" "February" "febrero" "March" "marzo" "April" "abril" "May" "mayo" "June" "junio" "July" "julio" "August" "agosto" "September" "septiembre" "October" "octubre" "November" "noviembre" "December" "diciembre" }}
+{{ .Date.Day }} {{ index $meses (.Date.Format "January") }} {{ .Date.Year }}
   </p>
 
   {{ with .Plain }}
