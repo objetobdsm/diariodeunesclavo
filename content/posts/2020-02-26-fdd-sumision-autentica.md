@@ -5,7 +5,7 @@ date: 2020-02-26 18:52:00 +0000
 permalink: /2020/02/fdd-sumision-autentica.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

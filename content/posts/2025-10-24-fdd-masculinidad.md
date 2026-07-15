@@ -5,7 +5,7 @@ date: 2025-10-24 02:54:00 +0000
 permalink: /2025/10/fdd-masculinidad.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

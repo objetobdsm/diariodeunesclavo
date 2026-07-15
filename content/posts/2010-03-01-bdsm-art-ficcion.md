@@ -4,7 +4,7 @@ title: "bdsm art-ficción"
 date: 2010-03-01 14:29:00 +0000
 permalink: /2010/02/bdsm-art-ficcion.html
 tags:
-  - imagenes
+  - imágenes
 ---
 
 <a href="/uploads/1e/1b/1e1b812bf6b2531d7ee3eab687ed9ace47c3cc3fe93b7c51ed38d303aa0443fe.gif" onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}"><img alt="" border="0" id="BLOGGER_PHOTO_ID_5378346851330603266" src="/uploads/1e/1b/1e1b812bf6b2531d7ee3eab687ed9ace47c3cc3fe93b7c51ed38d303aa0443fe.gif" style="cursor: hand; cursor: pointer; display: block; height: 356px; margin: 0px auto 10px; text-align: center; width: 379px;" /></a><br />

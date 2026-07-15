@@ -4,7 +4,7 @@ title: "FdD no hace falta "
 date: 2012-12-26 07:28:00 +0000
 permalink: /2012/12/fdd-no-hace-falta.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

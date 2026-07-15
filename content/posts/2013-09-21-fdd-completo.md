@@ -5,7 +5,7 @@ date: 2013-09-21 07:36:00 +0000
 permalink: /2013/09/fdd-completo.html
 tags:
   - latex
-  - sumision
+  - sumisión
   - FdD
 ---
 

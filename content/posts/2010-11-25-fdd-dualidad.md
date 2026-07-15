@@ -4,7 +4,7 @@ title: "FdD dualidad"
 date: 2010-11-25 07:10:00 +0000
 permalink: /2010/11/fdd-dualidad.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

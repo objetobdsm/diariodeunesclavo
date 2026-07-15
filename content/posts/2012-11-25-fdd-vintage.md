@@ -5,7 +5,7 @@ date: 2012-11-25 08:34:00 +0000
 permalink: /2012/11/fdd-vintage.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - leather
   - FdD
 ---

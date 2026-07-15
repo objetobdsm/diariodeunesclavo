@@ -5,7 +5,7 @@ date: 2018-02-05 18:18:00 +0000
 permalink: /2018/02/fdd-potente.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

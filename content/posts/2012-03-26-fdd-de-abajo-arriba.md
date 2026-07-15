@@ -5,7 +5,7 @@ date: 2012-03-26 06:16:00 +0000
 permalink: /2012/03/fdd-de-abajo-arriba.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

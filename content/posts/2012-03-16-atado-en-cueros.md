@@ -4,7 +4,7 @@ title: "atado en cueros"
 date: 2012-03-16 16:57:00 +0000
 permalink: /2012/03/atado-en-cueros.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - bondage
   - leather
 ---

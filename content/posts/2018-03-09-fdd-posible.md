@@ -5,7 +5,7 @@ date: 2018-03-09 07:28:00 +0000
 permalink: /2018/03/fdd-posible.html
 tags:
   - capucha
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - latex

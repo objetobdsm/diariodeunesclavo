@@ -4,7 +4,7 @@ title: "FdD esperando"
 date: 2010-11-04 07:20:00 +0000
 permalink: /2010/11/fdd-esperando.html
 tags:
-  - imagenes
+  - imágenes
   - obediencia
   - mordazas
   - bondage

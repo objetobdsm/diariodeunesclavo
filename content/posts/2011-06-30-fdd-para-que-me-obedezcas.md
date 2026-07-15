@@ -4,7 +4,7 @@ title: "FdD para que me obedezcas"
 date: 2011-06-30 05:55:00 +0000
 permalink: /2011/06/fdd-para-que-me-obedezcas.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

@@ -4,7 +4,7 @@ title: "FdD más cuero"
 date: 2011-01-02 07:02:00 +0000
 permalink: /2011/01/fdd-mas-cuero.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

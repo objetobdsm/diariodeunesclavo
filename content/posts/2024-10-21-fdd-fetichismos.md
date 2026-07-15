@@ -5,7 +5,7 @@ date: 2024-10-21 06:46:00 +0000
 permalink: /2024/10/fdd-fetichismos.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

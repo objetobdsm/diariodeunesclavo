@@ -7,7 +7,7 @@ tags:
   - botas
   - humillación
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

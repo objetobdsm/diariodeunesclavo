@@ -6,7 +6,7 @@ permalink: /2022/08/fdd-bloqueos.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

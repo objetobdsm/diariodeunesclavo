@@ -5,7 +5,7 @@ date: 2008-01-05 08:32:00 +0000
 permalink: /2008/01/minirelato-iv.html
 tags:
   - ficción propia
-  - sumision
+  - sumisión
   - mini-relatos
 ---
 

@@ -5,7 +5,7 @@ date: 2022-06-07 07:25:00 +0000
 permalink: /2022/06/fdd-espera.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

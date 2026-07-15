@@ -4,7 +4,7 @@ title: "FdD perro enjaulado"
 date: 2011-02-22 07:35:00 +0000
 permalink: /2011/02/fdd-perro-enjaulado.html
 tags:
-  - imagenes
+  - imágenes
   - FdD
   - prisionero
   - jaulas

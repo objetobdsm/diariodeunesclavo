@@ -4,8 +4,8 @@ title: "amo en cueros 3"
 date: 2010-04-26 06:55:00 +0000
 permalink: /2010/04/amo-en-cueros-3.html
 tags:
-  - imagenes
-  - amos
+  - imágenes
+  - Amos
   - leather
 ---
 

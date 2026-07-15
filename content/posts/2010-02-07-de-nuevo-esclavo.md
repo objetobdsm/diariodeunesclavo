@@ -5,7 +5,7 @@ date: 2010-02-07 22:10:00 +0000
 permalink: /2010/02/de-nuevo-esclavo.html
 tags:
   - sesiones
-  - dominacion
+  - dominación
   - esclavitud
 ---
 

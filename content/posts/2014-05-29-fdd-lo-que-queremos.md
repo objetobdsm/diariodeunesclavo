@@ -6,7 +6,7 @@ permalink: /2014/05/fdd-lo-que-queremos.html
 tags:
   - capucha
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

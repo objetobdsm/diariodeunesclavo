@@ -6,7 +6,7 @@ permalink: /2011/05/la-mejor-fiesta-del-ano.html
 tags:
   - yumbo
   - identidad
-  - imagenes propias
+  - imágenes propias
 ---
 
 <div class="separator" style="clear: both; text-align: justify;">hace 15 días fue el orgullo gay en maspalomas, sin duda la mejor fiesta del año. vienen gays de toda europa a celebrar su sexualidad en un ambiente cálido y agradable como el de estas islas. cada año aumenta la cantidad de gente. durante una semana hay actos, pero es sin duda la cabalgata del sábado y la fiesta posterior lo más divertido. siempre suelo bajar y hasta el momento no he encontrado un momento más divertido.</div><br />

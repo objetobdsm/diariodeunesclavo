@@ -7,7 +7,7 @@ tags:
   - bondage
   - gimp
   - FdD
-  - despersonalizacion
+  - despersonalización
   - deshumanización
 ---
 

@@ -4,8 +4,8 @@ title: "control/castidad"
 date: 2008-08-24 04:20:00 +0000
 permalink: /2008/08/controlcastidad.html
 tags:
-  - imagenes
-  - sumision
+  - imágenes
+  - sumisión
   - castidad
 ---
 

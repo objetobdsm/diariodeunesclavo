@@ -4,7 +4,7 @@ title: "FdD para mi AMO"
 date: 2010-11-24 06:01:00 +0000
 permalink: /2010/11/fdd-para-mi-amo.html
 tags:
-  - imagenes
+  - imágenes
   - mordazas
   - bondage
 ---

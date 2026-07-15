@@ -4,7 +4,7 @@ title: "FdD cuerpo ocultado"
 date: 2010-09-04 06:49:00 +0000
 permalink: /2010/09/fdd-cuerpo-ocultado.html
 tags:
-  - imagenes
+  - imágenes
   - latex
   - bondage
 ---

@@ -5,7 +5,7 @@ date: 2008-01-27 17:52:00 +0000
 permalink: /2008/01/cuero-y-cadenas.html
 tags:
   - dolor
-  - imagenes
+  - imágenes
   - leather
 ---
 

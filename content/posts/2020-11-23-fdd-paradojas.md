@@ -7,7 +7,7 @@ tags:
   - botas
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

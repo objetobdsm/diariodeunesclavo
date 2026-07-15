@@ -6,7 +6,7 @@ permalink: /2017/01/fdd-reconciliacion.html
 tags:
   - bondage
   - FdD
-  - momificacion
+  - momificación
   - leather
 ---
 

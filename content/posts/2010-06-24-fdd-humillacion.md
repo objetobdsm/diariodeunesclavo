@@ -5,7 +5,7 @@ date: 2010-06-24 04:27:00 +0000
 permalink: /2010/06/fdd-humillacion.html
 tags:
   - humillación
-  - imagenes
+  - imágenes
   - esclavitud
 ---
 

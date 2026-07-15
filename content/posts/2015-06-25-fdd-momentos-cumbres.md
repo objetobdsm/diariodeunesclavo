@@ -6,7 +6,7 @@ permalink: /2015/06/fdd-momentos-cumbres.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

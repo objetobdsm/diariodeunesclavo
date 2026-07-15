@@ -5,7 +5,7 @@ date: 2010-08-26 12:50:00 +0000
 permalink: /2010/08/las-botas-de-mi-amo-7.html
 tags:
   - botas
-  - imagenes propias
+  - imágenes propias
 ---
 
 <div class="separator" style="clear: both; text-align: justify;">son muchas, lo se, tal vez demasiadas ¿demasiadas? yo nunca me canso de verlas, de lamerlas, de someterme a ellas. las botas de mi AMO van ganando cada vez más importancia en mi horizonte vital, por el mero hecho de que a EL le dan placer, le gustan y son de su propiedad.</div><div class="separator" style="clear: both; text-align: center;"><br />

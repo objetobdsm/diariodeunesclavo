@@ -5,7 +5,7 @@ date: 2012-12-19 08:26:00 +0000
 permalink: /2012/12/fdd-mas-durezas.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

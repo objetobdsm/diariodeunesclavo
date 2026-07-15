@@ -6,7 +6,7 @@ permalink: /2025/08/fdd-renovacion-de-un-clasico.html
 tags:
   - FdD
   - esclavitud voluntaria
-  - amos
+  - Amos
   - esclavos
   - latex
 ---

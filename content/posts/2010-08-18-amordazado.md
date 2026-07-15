@@ -4,7 +4,7 @@ title: "amordazado"
 date: 2010-08-18 08:12:00 +0000
 permalink: /2010/08/amordazado.html
 tags:
-  - imagenes
+  - imágenes
   - mordazas
   - bondage
   - privación sensorial

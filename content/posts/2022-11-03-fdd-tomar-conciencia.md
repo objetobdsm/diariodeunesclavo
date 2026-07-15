@@ -4,7 +4,7 @@ title: "FdD tomar conciencia"
 date: 2022-11-03 11:12:00 +0000
 permalink: /2022/11/fdd-tomar-conciencia.html
 tags:
-  - vinage
+  - vintage
   - FdD
   - leather
 ---

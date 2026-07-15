@@ -4,7 +4,7 @@ title: "última oportunidad"
 date: 2011-01-12 16:34:00 +0000
 permalink: /2011/01/ultima-oportunidad.html
 tags:
-  - imagenes
+  - imágenes
   - bondage
   - esclavitud
 ---

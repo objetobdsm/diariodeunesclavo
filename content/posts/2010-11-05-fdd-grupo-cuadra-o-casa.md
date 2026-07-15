@@ -4,7 +4,7 @@ title: "FdD grupo, cuadra o casa"
 date: 2010-11-05 07:32:00 +0000
 permalink: /2010/11/fdd-grupo-cuadra-o-casa.html
 tags:
-  - imagenes
+  - imágenes
   - vida real
   - esclavitud
 ---

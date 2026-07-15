@@ -5,7 +5,7 @@ date: 2024-10-18 06:36:00 +0000
 permalink: /2024/10/fdd-estilos.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

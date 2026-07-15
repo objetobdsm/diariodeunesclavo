@@ -6,7 +6,7 @@ permalink: /2025/12/fdd-herencias.html
 tags:
   - FdD
   - leather
-  - amos
+  - Amos
   - esclavos
 ---
 

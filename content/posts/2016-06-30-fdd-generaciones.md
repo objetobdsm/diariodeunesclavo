@@ -5,7 +5,7 @@ date: 2016-06-30 12:22:00 +0000
 permalink: /2016/06/fdd-generaciones.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

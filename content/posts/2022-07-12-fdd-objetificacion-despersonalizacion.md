@@ -6,7 +6,7 @@ permalink: /2022/07/fdd-objetificacion-despersonalizacion.html
 tags:
   - capucha
   - FdD
-  - despersonalizacion
+  - despersonalización
   - deshumanización
 ---
 

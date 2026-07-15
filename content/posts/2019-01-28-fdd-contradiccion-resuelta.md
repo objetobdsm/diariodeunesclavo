@@ -5,7 +5,7 @@ date: 2019-01-28 17:22:00 +0000
 permalink: /2019/01/fdd-contradiccion-resuelta.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

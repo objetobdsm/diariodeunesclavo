@@ -5,7 +5,7 @@ date: 2015-10-15 07:07:00 +0000
 permalink: /2015/10/fdd-la-espera.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

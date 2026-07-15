@@ -6,7 +6,7 @@ permalink: /2017/05/fdd-diferencias-vitales.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

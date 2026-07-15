@@ -6,7 +6,7 @@ permalink: /2013/03/fdd-gratificacion.html
 tags:
   - guantes
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

@@ -4,7 +4,7 @@ title: "FdD marcar la diferencia"
 date: 2013-09-28 07:44:00 +0000
 permalink: /2013/09/fdd-marcar-la-diferencia.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

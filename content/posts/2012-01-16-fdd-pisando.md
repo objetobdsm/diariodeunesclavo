@@ -5,7 +5,7 @@ date: 2012-01-16 05:33:00 +0000
 permalink: /2012/01/fdd-pisando.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

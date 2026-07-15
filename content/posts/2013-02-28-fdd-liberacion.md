@@ -5,7 +5,7 @@ date: 2013-02-28 08:00:00 +0000
 permalink: /2013/02/fdd-liberacion.html
 tags:
   - esclavos
-  - sumision
+  - sumisión
   - FdD
 ---
 

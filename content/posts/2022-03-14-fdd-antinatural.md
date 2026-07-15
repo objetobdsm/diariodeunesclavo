@@ -6,7 +6,7 @@ permalink: /2022/03/fdd-antinatural.html
 tags:
   - bondage
   - FdD
-  - momificacion
+  - momificación
   - latex
 ---
 

@@ -6,7 +6,7 @@ permalink: /2019/03/fdd-el-nucleo.html
 tags:
   - FdD
   - latex
-  - sumision
+  - sumisión
   - leather
 ---
 

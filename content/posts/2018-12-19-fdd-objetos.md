@@ -6,7 +6,7 @@ permalink: /2018/12/fdd-objetos.html
 tags:
   - mordazas
   - capucha
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
 ---

@@ -6,7 +6,7 @@ permalink: /2018/11/fdd-reconocimiento.html
 tags:
   - moteros
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -6,7 +6,7 @@ permalink: /2020/08/fdd-jerarquia.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -4,8 +4,8 @@ title: "FdD blanco y negro"
 date: 2010-09-02 06:47:00 +0000
 permalink: /2010/09/fdd-blanco-y-negro.html
 tags:
-  - imagenes
-  - amos
+  - imágenes
+  - Amos
   - leather
 ---
 

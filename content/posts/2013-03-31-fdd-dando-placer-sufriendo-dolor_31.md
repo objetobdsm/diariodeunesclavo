@@ -5,7 +5,7 @@ date: 2013-03-31 06:27:00 +0000
 permalink: /2013/03/fdd-dando-placer-sufriendo-dolor_31.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

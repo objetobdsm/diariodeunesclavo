@@ -4,7 +4,7 @@ title: "la jaula de metal"
 date: 2014-05-08 18:38:00 +0000
 permalink: /2014/05/la-jaula-de-metal.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - jaulas
   - castidad
 ---

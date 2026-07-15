@@ -6,7 +6,7 @@ permalink: /2021/11/fdd-limites.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

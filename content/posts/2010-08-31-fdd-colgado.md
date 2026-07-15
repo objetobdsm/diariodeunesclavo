@@ -5,7 +5,7 @@ date: 2010-08-31 06:47:00 +0000
 permalink: /2010/08/fdd-colgado.html
 tags:
   - bondage
-  - imagenes
+  - imágenes
 ---
 
 <div class="separator" style="clear: left; float: left; margin-bottom: 1em; margin-right: 1em; text-align: center;"><img border="0" height="400" src="/uploads/38/56/3856aada62e5bac7729f19be56059e9d028c4119012c287260e7471a472b80e6.jpg" width="272" /></div><br />

@@ -6,7 +6,7 @@ permalink: /2011/11/fdd-sujetando-y-sujetado.html
 tags:
   - esclavos
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

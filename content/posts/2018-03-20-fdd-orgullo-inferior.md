@@ -6,7 +6,7 @@ permalink: /2018/03/fdd-orgullo-inferior.html
 tags:
   - esclavos
   - FdD
-  - sumision
+  - sumisión
   - castidad
 ---
 

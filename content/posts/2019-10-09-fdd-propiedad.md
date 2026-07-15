@@ -6,7 +6,7 @@ permalink: /2019/10/fdd-propiedad.html
 tags:
   - esclavos
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div style="text-align: center;">

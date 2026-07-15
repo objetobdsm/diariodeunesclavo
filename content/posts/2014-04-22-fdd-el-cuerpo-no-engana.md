@@ -5,7 +5,7 @@ date: 2014-04-22 07:12:00 +0000
 permalink: /2014/04/fdd-el-cuerpo-no-engana.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

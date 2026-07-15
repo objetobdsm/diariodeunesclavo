@@ -6,8 +6,8 @@ permalink: /2022/08/fdd-felicidad.html
 tags:
   - esclavos
   - FdD
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - leather
 ---
 

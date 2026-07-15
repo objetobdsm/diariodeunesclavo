@@ -6,7 +6,7 @@ permalink: /2012/03/fdd-transformaciones.html
 tags:
   - guantes
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

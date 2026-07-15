@@ -4,7 +4,7 @@ title: "FdD armadura"
 date: 2012-06-17 07:17:00 +0000
 permalink: /2012/06/fdd-armadura.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

@@ -5,7 +5,7 @@ date: 2010-04-30 05:00:00 +0000
 permalink: /2010/04/botas-con-modelo.html
 tags:
   - botas
-  - imagenes
+  - imágenes
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/ad/72/ad725ae9cb8d84df03072c0bfcbb737919948778cddefea42adad213037436a6.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="425" src="/uploads/ad/72/ad725ae9cb8d84df03072c0bfcbb737919948778cddefea42adad213037436a6.jpg" width="640" /></a></div><br />

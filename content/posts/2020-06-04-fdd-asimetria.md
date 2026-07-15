@@ -5,9 +5,9 @@ date: 2020-06-04 10:57:00 +0000
 permalink: /2020/06/fdd-asimetria.html
 tags:
   - FdD
-  - dominacion
+  - dominación
   - latex
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

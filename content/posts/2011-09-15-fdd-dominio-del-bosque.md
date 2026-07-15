@@ -5,7 +5,7 @@ date: 2011-09-15 05:04:00 +0000
 permalink: /2011/09/fdd-dominio-del-bosque.html
 tags:
   - botas
-  - dominacion
+  - dominación
   - leather
   - FdD
 ---

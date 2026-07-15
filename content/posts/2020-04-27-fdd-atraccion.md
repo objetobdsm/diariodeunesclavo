@@ -5,7 +5,7 @@ date: 2020-04-27 18:52:00 +0000
 permalink: /2020/04/fdd-atraccion.html
 tags:
   - FdD
-  - dominacion
+  - dominación
   - leather
 ---
 

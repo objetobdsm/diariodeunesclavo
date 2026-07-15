@@ -4,7 +4,7 @@ title: "FdD una carga pesada"
 date: 2012-03-27 06:25:00 +0000
 permalink: /2012/03/fdd-una-carga-pesada.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

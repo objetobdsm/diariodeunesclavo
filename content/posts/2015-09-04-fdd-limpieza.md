@@ -5,7 +5,7 @@ date: 2015-09-04 07:22:00 +0000
 permalink: /2015/09/fdd-limpieza.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -4,7 +4,7 @@ title: "FdD látigo"
 date: 2013-04-14 07:01:00 +0000
 permalink: /2013/04/fdd-latigo.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

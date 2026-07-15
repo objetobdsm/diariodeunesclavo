@@ -6,8 +6,8 @@ permalink: /2016/01/fdd-miedos.html
 tags:
   - FdD
   - esclavitud voluntaria
-  - dominacion
-  - amos
+  - dominación
+  - Amos
   - leather
 ---
 

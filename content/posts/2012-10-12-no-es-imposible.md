@@ -5,7 +5,7 @@ date: 2012-10-12 18:29:00 +0000
 permalink: /2012/10/no-es-imposible.html
 tags:
   - encierro
-  - imagenes
+  - imágenes
   - jaulas
 ---
 

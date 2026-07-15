@@ -5,7 +5,7 @@ date: 2020-10-27 10:20:00 +0000
 permalink: /2020/10/fdd-heteros.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - castidad
 ---
 

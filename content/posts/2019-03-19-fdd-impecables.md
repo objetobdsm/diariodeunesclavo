@@ -6,7 +6,7 @@ permalink: /2019/03/fdd-impecables.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

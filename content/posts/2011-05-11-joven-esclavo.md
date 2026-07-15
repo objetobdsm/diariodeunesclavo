@@ -4,7 +4,7 @@ title: "joven esclavo"
 date: 2011-05-11 19:55:00 +0000
 permalink: /2011/05/joven-esclavo.html
 tags:
-  - imagenes
+  - imágenes
   - esclavitud
 ---
 

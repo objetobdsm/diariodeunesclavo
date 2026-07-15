@@ -5,7 +5,7 @@ date: 2025-01-07 09:40:00 +0000
 permalink: /2025/01/fdd-aceptacion.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

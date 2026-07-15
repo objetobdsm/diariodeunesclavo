@@ -5,7 +5,7 @@ date: 2017-08-03 07:30:00 +0000
 permalink: /2017/08/fdd-deshumanizacion-objetificacion.html
 tags:
   - objetificación
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - leather

@@ -4,7 +4,7 @@ title: "esclavo encapuchado 7"
 date: 2010-07-23 08:27:00 +0000
 permalink: /2010/07/esclavo-encapuchado-7.html
 tags:
-  - imagenes
+  - imágenes
   - capucha
 ---
 

@@ -5,7 +5,7 @@ date: 2013-08-09 08:17:00 +0000
 permalink: /2013/08/fdd-crecimiento.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

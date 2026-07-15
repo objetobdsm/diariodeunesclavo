@@ -5,7 +5,7 @@ date: 2026-01-31 10:00:00 +0000
 permalink: 
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
   - guantes
 ---

@@ -6,7 +6,7 @@ permalink: /2025/05/fdd-posibilidades.html
 tags:
   - FdD
   - bondage
-  - sumision
+  - sumisión
   - leather
   - control respiración
 ---

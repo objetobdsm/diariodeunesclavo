@@ -7,7 +7,7 @@ tags:
   - humillación
   - bondage
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

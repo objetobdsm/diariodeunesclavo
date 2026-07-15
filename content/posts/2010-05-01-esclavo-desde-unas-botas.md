@@ -5,7 +5,7 @@ date: 2010-05-01 05:43:00 +0000
 permalink: /2010/05/esclavo-desde-unas-botas.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - leather
 ---
 

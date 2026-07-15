@@ -5,7 +5,7 @@ date: 2013-01-29 06:26:00 +0000
 permalink: /2013/01/fdd-siempre-volvemos.html
 tags:
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

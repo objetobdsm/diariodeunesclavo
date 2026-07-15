@@ -5,7 +5,7 @@ date: 2012-06-04 06:44:00 +0000
 permalink: /2012/06/fdd-poder-y-control.html
 tags:
   - control
-  - amos
+  - Amos
   - leather
   - FdD
 ---

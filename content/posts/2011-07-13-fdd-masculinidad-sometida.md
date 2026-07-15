@@ -5,7 +5,7 @@ date: 2011-07-13 05:21:00 +0000
 permalink: /2011/07/fdd-masculinidad-sometida.html
 tags:
   - esclavos
-  - sumision
+  - sumisión
   - FdD
 ---
 

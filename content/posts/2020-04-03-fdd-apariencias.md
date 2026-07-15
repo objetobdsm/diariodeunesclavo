@@ -5,7 +5,7 @@ date: 2020-04-03 09:58:00 +0000
 permalink: /2020/04/fdd-apariencias.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

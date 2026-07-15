@@ -5,7 +5,7 @@ date: 2018-09-04 09:15:00 +0000
 permalink: /2018/09/fdd-profundidades.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

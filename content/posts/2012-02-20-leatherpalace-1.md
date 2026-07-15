@@ -4,7 +4,7 @@ title: "leatherpalace 1"
 date: 2012-02-20 16:23:00 +0000
 permalink: /2012/02/leatherpalace-1.html
 tags:
-  - imagenes
+  - imágenes
   - leather
   - series
 ---

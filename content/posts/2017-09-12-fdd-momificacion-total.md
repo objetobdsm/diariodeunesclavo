@@ -5,9 +5,9 @@ date: 2017-09-12 06:34:00 +0000
 permalink: /2017/09/fdd-momificacion-total.html
 tags:
   - control respiración
-  - despersonalizacion
+  - despersonalización
   - FdD
-  - momificacion
+  - momificación
   - deshumanización
 ---
 

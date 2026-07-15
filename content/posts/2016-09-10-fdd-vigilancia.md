@@ -5,7 +5,7 @@ date: 2016-09-10 08:02:00 +0000
 permalink: /2016/09/fdd-vigilancia.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

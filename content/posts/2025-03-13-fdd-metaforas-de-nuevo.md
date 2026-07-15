@@ -6,7 +6,7 @@ permalink: /2025/03/fdd-metaforas-de-nuevo.html
 tags:
   - bondage
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

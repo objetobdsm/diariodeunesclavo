@@ -7,7 +7,7 @@ tags:
   - gimp
   - bondage
   - FdD
-  - despersonalizacion
+  - despersonalización
   - jaulas
 ---
 

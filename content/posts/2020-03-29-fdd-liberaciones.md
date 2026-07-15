@@ -6,7 +6,7 @@ permalink: /2020/03/fdd-liberaciones.html
 tags:
   - FdD
   - obediencia
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

@@ -7,7 +7,7 @@ tags:
   - FdD
   - leather
   - celda
-  - sumision
+  - sumisión
   - obediencia
 ---
 

@@ -5,7 +5,7 @@ date: 2020-08-29 08:13:00 +0000
 permalink: /2020/08/fdd-vibraciones.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -4,7 +4,7 @@ title: "FdD pantalones de cuero"
 date: 2011-01-04 07:18:00 +0000
 permalink: /2011/01/fdd-pantalones-de-cuero.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

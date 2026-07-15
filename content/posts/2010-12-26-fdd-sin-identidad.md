@@ -4,7 +4,7 @@ title: "FdD  sin identidad"
 date: 2010-12-26 07:11:00 +0000
 permalink: /2010/12/fdd-sin-identidad.html
 tags:
-  - imagenes
+  - imágenes
   - identidad
   - capucha
 ---

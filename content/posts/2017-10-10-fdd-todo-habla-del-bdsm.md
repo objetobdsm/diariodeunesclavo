@@ -7,7 +7,7 @@ tags:
   - botas
   - esclavos
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

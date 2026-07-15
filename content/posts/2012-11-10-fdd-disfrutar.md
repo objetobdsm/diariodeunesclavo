@@ -5,7 +5,7 @@ date: 2012-11-10 09:10:00 +0000
 permalink: /2012/11/fdd-disfrutar.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

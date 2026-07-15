@@ -4,7 +4,7 @@ title: "FdD centrarlo"
 date: 2019-03-27 08:32:00 +0000
 permalink: /2019/03/fdd-centrarlo.html
 tags:
-  - despersonalizacion
+  - despersonalización
   - FdD
   - latex
 ---

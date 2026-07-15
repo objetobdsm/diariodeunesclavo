@@ -5,7 +5,7 @@ date: 2010-06-07 04:28:00 +0000
 permalink: /2010/06/fdd-torturado.html
 tags:
   - dolor
-  - dominacion
+  - dominación
   - esclavitud
 ---
 

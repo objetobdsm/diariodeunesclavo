@@ -5,7 +5,7 @@ date: 2017-09-29 06:54:00 +0000
 permalink: /2017/09/fdd-dependencia.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
   - jaulas
 ---

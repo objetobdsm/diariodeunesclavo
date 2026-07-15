@@ -5,7 +5,7 @@ date: 2010-07-12 08:37:00 +0000
 permalink: /2010/07/fdd-perro-de-latex.html
 tags:
   - dog-training
-  - imagenes
+  - imágenes
   - latex
 ---
 

@@ -6,7 +6,7 @@ permalink: /2016/12/fdd-lo-que-son-o-no-son.html
 tags:
   - FdD
   - esclavitud voluntaria
-  - sumision
+  - sumisión
   - cadenas
 ---
 

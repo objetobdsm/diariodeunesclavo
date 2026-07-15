@@ -6,7 +6,7 @@ permalink: /2015/03/fdd-orientacion.html
 tags:
   - guantes
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2025-06-10 02:59:00 +0000
 permalink: /2025/06/fdd-objetivos.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

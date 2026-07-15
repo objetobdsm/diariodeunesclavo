@@ -5,7 +5,7 @@ date: 2017-01-09 07:35:00 +0000
 permalink: /2017/01/fdd-respeto.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -4,7 +4,7 @@ title: "objeto de latex"
 date: 2016-08-03 18:07:00 +0000
 permalink: /2016/08/objeto-de-latex.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - capucha
   - deshumanización
   - latex

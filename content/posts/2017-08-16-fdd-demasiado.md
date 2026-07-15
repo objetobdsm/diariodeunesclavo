@@ -5,7 +5,7 @@ date: 2017-08-16 04:47:00 +0000
 permalink: /2017/08/fdd-demasiado.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

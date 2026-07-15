@@ -6,7 +6,7 @@ permalink: /2020/01/fdd-superiores.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

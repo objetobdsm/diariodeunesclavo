@@ -4,8 +4,8 @@ title: "FdD sometido"
 date: 2012-02-18 07:10:00 +0000
 permalink: /2012/02/fdd-sometido.html
 tags:
-  - dominacion
-  - sumision
+  - dominación
+  - sumisión
   - FdD
 ---
 

@@ -4,7 +4,7 @@ title: "FdD aislado"
 date: 2010-07-27 08:51:00 +0000
 permalink: /2010/07/fdd-aislado.html
 tags:
-  - imagenes
+  - imágenes
   - privación sensorial
   - capucha
 ---

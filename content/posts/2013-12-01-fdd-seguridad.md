@@ -5,7 +5,7 @@ date: 2013-12-01 08:53:00 +0000
 permalink: /2013/12/fdd-seguridad.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

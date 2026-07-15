@@ -7,7 +7,7 @@ tags:
   - FdD
   - leather
   - latex
-  - amos
+  - Amos
   - esclavos
 ---
 

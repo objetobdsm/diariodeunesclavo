@@ -4,7 +4,7 @@ title: "FdD limitados"
 date: 2018-02-09 08:30:00 +0000
 permalink: /2018/02/fdd-limitados.html
 tags:
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - cadenas

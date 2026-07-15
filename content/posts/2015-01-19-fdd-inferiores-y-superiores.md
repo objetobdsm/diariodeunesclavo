@@ -6,7 +6,7 @@ permalink: /2015/01/fdd-inferiores-y-superiores.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

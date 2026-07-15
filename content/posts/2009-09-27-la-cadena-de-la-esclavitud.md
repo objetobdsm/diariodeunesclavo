@@ -4,9 +4,9 @@ title: "la cadena de la esclavitud"
 date: 2009-09-27 03:58:00 +0000
 permalink: /2009/09/la-cadena-de-la-esclavitud.html
 tags:
-  - teoria
-  - imagenes
-  - dominacion
+  - teoría
+  - imágenes
+  - dominación
   - esclavitud
 ---
 

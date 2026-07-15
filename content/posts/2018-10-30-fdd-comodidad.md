@@ -6,7 +6,7 @@ permalink: /2018/10/fdd-comodidad.html
 tags:
   - bondage
   - capucha
-  - despersonalizacion
+  - despersonalización
   - FdD
 ---
 

@@ -5,7 +5,7 @@ date: 2015-09-24 09:36:00 +0000
 permalink: /2015/09/fdd-humildad.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - castidad
 ---
 

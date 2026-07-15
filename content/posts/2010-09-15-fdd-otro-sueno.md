@@ -4,7 +4,7 @@ title: "FdD otro sueño"
 date: 2010-09-15 06:59:00 +0000
 permalink: /2010/09/fdd-otro-sueno.html
 tags:
-  - imagenes
+  - imágenes
   - bondage
   - esclavitud
 ---

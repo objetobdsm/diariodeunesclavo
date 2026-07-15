@@ -4,7 +4,7 @@ title: "otra forma de castidad"
 date: 2011-05-05 15:40:00 +0000
 permalink: /2011/05/otra-forma-de-castidad.html
 tags:
-  - imagenes
+  - imágenes
   - leather
   - castidad
 ---

@@ -7,7 +7,7 @@ tags:
   - FdD
   - esclavitud voluntaria
   - latex
-  - sumision
+  - sumisión
   - leather
 ---
 

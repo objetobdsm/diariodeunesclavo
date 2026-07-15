@@ -7,7 +7,7 @@ tags:
   - latex
   - bondage
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

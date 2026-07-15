@@ -4,7 +4,7 @@ title: "perro atado 4"
 date: 2012-01-13 16:13:00 +0000
 permalink: /2012/01/perro-atado-4.html
 tags:
-  - imagenes propias
+  - imágenes propias
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/81/8b/818b280b006bf2bd946a4b64abb4f980e9fb0640401554372e073938386e1dc9.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/03/e1/03e126539cae52ec606c30e9d44f0a8470a306a506b1863c763a4115a82d6819.jpg" width="640" /></a></div><br />

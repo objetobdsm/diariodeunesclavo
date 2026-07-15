@@ -4,7 +4,7 @@ title: "sumisión de este perro"
 date: 2010-12-12 19:06:00 +0000
 permalink: /2010/12/sumision-de-este-perro.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - bondage
   - leather
 ---

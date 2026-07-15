@@ -4,8 +4,8 @@ title: "FdD latex versus leather"
 date: 2012-09-24 07:45:00 +0000
 permalink: /2012/09/fdd-latex-versus-leather.html
 tags:
-  - dominacion
-  - sumision
+  - dominación
+  - sumisión
   - FdD
 ---
 

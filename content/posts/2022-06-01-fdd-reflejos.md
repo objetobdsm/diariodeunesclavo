@@ -5,7 +5,7 @@ date: 2022-06-01 17:48:00 +0000
 permalink: /2022/06/fdd-reflejos.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

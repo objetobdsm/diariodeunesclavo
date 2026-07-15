@@ -6,7 +6,7 @@ permalink: /2016/04/fdd-no-eres-nada.html
 tags:
   - bondage
   - FdD
-  - sumision
+  - sumisión
   - privación sensorial
 ---
 

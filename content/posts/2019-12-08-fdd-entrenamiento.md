@@ -6,7 +6,7 @@ permalink: /2019/12/fdd-entrenamiento.html
 tags:
   - gimp
   - FdD
-  - despersonalizacion
+  - despersonalización
   - camisa de fuerza
   - deshumanización
 ---

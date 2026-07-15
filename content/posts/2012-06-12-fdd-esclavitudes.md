@@ -5,7 +5,7 @@ date: 2012-06-12 05:50:00 +0000
 permalink: /2012/06/fdd-esclavitudes.html
 tags:
   - esclavos
-  - sumision
+  - sumisión
   - FdD
 ---
 

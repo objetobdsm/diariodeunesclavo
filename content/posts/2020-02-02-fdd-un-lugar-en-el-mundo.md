@@ -5,7 +5,7 @@ date: 2020-02-02 05:46:00 +0000
 permalink: /2020/02/fdd-un-lugar-en-el-mundo.html
 tags:
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

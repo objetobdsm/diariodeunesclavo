@@ -7,7 +7,7 @@ tags:
   - guantes
   - capucha
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

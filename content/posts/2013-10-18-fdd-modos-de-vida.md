@@ -6,7 +6,7 @@ permalink: /2013/10/fdd-modos-de-vida.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

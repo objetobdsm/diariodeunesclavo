@@ -5,7 +5,7 @@ date: 2010-10-24 05:43:00 +0000
 permalink: /2010/10/fdd-sumision-xxiv.html
 tags:
   - humillación
-  - imagenes
+  - imágenes
   - leather
 ---
 

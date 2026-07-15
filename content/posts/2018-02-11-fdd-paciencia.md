@@ -6,7 +6,7 @@ permalink: /2018/02/fdd-paciencia.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - latex
 ---
 

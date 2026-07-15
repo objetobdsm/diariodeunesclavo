@@ -5,7 +5,7 @@ date: 2015-12-29 07:18:00 +0000
 permalink: /2015/12/fdd-llegar-casa.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

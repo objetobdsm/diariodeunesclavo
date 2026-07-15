@@ -5,7 +5,7 @@ date: 2020-12-07 11:07:00 +0000
 permalink: /2020/12/fdd-alternativa.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

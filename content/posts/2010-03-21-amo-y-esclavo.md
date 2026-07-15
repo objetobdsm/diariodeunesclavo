@@ -4,9 +4,9 @@ title: "amo y esclavo"
 date: 2010-03-21 17:48:00 +0000
 permalink: /2010/03/amo-y-esclavo.html
 tags:
-  - imagenes
-  - amos
-  - sumision
+  - imágenes
+  - Amos
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/ba/95/ba95190a1ed34fc518d6dec86b8894486f7f21c36f1f186690bca30d204a7b0c.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="400" src="/uploads/ba/95/ba95190a1ed34fc518d6dec86b8894486f7f21c36f1f186690bca30d204a7b0c.jpg" width="266" /></a></div><br />

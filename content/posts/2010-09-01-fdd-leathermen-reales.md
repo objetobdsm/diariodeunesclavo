@@ -4,7 +4,7 @@ title: "FdD leathermen reales"
 date: 2010-09-01 07:46:00 +0000
 permalink: /2010/09/fdd-leathermen-reales.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

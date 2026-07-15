@@ -4,7 +4,7 @@ title: "FdD vuelta al cuero"
 date: 2010-11-28 06:25:00 +0000
 permalink: /2010/11/fdd-vuelta-al-cuero.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

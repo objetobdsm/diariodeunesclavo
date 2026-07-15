@@ -5,7 +5,7 @@ date: 2015-03-06 06:07:00 +0000
 permalink: /2015/03/fdd-el-unico-camino.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

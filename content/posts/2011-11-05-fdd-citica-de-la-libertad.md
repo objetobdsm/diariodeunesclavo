@@ -5,7 +5,7 @@ date: 2011-11-05 07:22:00 +0000
 permalink: /2011/11/fdd-citica-de-la-libertad.html
 tags:
   - prisionero
-  - sumision
+  - sumisión
   - FdD
 ---
 

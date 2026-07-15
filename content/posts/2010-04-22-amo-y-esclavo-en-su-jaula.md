@@ -4,7 +4,7 @@ title: "amo y esclavo en su jaula"
 date: 2010-04-22 05:36:00 +0000
 permalink: /2010/04/amo-y-esclavo-en-su-jaula.html
 tags:
-  - imagenes
+  - imágenes
 ---
 
 <a href="/uploads/aa/4a/aa4adb60fa0205f8ee2f3670cb29b2b8f2d7a424daa6e3542a81657c5400f6c3.jpg" onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}"><img alt="" border="0" id="BLOGGER_PHOTO_ID_5440381886401930194" src="/uploads/aa/4a/aa4adb60fa0205f8ee2f3670cb29b2b8f2d7a424daa6e3542a81657c5400f6c3.jpg" style="cursor: hand; cursor: pointer; display: block; height: 240px; margin: 0px auto 10px; text-align: center; width: 320px;" /></a><br />

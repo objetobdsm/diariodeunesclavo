@@ -4,7 +4,7 @@ title: "FdD señorío"
 date: 2013-09-01 12:05:00 +0000
 permalink: /2013/09/fdd-senorio.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

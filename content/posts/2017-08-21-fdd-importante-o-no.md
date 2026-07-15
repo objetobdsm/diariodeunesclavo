@@ -5,7 +5,7 @@ date: 2017-08-21 06:34:00 +0000
 permalink: /2017/08/fdd-importante-o-no.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - privación sensorial
 ---
 

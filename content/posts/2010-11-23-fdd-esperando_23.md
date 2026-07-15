@@ -4,7 +4,7 @@ title: "FdD esperando"
 date: 2010-11-23 07:59:00 +0000
 permalink: /2010/11/fdd-esperando_23.html
 tags:
-  - imagenes
+  - imágenes
   - bondage
   - esclavitud
 ---

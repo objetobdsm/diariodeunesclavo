@@ -5,7 +5,7 @@ date: 2017-05-30 05:43:00 +0000
 permalink: /2017/05/fdd-detalles.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

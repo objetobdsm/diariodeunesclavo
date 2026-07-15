@@ -5,7 +5,7 @@ date: 2010-04-16 08:09:00 +0000
 permalink: /2010/04/lamebotas.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - leather
 ---
 

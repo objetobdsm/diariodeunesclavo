@@ -5,7 +5,7 @@ date: 2013-08-03 08:09:00 +0000
 permalink: /2013/08/fdd-lugares.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

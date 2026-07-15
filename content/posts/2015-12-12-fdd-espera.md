@@ -5,7 +5,7 @@ date: 2015-12-12 10:58:00 +0000
 permalink: /2015/12/fdd-espera.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

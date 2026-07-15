@@ -5,7 +5,7 @@ date: 2013-07-14 07:35:00 +0000
 permalink: /2013/07/fdd-comprobando-mercancia.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

@@ -4,8 +4,8 @@ title: "FdD sumisión XXV"
 date: 2010-10-25 05:44:00 +0000
 permalink: /2010/10/fdd-sumision-xxv.html
 tags:
-  - imagenes
-  - sumision
+  - imágenes
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/43/17/4317f8f20d3b121645b133fe34a32d0222492638426f1c0bbbcb14aa03ecba4d.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/43/17/4317f8f20d3b121645b133fe34a32d0222492638426f1c0bbbcb14aa03ecba4d.jpg" /></a></div><div class="separator" style="clear: both; text-align: center;"><br />

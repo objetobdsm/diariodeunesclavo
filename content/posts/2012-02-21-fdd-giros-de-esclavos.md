@@ -5,7 +5,7 @@ date: 2012-02-21 08:28:00 +0000
 permalink: /2012/02/fdd-giros-de-esclavos.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

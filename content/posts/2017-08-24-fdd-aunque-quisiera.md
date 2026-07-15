@@ -5,7 +5,7 @@ date: 2017-08-24 06:35:00 +0000
 permalink: /2017/08/fdd-aunque-quisiera.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

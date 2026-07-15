@@ -4,8 +4,8 @@ title: "FdD la fuerza del cuero"
 date: 2010-11-02 07:27:00 +0000
 permalink: /2010/11/fdd-la-fuerza-del-cuero.html
 tags:
-  - imagenes
-  - dominacion
+  - imágenes
+  - dominación
   - leather
 ---
 

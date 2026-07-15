@@ -6,7 +6,7 @@ permalink: /2019/09/fdd-superioridad.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

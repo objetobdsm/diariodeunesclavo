@@ -6,7 +6,7 @@ permalink: /2022/02/fdd-esclavos-dominando.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - latex
 ---
 

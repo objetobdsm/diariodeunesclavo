@@ -4,7 +4,7 @@ title: "es bueno saber el lugar de uno"
 date: 2010-06-28 12:18:00 +0000
 permalink: /2010/06/es-bueno-saber-el-lugar-de-uno.html
 tags:
-  - sumision
+  - sumisión
   - Daddy
 ---
 

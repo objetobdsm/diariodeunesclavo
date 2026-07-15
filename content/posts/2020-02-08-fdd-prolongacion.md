@@ -6,7 +6,7 @@ permalink: /2020/02/fdd-prolongacion.html
 tags:
   - gimp
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

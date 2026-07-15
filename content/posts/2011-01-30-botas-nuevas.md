@@ -5,7 +5,7 @@ date: 2011-01-30 20:16:00 +0000
 permalink: /2011/01/botas-nuevas.html
 tags:
   - botas
-  - imagenes propias
+  - imágenes propias
 ---
 
 <div style="text-align: justify;">ayer me acerqué al aoutlet que antiguamente pertenecía a lopes, en la trasera del parque santa catalina, en las palmas de gran canaria. había unas botas camperas de cuero, rebajadas de precio, de 103 a 30 euros. por supuesto era una oportunidad, así que llamé a mi AMO y le pedí permiso para comprar 2 pares, unas negras y otras marrones. me lo concedió y me las probé. me quedaban como un guante, así que las compré.</div><div style="text-align: justify;">un pensamiento que me asaltó fue que eran botas propias de esclavos. son unas botas camperas, pero no como las que conocía de andalucía, sino que se acercaban más a unas botas de ciudad. mi AMO me dijo que no las quería para El, porque El sólo usa botas sendra. eso reforzó la idea de que eran botas de esclavo y que sólo podía llevarlas este perro.</div><div style="text-align: justify;">me llevé las negras puestas. se ajustaban perfectamente y como lleva dos días lloviendo, me vinieron de maravilla. cada vez que notaba las botas alrededor de mi tobillo me acordaba de mi AMO y de que soy de su propiedad. por eso las botas son un fetiche, no porque sean algo en sí mismas, sino porque me remiten constantemente a mi Dueño.</div>aquí están<br />

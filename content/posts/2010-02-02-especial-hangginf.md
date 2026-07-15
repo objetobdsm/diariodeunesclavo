@@ -4,7 +4,7 @@ title: "hangging"
 date: 2010-02-02 14:53:00 +0000
 permalink: /2009/12/especial-hangginf.html
 tags:
-  - imagenes
+  - imágenes
   - control respiración
 ---
 

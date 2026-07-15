@@ -6,7 +6,7 @@ permalink: /2015/04/fdd-combatientes.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

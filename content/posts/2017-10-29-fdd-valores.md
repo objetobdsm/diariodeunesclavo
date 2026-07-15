@@ -7,7 +7,7 @@ tags:
   - humillación
   - FdD
   - esclavitud voluntaria
-  - sumision
+  - sumisión
   - leather
 ---
 

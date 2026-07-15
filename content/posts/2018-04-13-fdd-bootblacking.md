@@ -6,7 +6,7 @@ permalink: /2018/04/fdd-bootblacking.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

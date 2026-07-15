@@ -6,7 +6,7 @@ permalink: /2020/12/fdd-sin-limites.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

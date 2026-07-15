@@ -4,7 +4,7 @@ title: "FdD protección"
 date: 2010-12-09 06:10:00 +0000
 permalink: /2010/12/fdd-proteccion.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

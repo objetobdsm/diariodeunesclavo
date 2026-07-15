@@ -6,7 +6,7 @@ permalink: /2022/03/fdd-dualismos.html
 tags:
   - bondage
   - FdD
-  - sumision
+  - sumisión
   - jaulas
 ---
 

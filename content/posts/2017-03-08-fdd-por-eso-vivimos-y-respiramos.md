@@ -5,7 +5,7 @@ date: 2017-03-08 07:25:00 +0000
 permalink: /2017/03/fdd-por-eso-vivimos-y-respiramos.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

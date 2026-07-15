@@ -5,7 +5,7 @@ date: 2020-11-11 10:56:00 +0000
 permalink: /2020/11/fdd-procesos.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2011-11-23 06:07:00 +0000
 permalink: /2011/11/fdd-responsabilidades.html
 tags:
   - esclavos
-  - sumision
+  - sumisión
   - FdD
 ---
 

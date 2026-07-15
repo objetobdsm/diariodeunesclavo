@@ -5,8 +5,8 @@ date: 2013-03-26 08:00:00 +0000
 permalink: /2013/03/fdd-arrodillarse.html
 tags:
   - esclavos
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - FdD
 ---
 

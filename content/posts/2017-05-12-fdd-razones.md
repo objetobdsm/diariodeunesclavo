@@ -5,7 +5,7 @@ date: 2017-05-12 06:20:00 +0000
 permalink: /2017/05/fdd-razones.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

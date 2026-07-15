@@ -6,7 +6,7 @@ permalink: /2015/05/fdd-realidad.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

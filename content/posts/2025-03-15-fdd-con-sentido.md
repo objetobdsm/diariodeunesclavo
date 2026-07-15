@@ -7,8 +7,8 @@ tags:
   - esclavos
   - FdD
   - latex
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - leather
 ---
 

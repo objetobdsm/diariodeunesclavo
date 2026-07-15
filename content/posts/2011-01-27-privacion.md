@@ -4,7 +4,7 @@ title: "privación"
 date: 2011-01-27 19:05:00 +0000
 permalink: /2011/01/privacion.html
 tags:
-  - imagenes
+  - imágenes
   - bondage
   - esclavitud
   - privación sensorial

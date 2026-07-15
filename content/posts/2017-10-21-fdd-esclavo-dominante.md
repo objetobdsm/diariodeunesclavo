@@ -6,7 +6,7 @@ permalink: /2017/10/fdd-esclavo-dominante.html
 tags:
   - esclavos
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

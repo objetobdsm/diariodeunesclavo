@@ -5,7 +5,7 @@ date: 2025-09-01 08:37:00 +0000
 permalink: /2025/09/fdd-mas-preguntas-que-respuestas.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - bondage
 ---
 

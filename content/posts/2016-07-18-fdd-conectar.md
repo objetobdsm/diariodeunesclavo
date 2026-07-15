@@ -6,7 +6,7 @@ permalink: /2016/07/fdd-conectar.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

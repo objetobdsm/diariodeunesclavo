@@ -5,7 +5,7 @@ date: 2013-07-22 07:17:00 +0000
 permalink: /2013/07/fdd-masculinidad.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

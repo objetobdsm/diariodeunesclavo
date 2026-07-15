@@ -5,7 +5,7 @@ date: 2019-04-22 08:51:00 +0000
 permalink: /2019/04/fdd-confianza.html
 tags:
   - FdD
-  - dominacion
+  - dominación
   - latex
   - leather
 ---

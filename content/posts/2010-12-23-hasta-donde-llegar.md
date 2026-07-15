@@ -4,7 +4,7 @@ title: "¿hasta donde llegar?"
 date: 2010-12-23 16:19:00 +0000
 permalink: /2010/12/hasta-donde-llegar.html
 tags:
-  - teoria
+  - teoría
   - reflexiones
   - personal
 ---

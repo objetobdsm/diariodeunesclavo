@@ -5,7 +5,7 @@ date: 2020-03-21 19:25:00 +0000
 permalink: /2020/03/fdd-envidia.html
 tags:
   - FdD
-  - despersonalizacion
+  - despersonalización
   - deshumanización
   - leather
   - privación sensorial

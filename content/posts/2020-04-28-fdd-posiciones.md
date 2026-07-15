@@ -5,7 +5,7 @@ date: 2020-04-28 18:52:00 +0000
 permalink: /2020/04/fdd-posiciones.html
 tags:
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

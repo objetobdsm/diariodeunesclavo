@@ -5,7 +5,7 @@ date: 2020-09-27 08:49:00 +0000
 permalink: /2020/09/fdd-obediencia.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

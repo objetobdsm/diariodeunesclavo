@@ -5,7 +5,7 @@ date: 2019-03-31 08:35:00 +0000
 permalink: /2019/03/fdd-rey-o-dios.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

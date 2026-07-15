@@ -5,7 +5,7 @@ date: 2019-01-16 13:39:00 +0000
 permalink: /2019/01/fdd-oculto.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

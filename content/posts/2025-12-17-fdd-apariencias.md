@@ -7,7 +7,7 @@ tags:
   - FdD
   - sumisión
   - leather
-  - amos
+  - Amos
   - esclavos
 ---
 

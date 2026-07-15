@@ -5,7 +5,7 @@ date: 2018-03-29 07:58:00 +0000
 permalink: /2018/03/fdd-inequivoco.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

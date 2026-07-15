@@ -5,7 +5,7 @@ date: 2013-01-18 07:34:00 +0000
 permalink: /2013/01/fdd-bajos-sus-botas.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

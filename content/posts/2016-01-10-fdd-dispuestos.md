@@ -6,8 +6,8 @@ permalink: /2016/01/fdd-dispuestos.html
 tags:
   - esclavos
   - FdD
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - leather
 ---
 

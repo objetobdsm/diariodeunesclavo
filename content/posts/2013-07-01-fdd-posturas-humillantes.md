@@ -6,7 +6,7 @@ permalink: /2013/07/fdd-posturas-humillantes.html
 tags:
   - humillación
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

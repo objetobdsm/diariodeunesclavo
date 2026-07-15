@@ -7,7 +7,7 @@ tags:
   - esclavos
   - FdD
   - esclavitud voluntaria
-  - amos
+  - Amos
   - latex
 ---
 

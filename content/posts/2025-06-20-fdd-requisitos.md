@@ -7,7 +7,7 @@ tags:
   - FdD
   - gom
   - leather
-  - amos
+  - Amos
   - esclavos
 ---
 

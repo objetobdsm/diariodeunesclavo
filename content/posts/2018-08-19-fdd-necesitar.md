@@ -6,7 +6,7 @@ permalink: /2018/08/fdd-necesitar.html
 tags:
   - guantes
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

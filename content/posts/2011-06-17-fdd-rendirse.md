@@ -4,7 +4,7 @@ title: "FdD rendirse"
 date: 2011-06-17 04:18:00 +0000
 permalink: /2011/06/fdd-rendirse.html
 tags:
-  - sumision
+  - sumisión
   - FdD
 ---
 

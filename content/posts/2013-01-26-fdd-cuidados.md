@@ -5,7 +5,7 @@ date: 2013-01-26 10:45:00 +0000
 permalink: /2013/01/fdd-cuidados.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

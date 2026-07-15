@@ -4,8 +4,8 @@ title: "FdD naturaleza"
 date: 2012-06-02 06:28:00 +0000
 permalink: /2012/06/fdd-naturaleza.html
 tags:
-  - dominacion
-  - sumision
+  - dominación
+  - sumisión
   - FdD
 ---
 

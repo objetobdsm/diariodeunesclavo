@@ -5,7 +5,7 @@ date: 2014-04-04 08:33:00 +0000
 permalink: /2014/04/fdd-confirmacion.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - leather
 ---
 

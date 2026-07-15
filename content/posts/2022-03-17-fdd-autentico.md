@@ -6,7 +6,7 @@ permalink: /2022/03/fdd-autentico.html
 tags:
   - gimp
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

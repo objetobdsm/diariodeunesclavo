@@ -6,8 +6,8 @@ permalink: /2025/01/fdd-el-triunfo-de-la-sumision.html
 tags:
   - esclavos
   - FdD
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - leather
 ---
 

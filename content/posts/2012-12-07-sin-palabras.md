@@ -4,7 +4,7 @@ title: "sin palabras"
 date: 2012-12-07 11:45:00 +0000
 permalink: /2012/12/sin-palabras.html
 tags:
-  - imagenes
+  - imágenes
   - guantes
   - bondage
 ---

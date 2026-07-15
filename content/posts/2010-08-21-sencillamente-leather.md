@@ -4,7 +4,7 @@ title: "sencillamente leather"
 date: 2010-08-21 15:18:00 +0000
 permalink: /2010/08/sencillamente-leather.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

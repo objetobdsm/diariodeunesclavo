@@ -4,7 +4,7 @@ title: "cuero, cueros, encuerado"
 date: 2011-02-09 14:11:00 +0000
 permalink: /2011/02/cuero-cueros-encuerado.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

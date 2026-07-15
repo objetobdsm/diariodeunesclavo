@@ -5,7 +5,7 @@ date: 2011-06-02 06:08:00 +0000
 permalink: /2011/06/fdd-lo-necesario.html
 tags:
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

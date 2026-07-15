@@ -5,9 +5,9 @@ date: 2020-02-29 18:52:00 +0000
 permalink: /2020/02/fdd-violencia.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

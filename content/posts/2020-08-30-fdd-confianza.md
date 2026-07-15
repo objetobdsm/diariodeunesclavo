@@ -5,7 +5,7 @@ date: 2020-08-30 08:18:00 +0000
 permalink: /2020/08/fdd-confianza.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2015-07-03 07:24:00 +0000
 permalink: /2015/07/fdd-responsabilidad.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

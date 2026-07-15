@@ -6,7 +6,7 @@ permalink: /2019/05/fdd-visibilidad.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

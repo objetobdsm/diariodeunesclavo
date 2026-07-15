@@ -4,7 +4,7 @@ title: "bondage en cuero I"
 date: 2014-01-08 14:26:00 +0000
 permalink: /2014/01/bondage-en-cuero-i.html
 tags:
-  - imagenes
+  - imágenes
   - bondage
   - leather
 ---

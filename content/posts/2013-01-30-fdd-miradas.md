@@ -5,7 +5,7 @@ date: 2013-01-30 06:27:00 +0000
 permalink: /2013/01/fdd-miradas.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - leather
   - FdD
 ---

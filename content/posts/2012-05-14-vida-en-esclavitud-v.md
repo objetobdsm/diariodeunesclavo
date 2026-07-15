@@ -4,7 +4,7 @@ title: "vida en esclavitud V"
 date: 2012-05-14 17:15:00 +0000
 permalink: /2012/05/vida-en-esclavitud-v.html
 tags:
-  - imagenes
+  - imágenes
   - mazmorra
   - series
 ---

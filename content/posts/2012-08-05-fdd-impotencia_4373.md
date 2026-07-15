@@ -5,7 +5,7 @@ date: 2012-08-05 06:30:00 +0000
 permalink: /2012/08/fdd-impotencia_4373.html
 tags:
   - bondage
-  - sumision
+  - sumisión
   - FdD
 ---
 

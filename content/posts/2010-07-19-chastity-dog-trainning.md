@@ -5,7 +5,7 @@ date: 2010-07-19 11:55:00 +0000
 permalink: /2010/07/chastity-dog-trainning.html
 tags:
   - dog-training
-  - imagenes
+  - imágenes
   - castidad
 ---
 

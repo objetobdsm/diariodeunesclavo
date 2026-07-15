@@ -5,7 +5,7 @@ date: 2022-08-30 15:47:00 +0000
 permalink: /2022/08/fdd-luces-y-sombras.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
   - tortura
 ---

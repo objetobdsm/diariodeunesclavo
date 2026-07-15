@@ -5,7 +5,7 @@ date: 2012-10-08 06:52:00 +0000
 permalink: /2012/10/fdd-salvacion.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

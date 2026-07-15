@@ -5,7 +5,7 @@ date: 2017-01-08 07:35:00 +0000
 permalink: /2017/01/fdd-el-proceso.html
 tags:
   - objetificación
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - castidad

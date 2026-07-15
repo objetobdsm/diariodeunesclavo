@@ -6,7 +6,7 @@ permalink: /2022/08/fdd-antelacion-y-anticipacion.html
 tags:
   - FdD
   - leather
-  - sumision
+  - sumisión
   - tortura
 ---
 

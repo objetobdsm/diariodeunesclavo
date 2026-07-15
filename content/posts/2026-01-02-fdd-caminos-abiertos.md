@@ -6,7 +6,7 @@ permalink:
 tags:
   - FdD
   - capuchas
-  - sumision
+  - sumisión
 ---
 ![Foto de dia](/uploads/2026/2026_01/2026_01_02.jpg)
 

@@ -5,7 +5,7 @@ date: 2015-09-30 10:09:00 +0000
 permalink: /2015/09/fdd-ocultamiento.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

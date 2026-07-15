@@ -4,7 +4,7 @@ title: "FdD lthr uniform"
 date: 2010-05-30 04:52:00 +0000
 permalink: /2010/05/fdd-lthr-uniform.html
 tags:
-  - amos
+  - Amos
   - leather
 ---
 

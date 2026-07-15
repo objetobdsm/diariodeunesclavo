@@ -6,7 +6,7 @@ permalink: /2019/09/fdd-nada-mas.html
 tags:
   - esclavos
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

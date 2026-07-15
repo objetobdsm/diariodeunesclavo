@@ -6,7 +6,7 @@ permalink: /2012/07/fdd-limites.html
 tags:
   - esclavos
   - bondage
-  - amos
+  - Amos
   - FdD
 ---
 

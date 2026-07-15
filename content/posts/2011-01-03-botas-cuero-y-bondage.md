@@ -4,7 +4,7 @@ title: "botas, cuero y bondage"
 date: 2011-01-03 19:44:00 +0000
 permalink: /2011/01/botas-cuero-y-bondage.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - leather
 ---
 

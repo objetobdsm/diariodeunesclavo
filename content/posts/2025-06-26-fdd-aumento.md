@@ -6,7 +6,7 @@ permalink: /2025/06/fdd-aumento.html
 tags:
   - FdD
   - gimp
-  - sumision
+  - sumisión
   - latex
   - leather
 ---

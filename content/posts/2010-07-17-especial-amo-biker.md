@@ -5,7 +5,7 @@ date: 2010-07-17 11:57:00 +0000
 permalink: /2010/07/especial-amo-biker.html
 tags:
   - control
-  - imagenes
+  - imágenes
   - leather
 ---
 

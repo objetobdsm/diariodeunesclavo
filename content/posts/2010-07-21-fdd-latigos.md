@@ -4,7 +4,7 @@ title: "FdD látigos"
 date: 2010-07-21 06:46:00 +0000
 permalink: /2010/07/fdd-latigos.html
 tags:
-  - imagenes
+  - imágenes
   - esclavitud
   - disciplina
 ---

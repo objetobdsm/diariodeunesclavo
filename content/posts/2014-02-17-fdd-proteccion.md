@@ -6,8 +6,8 @@ permalink: /2014/02/fdd-proteccion.html
 tags:
   - esclavos
   - FdD
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - leather
 ---
 

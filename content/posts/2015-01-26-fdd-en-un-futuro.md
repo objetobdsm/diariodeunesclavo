@@ -5,7 +5,7 @@ date: 2015-01-26 07:08:00 +0000
 permalink: /2015/01/fdd-en-un-futuro.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -5,8 +5,8 @@ date: 2018-08-03 07:07:00 +0000
 permalink: /2018/08/fdd-aftercare.html
 tags:
   - FdD
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - leather
 ---
 

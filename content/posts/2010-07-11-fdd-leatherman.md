@@ -4,7 +4,7 @@ title: "FdD leatherman"
 date: 2010-07-11 08:36:00 +0000
 permalink: /2010/07/fdd-leatherman.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

@@ -6,7 +6,7 @@ permalink: /2025/09/fdd-el-beneficio-de-la-duda.html
 tags:
   - FdD
   - dog-training
-  - sumision
+  - sumisión
   - deshumanización
   - esclavitud voluntaria
 ---

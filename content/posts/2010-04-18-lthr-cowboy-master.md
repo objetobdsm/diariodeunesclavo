@@ -4,9 +4,9 @@ title: "lthr cowboy master"
 date: 2010-04-18 07:16:00 +0000
 permalink: /2010/04/lthr-cowboy-master.html
 tags:
-  - imagenes
+  - imágenes
   - leather
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/07/b5/07b5e154e31cf26f8fd0e87ef9ced4db28cb0f46a8579b9f4f0fe24597ea515a.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="400" src="/uploads/07/b5/07b5e154e31cf26f8fd0e87ef9ced4db28cb0f46a8579b9f4f0fe24597ea515a.jpg" width="327" /></a></div><div style="text-align: justify;"><br />

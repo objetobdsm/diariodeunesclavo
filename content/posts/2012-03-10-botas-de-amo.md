@@ -5,7 +5,7 @@ date: 2012-03-10 23:45:00 +0000
 permalink: /2012/03/botas-de-amo.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - series
   - leather
 ---

@@ -5,7 +5,7 @@ date: 2020-07-31 17:25:00 +0000
 permalink: /2020/07/fdd-collar.html
 tags:
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

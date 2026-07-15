@@ -5,7 +5,7 @@ date: 2019-02-15 18:24:00 +0000
 permalink: /2019/02/fdd-amo-natural.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

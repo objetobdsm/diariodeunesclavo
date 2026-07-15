@@ -6,7 +6,7 @@ permalink: /2024/11/fdd-leather-versus-rubber.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - latex
   - leather
 ---

@@ -5,7 +5,7 @@ date: 2025-06-07 02:41:00 +0000
 permalink: /2025/06/fdd-trascender.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

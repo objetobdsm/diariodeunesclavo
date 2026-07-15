@@ -5,7 +5,7 @@ date: 2019-05-30 10:49:00 +0000
 permalink: /2019/05/fdd-perfecto.html
 tags:
   - bondage
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - leather

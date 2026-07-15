@@ -5,7 +5,7 @@ date: 2011-10-10 14:39:00 +0000
 permalink: /2011/10/fdd-sencillamente-esclavo.html
 tags:
   - propiedad
-  - sumision
+  - sumisión
   - FdD
 ---
 

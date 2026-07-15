@@ -4,7 +4,7 @@ title: "FdD realidades"
 date: 2013-02-01 09:15:00 +0000
 permalink: /2013/02/fdd-realidades.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

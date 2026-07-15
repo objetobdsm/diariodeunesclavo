@@ -5,7 +5,7 @@ date: 2009-09-29 07:08:00 +0000
 permalink: /2009/09/y-aun-su-control-aumenta-mas.html
 tags:
   - personal
-  - sumision
+  - sumisión
   - castidad
 ---
 

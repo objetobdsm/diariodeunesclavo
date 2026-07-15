@@ -6,7 +6,7 @@ permalink: /2016/03/fdd-la-unica-felicidad.html
 tags:
   - skins
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

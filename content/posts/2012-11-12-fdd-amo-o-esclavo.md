@@ -4,8 +4,8 @@ title: "FdD ¿Amo o esclavo?"
 date: 2012-11-12 05:57:00 +0000
 permalink: /2012/11/fdd-amo-o-esclavo.html
 tags:
-  - dominacion
-  - sumision
+  - dominación
+  - sumisión
   - FdD
 ---
 

@@ -5,7 +5,7 @@ date: 2020-10-16 09:19:00 +0000
 permalink: /2020/10/fdd-codigo.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

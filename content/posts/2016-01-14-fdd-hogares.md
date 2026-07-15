@@ -4,7 +4,7 @@ title: "FdD hogares"
 date: 2016-01-14 09:03:00 +0000
 permalink: /2016/01/fdd-hogares.html
 tags:
-  - despersonalizacion
+  - despersonalización
   - FdD
   - latex
   - jaulas

@@ -4,7 +4,7 @@ title: "¿amo? en cueros"
 date: 2010-04-13 08:54:00 +0000
 permalink: /2010/04/amo-en-cueros.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

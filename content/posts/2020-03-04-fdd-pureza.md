@@ -8,7 +8,7 @@ tags:
   - esclavitud voluntaria
   - latex
   - leather
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

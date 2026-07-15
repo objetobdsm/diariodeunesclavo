@@ -4,7 +4,7 @@ title: "mini-relato XIII"
 date: 2008-02-29 04:45:00 +0000
 permalink: /2008/02/mini-relato-xiii.html
 tags:
-  - momificacion
+  - momificación
   - ficción propia
   - bondage
   - mini-relatos

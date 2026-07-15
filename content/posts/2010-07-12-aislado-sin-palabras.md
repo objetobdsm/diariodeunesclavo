@@ -4,7 +4,7 @@ title: "aislado (sin palabras)"
 date: 2010-07-12 18:16:00 +0000
 permalink: /2010/07/aislado-sin-palabras.html
 tags:
-  - imagenes
+  - imágenes
   - privación sensorial
 ---
 

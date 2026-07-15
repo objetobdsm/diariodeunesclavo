@@ -4,7 +4,7 @@ title: "bdsm en queer as folk"
 date: 2009-12-14 01:15:00 +0000
 permalink: /2009/12/bdsm-en-queer-as-folk.html
 tags:
-  - teoria
+  - teoría
   - videos
 ---
 

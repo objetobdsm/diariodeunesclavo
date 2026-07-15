@@ -5,7 +5,7 @@ date: 2010-05-02 22:50:00 +0000
 permalink: /2010/05/las-botas-de-mi-amo.html
 tags:
   - botas
-  - imagenes propias
+  - imágenes propias
 ---
 
 <div class="separator" style="clear: both; text-align: justify;">hoy también comenzamos una nueva serie con imágenes no sacadas de internet, sino propias de este blog, o más correctamente, propias de mi AMO. le gustó que publicara sus botas así que me ha ordenado que publique parte de su colección. y EL habla y este esclavo obedece. como podrán comprobar no es nada desdeñable la colección que tiene. disfrútenla tanto como yo lo hago cuando estoy a sus pies.</div><div class="separator" style="clear: both; text-align: center;"><br />

@@ -4,7 +4,7 @@ title: "piel y pieles"
 date: 2011-01-19 16:17:00 +0000
 permalink: /2011/01/piel-y-pieles.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

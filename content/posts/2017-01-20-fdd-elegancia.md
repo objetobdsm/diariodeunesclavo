@@ -6,7 +6,7 @@ permalink: /2017/01/fdd-elegancia.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2010-09-22 06:05:00 +0000
 permalink: /2010/09/fdd-leather-y-bondage.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - bondage
 ---
 

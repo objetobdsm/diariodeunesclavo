@@ -4,7 +4,7 @@ title: "a través de la prisión"
 date: 2009-07-11 19:00:00 +0000
 permalink: /2009/07/traves-de-la-prision.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

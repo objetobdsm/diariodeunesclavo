@@ -4,7 +4,7 @@ title: "asi me siento hoy..."
 date: 2010-02-08 22:28:00 +0000
 permalink: /2010/02/asi-me-siento-hoy.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

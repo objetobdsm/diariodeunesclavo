@@ -5,7 +5,7 @@ date: 2020-11-10 10:56:00 +0000
 permalink: /2020/11/fdd-espiral-de-extremos.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

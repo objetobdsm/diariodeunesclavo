@@ -5,7 +5,7 @@ date: 2014-03-14 07:40:00 +0000
 permalink: /2014/03/fdd-veneraciones.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

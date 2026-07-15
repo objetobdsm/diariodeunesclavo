@@ -5,7 +5,7 @@ date: 2011-01-28 09:16:00 +0000
 permalink: /2011/01/fdd-de-rodillas.html
 tags:
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

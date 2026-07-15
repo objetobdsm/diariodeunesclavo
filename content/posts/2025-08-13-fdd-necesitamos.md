@@ -6,7 +6,7 @@ permalink: /2025/08/fdd-necesitamos.html
 tags:
   - FdD
   - leather
-  - amos
+  - Amos
   - esclavos
 ---
 

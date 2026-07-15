@@ -5,7 +5,7 @@ date: 2018-06-20 10:13:00 +0000
 permalink: /2018/06/fdd-conectados.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

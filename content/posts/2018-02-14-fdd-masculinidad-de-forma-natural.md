@@ -5,7 +5,7 @@ date: 2018-02-14 07:31:00 +0000
 permalink: /2018/02/fdd-masculinidad-de-forma-natural.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

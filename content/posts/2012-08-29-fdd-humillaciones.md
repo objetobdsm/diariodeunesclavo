@@ -4,8 +4,8 @@ title: "FdD humillaciones"
 date: 2012-08-29 08:18:00 +0000
 permalink: /2012/08/fdd-humillaciones.html
 tags:
-  - dominacion
-  - sumision
+  - dominación
+  - sumisión
   - FdD
 ---
 

@@ -5,7 +5,7 @@ date: 2016-12-31 07:27:00 +0000
 permalink: /2016/12/fdd-brillar.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

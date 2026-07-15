@@ -4,7 +4,7 @@ title: "bondage...bondage.....bondage...."
 date: 2008-02-04 06:05:00 +0000
 permalink: /2009/01/bondagebondagebondage.html
 tags:
-  - imagenes
+  - imágenes
   - mordazas
   - bondage
 ---

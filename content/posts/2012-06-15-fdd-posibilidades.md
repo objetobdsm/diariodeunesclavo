@@ -6,7 +6,7 @@ permalink: /2012/06/fdd-posibilidades.html
 tags:
   - latex
   - bondage
-  - sumision
+  - sumisión
   - FdD
 ---
 

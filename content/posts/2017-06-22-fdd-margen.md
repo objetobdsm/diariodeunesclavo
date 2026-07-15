@@ -6,7 +6,7 @@ permalink: /2017/06/fdd-margen.html
 tags:
   - moteros
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

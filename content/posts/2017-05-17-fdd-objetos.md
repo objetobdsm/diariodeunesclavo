@@ -6,7 +6,7 @@ permalink: /2017/05/fdd-objetos.html
 tags:
   - bondage
   - objetificación
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
 ---

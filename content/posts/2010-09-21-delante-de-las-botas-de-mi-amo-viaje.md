@@ -6,7 +6,7 @@ permalink: /2010/09/delante-de-las-botas-de-mi-amo-viaje.html
 tags:
   - botas
   - vida real
-  - imagenes propias
+  - imágenes propias
   - bondage
 ---
 

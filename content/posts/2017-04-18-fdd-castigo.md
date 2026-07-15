@@ -7,7 +7,7 @@ tags:
   - botas
   - bondage
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

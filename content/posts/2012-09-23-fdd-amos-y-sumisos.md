@@ -5,7 +5,7 @@ date: 2012-09-23 04:59:00 +0000
 permalink: /2012/09/fdd-amos-y-sumisos.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

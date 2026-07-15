@@ -5,8 +5,8 @@ date: 2025-03-02 10:57:00 +0000
 permalink: /2025/03/fdd-felicidad.html
 tags:
   - FdD
-  - dominacion
-  - sumision
+  - dominación
+  - sumisión
   - leather
   - cadenas
 ---

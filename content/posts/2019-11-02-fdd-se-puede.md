@@ -5,7 +5,7 @@ date: 2019-11-02 12:26:00 +0000
 permalink: /2019/11/fdd-se-puede.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

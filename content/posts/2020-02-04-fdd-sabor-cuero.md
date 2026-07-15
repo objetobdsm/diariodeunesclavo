@@ -6,7 +6,7 @@ permalink: /2020/02/fdd-sabor-cuero.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

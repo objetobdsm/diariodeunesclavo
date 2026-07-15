@@ -5,7 +5,7 @@ date: 2013-01-27 10:46:00 +0000
 permalink: /2013/01/fdd-apariencias.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

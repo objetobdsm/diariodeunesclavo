@@ -6,7 +6,7 @@ permalink: /2018/10/fdd-autenticos.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

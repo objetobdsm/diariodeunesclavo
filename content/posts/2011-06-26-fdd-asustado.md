@@ -5,7 +5,7 @@ date: 2011-06-26 05:48:00 +0000
 permalink: /2011/06/fdd-asustado.html
 tags:
   - bondage
-  - sumision
+  - sumisión
   - FdD
 ---
 

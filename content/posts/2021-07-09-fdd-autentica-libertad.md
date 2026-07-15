@@ -5,7 +5,7 @@ date: 2021-07-09 11:26:00 +0000
 permalink: /2021/07/fdd-autentica-libertad.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

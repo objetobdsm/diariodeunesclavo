@@ -5,7 +5,7 @@ date: 2012-10-11 07:57:00 +0000
 permalink: /2012/10/fdd-realidades.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

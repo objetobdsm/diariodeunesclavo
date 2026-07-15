@@ -5,7 +5,7 @@ date: 2011-10-07 15:16:00 +0000
 permalink: /2011/10/las-primeras-botas.html
 tags:
   - botas
-  - imagenes propias
+  - imágenes propias
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/35/c4/35c4a0311a41bd00e8c5aa42ab14902ddc5413a5f93bad5e3d4bde1db35e50a4.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="480" src="/uploads/c7/a3/c7a3f42f536fce12142c2abcde007b30df87a3e0ddec6896794a7720ea928da3.jpg" width="640" /></a></div><br />

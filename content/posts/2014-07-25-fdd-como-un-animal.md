@@ -6,7 +6,7 @@ permalink: /2014/07/fdd-como-un-animal.html
 tags:
   - botas
   - FdD
-  - dominacion
+  - dominación
   - leather
 ---
 

@@ -6,7 +6,7 @@ permalink: /2015/01/fdd-poder-en-movimiento.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

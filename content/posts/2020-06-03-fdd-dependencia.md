@@ -5,7 +5,7 @@ date: 2020-06-03 10:57:00 +0000
 permalink: /2020/06/fdd-dependencia.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

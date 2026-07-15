@@ -4,7 +4,7 @@ title: "en las grutas"
 date: 2011-05-06 19:56:00 +0000
 permalink: /2011/05/en-las-grutas.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

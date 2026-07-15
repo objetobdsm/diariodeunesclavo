@@ -6,8 +6,8 @@ permalink: /2025/08/fdd-pasar-revista.html
 tags:
   - FdD
   - leather
-  - sumision
-  - amos
+  - sumisión
+  - Amos
   - esclavos
 ---
 

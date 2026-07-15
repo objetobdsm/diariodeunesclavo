@@ -4,7 +4,7 @@ title: "FdD impulsos"
 date: 2016-06-11 07:07:00 +0000
 permalink: /2016/06/fdd-impulsos.html
 tags:
-  - amos
+  - Amos
   - leather
 ---
 

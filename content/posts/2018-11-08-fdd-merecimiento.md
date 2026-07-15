@@ -5,7 +5,7 @@ date: 2018-11-08 08:19:00 +0000
 permalink: /2018/11/fdd-merecimiento.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2011-07-26 05:50:00 +0000
 permalink: /2011/07/fdd-en-la-intimidad.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

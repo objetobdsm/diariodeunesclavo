@@ -5,7 +5,7 @@ date: 2011-04-28 05:14:00 +0000
 permalink: /2011/04/fdd-rituales.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

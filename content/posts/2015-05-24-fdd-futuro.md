@@ -6,7 +6,7 @@ permalink: /2015/05/fdd-futuro.html
 tags:
   - humillación
   - capucha
-  - despersonalizacion
+  - despersonalización
   - FdD
   - privación sensorial
 ---

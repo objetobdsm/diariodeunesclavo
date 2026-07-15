@@ -5,7 +5,7 @@ date: 2013-04-13 07:32:00 +0000
 permalink: /2013/04/fdd-razones-de-existir.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - leather
   - FdD
 ---

@@ -5,7 +5,7 @@ date: 2013-06-17 04:59:00 +0000
 permalink: /2013/06/fdd-resistir-se.html
 tags:
   - bondage
-  - sumision
+  - sumisión
   - FdD
 ---
 

@@ -4,10 +4,10 @@ title: "el latex no es tan malo"
 date: 2011-05-01 06:14:00 +0000
 permalink: /2011/05/el-latex-no-es-tan-malo.html
 tags:
-  - imagenes
-  - dominacion
+  - imágenes
+  - dominación
   - latex
-  - sumision
+  - sumisión
 ---
 
 <div class="" style="clear: both; text-align: center;"></div><br />

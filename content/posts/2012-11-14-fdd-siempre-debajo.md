@@ -5,7 +5,7 @@ date: 2012-11-14 08:45:00 +0000
 permalink: /2012/11/fdd-siempre-debajo.html
 tags:
   - dog-training
-  - sumision
+  - sumisión
   - FdD
 ---
 

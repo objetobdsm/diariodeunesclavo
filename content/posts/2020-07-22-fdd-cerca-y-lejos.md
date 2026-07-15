@@ -5,7 +5,7 @@ date: 2020-07-22 17:23:00 +0000
 permalink: /2020/07/fdd-cerca-y-lejos.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2024-11-21 08:37:00 +0000
 permalink: /2024/11/fdd-cuerpos-y-apariencias.html
 tags:
   - FdD
-  - dominacion
+  - dominación
   - leather
 ---
 

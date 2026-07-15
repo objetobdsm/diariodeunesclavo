@@ -6,7 +6,7 @@ permalink: /2018/10/fdd-amplificador.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

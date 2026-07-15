@@ -5,7 +5,7 @@ date: 2012-01-29 07:23:00 +0000
 permalink: /2012/01/fdd-afirmando-al-esclavo.html
 tags:
   - obediencia
-  - sumision
+  - sumisión
   - FdD
 ---
 

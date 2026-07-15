@@ -6,7 +6,7 @@ permalink: /2018/03/fdd-masculinidades.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

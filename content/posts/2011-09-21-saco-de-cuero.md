@@ -4,7 +4,7 @@ title: "saco de cuero"
 date: 2011-09-21 15:15:00 +0000
 permalink: /2011/09/saco-de-cuero.html
 tags:
-  - imagenes
+  - imágenes
   - bondage
   - leather
 ---

@@ -5,7 +5,7 @@ date: 2013-05-07 07:30:00 +0000
 permalink: /2013/05/fdd-cueros-en-el-parque.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

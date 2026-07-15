@@ -4,7 +4,7 @@ title: "a vueltas con la vieja guardia"
 date: 2010-10-04 13:09:00 +0000
 permalink: /2010/10/vueltas-con-la-vieja-guardia.html
 tags:
-  - imagenes
+  - imágenes
   - old guard
   - leather
 ---

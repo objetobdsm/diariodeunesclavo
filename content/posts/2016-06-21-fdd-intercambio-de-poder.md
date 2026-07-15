@@ -6,8 +6,8 @@ permalink: /2016/06/fdd-intercambio-de-poder.html
 tags:
   - esclavos
   - FdD
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - leather
 ---
 

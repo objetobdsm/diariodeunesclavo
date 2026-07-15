@@ -5,7 +5,7 @@ date: 2008-07-27 10:22:00 +0000
 permalink: /2008/07/reflexin-tarda-pero-vlida.html
 tags:
   - reflexiones
-  - dominacion
+  - dominación
   - esclavitud
 ---
 

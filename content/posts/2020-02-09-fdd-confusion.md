@@ -5,7 +5,7 @@ date: 2020-02-09 19:35:00 +0000
 permalink: /2020/02/fdd-confusion.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

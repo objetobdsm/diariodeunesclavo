@@ -5,7 +5,7 @@ date: 2019-08-29 09:56:00 +0000
 permalink: /2019/08/fdd-objeto.html
 tags:
   - bondage
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - leather

@@ -6,7 +6,7 @@ permalink: /2015/05/fdd-servidumbre.html
 tags:
   - esclavos
   - FdD
-  - sumision
+  - sumisión
   - cadenas
 ---
 

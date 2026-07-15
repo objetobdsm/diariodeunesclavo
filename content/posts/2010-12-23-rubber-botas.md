@@ -5,7 +5,7 @@ date: 2010-12-23 12:29:00 +0000
 permalink: /2010/12/rubber-botas.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - latex
 ---
 

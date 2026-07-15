@@ -5,7 +5,7 @@ date: 2011-11-11 08:30:00 +0000
 permalink: /2011/11/fdd-alimento-para-el-esclavo.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

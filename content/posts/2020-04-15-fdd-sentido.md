@@ -6,7 +6,7 @@ permalink: /2020/04/fdd-sentido.html
 tags:
   - bondage
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

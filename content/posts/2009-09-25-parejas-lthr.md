@@ -4,7 +4,7 @@ title: "parejas lthr"
 date: 2009-09-25 02:16:00 +0000
 permalink: /2009/09/parejas-lthr.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

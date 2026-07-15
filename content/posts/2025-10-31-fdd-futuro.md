@@ -5,7 +5,7 @@ date: 2025-10-31 03:35:00 +0000
 permalink: /2025/10/fdd-futuro.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
   - guantes
 ---

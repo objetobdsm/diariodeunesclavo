@@ -4,9 +4,9 @@ title: "rubber slave"
 date: 2010-04-19 05:54:00 +0000
 permalink: /2010/04/rubber-slave.html
 tags:
-  - imagenes
+  - imágenes
   - latex
-  - sumision
+  - sumisión
 ---
 
 <span class="Apple-style-span" style="font-family: Arial; font-size: small;"><span class="Apple-style-span" style="font-size: 13px;"><br />

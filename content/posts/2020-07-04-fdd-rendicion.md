@@ -5,7 +5,7 @@ date: 2020-07-04 09:49:00 +0000
 permalink: /2020/07/fdd-rendicion.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
   - cadenas
 ---

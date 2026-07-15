@@ -4,7 +4,7 @@ title: "FdD atributos de esclavo"
 date: 2012-04-08 07:39:00 +0000
 permalink: /2012/04/fdd-atributos-de-esclavo.html
 tags:
-  - amos
+  - Amos
   - bondage
   - FdD
 ---

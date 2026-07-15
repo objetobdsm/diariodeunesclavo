@@ -6,7 +6,7 @@ permalink: /2020/05/fdd-por-nuestro-bien.html
 tags:
   - FdD
   - dog-training
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

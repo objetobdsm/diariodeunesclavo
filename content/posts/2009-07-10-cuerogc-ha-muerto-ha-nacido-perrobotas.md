@@ -5,7 +5,7 @@ date: 2009-07-10 16:21:00 +0000
 permalink: /2009/07/cuerogc-ha-muerto-ha-nacido-perrobotas.html
 tags:
   - personal
-  - dominacion
+  - dominación
   - esclavitud
 ---
 

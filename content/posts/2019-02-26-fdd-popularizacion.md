@@ -5,7 +5,7 @@ date: 2019-02-26 18:56:00 +0000
 permalink: /2019/02/fdd-popularizacion.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

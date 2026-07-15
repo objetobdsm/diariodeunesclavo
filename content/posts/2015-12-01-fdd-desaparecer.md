@@ -5,7 +5,7 @@ date: 2015-12-01 10:29:00 +0000
 permalink: /2015/12/fdd-desaparecer.html
 tags:
   - bondage
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - leather

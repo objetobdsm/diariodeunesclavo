@@ -6,7 +6,7 @@ permalink: /2019/01/fdd-postracion.html
 tags:
   - FdD
   - esclavitud voluntaria
-  - sumision
+  - sumisión
 ---
 
 <br />

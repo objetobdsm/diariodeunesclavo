@@ -5,7 +5,7 @@ date: 2020-06-29 10:24:00 +0000
 permalink: /2020/06/fdd-dominacion-vs-capricho.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

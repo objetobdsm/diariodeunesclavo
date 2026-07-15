@@ -5,7 +5,7 @@ date: 2016-05-27 06:01:00 +0000
 permalink: /2016/05/fdd-jerarquia.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

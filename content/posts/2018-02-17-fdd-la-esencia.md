@@ -6,8 +6,8 @@ permalink: /2018/02/fdd-la-esencia.html
 tags:
   - FdD
   - esclavitud voluntaria
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - leather
 ---
 

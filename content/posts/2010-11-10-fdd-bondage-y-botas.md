@@ -5,7 +5,7 @@ date: 2010-11-10 06:44:00 +0000
 permalink: /2010/11/fdd-bondage-y-botas.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - mordazas
   - bondage
 ---

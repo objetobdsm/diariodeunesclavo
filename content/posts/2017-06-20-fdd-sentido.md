@@ -5,7 +5,7 @@ date: 2017-06-20 07:10:00 +0000
 permalink: /2017/06/fdd-sentido.html
 tags:
   - bondage
-  - sumision
+  - sumisión
   - leather
 ---
 

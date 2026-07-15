@@ -5,7 +5,7 @@ date: 2011-10-07 05:15:00 +0000
 permalink: /2011/10/fdd-tension.html
 tags:
   - bondage
-  - sumision
+  - sumisión
   - FdD
 ---
 

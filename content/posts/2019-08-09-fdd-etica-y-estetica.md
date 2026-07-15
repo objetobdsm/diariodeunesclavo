@@ -6,7 +6,7 @@ permalink: /2019/08/fdd-etica-y-estetica.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

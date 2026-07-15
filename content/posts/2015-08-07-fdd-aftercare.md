@@ -5,7 +5,7 @@ date: 2015-08-07 07:27:00 +0000
 permalink: /2015/08/fdd-aftercare.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

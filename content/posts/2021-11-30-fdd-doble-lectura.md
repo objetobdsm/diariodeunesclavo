@@ -5,7 +5,7 @@ date: 2021-11-30 16:00:00 +0000
 permalink: /2021/11/fdd-doble-lectura.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

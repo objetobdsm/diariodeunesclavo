@@ -4,7 +4,7 @@ title: "FdD violencia"
 date: 2011-01-10 07:22:00 +0000
 permalink: /2011/01/fdd-violencia.html
 tags:
-  - imagenes
+  - imágenes
   - guantes
   - leather
 ---

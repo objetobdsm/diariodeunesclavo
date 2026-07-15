@@ -7,7 +7,7 @@ tags:
   - FdD
   - latex
   - ws
-  - sumision
+  - sumisión
   - dog-training
 ---
 

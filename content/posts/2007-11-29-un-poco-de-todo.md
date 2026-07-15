@@ -4,7 +4,7 @@ title: "un poco de todo"
 date: 2007-11-29 04:35:00 +0000
 permalink: /2007/09/un-poco-de-todo.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

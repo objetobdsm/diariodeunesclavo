@@ -6,7 +6,7 @@ permalink: /2013/06/fdd-expresando-sumision.html
 tags:
   - botas
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

@@ -8,8 +8,8 @@ tags:
   - esclavos
   - FdD
   - chaps
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - leather
 ---
 

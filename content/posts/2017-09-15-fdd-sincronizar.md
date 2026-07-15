@@ -5,7 +5,7 @@ date: 2017-09-15 07:34:00 +0000
 permalink: /2017/09/fdd-sincronizar.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

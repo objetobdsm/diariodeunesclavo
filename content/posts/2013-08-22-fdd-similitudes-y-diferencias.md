@@ -6,7 +6,7 @@ permalink: /2013/08/fdd-similitudes-y-diferencias.html
 tags:
   - humillación
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

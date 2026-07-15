@@ -5,7 +5,7 @@ date: 2012-05-28 06:15:00 +0000
 permalink: /2012/05/fdd-posturas.html
 tags:
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

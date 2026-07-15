@@ -4,7 +4,7 @@ title: "una última imagen"
 date: 2013-12-31 23:50:00 +0000
 permalink: /2013/12/una-ultima-imagen.html
 tags:
-  - imagenes
+  - imágenes
 ---
 
 <div style="text-align: center;">

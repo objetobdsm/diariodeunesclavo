@@ -6,7 +6,7 @@ permalink: /2014/11/fdd-honrar.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

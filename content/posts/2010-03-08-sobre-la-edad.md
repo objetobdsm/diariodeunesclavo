@@ -4,8 +4,8 @@ title: "sobre la edad"
 date: 2010-03-08 14:34:00 +0000
 permalink: /2010/02/sobre-la-edad.html
 tags:
-  - amos
-  - imagenes
+  - Amos
+  - imágenes
 ---
 
 <a href="/uploads/e2/4f/e24fc3d118565c00ed1cceaaa856f631d382a8ab16c43e33e41d9aa7388cf042.jpg" onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}"><img alt="" border="0" id="BLOGGER_PHOTO_ID_5378347575691240914" src="/uploads/e2/4f/e24fc3d118565c00ed1cceaaa856f631d382a8ab16c43e33e41d9aa7388cf042.jpg" style="cursor: hand; cursor: pointer; display: block; height: 400px; margin: 0px auto 10px; text-align: center; width: 307px;" /></a><br />

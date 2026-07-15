@@ -4,7 +4,7 @@ title: "FdD miradas"
 date: 2012-07-06 07:14:00 +0000
 permalink: /2012/07/fdd-miradas.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

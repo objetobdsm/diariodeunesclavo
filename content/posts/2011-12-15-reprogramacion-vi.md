@@ -4,7 +4,7 @@ title: "reprogramación VI"
 date: 2011-12-15 16:42:00 +0000
 permalink: /2011/12/reprogramacion-vi.html
 tags:
-  - ficcion
+  - ficción
 ---
 
 <div style="text-align: justify;">aquello no era un ruego o una pregunta, era una orden. esto, unido al hecho de que las botas se ponían en movimiento fueron suficiente para desperme. El se marchaba y yo no podía permitirlo. aún con el sabor del cuero en la boca, me levanté y lo seguí. me costó poco ponerme a su paso pero no sé por qué razón no me puse a su lado, sino que me mantuve un metro por detrás, a su derecha. supongo que me influyó la orden de seguirle. oía el ruido de sus botas sobre el asfalto, rítmicas, marcando el paso. era casi hipnotizante. no podía quitarles la vista de encima, no podía dejar de mirar esas botas que iban caminando hacia un lugar deconocido y que me seducían. <br />

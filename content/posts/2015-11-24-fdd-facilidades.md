@@ -6,7 +6,7 @@ permalink: /2015/11/fdd-facilidades.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

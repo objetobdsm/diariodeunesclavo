@@ -4,7 +4,7 @@ title: "FdD cuero de verano"
 date: 2010-08-12 09:46:00 +0000
 permalink: /2010/08/fdd-cuero-de-verano.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

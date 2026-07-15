@@ -5,7 +5,7 @@ date: 2013-12-18 10:43:00 +0000
 permalink: /2013/12/fdd-segun-su-naturaleza.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

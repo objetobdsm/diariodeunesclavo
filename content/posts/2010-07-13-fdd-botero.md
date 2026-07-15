@@ -5,7 +5,7 @@ date: 2010-07-13 08:38:00 +0000
 permalink: /2010/07/fdd-botero.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - leather
 ---
 

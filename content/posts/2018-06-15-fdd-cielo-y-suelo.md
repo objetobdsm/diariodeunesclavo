@@ -6,7 +6,7 @@ permalink: /2018/06/fdd-cielo-y-suelo.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

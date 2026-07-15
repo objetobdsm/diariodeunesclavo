@@ -4,8 +4,8 @@ title: "FdD leatherman real"
 date: 2010-09-28 06:11:00 +0000
 permalink: /2010/09/fdd-leatherman-real.html
 tags:
-  - imagenes
-  - amos
+  - imágenes
+  - Amos
   - leather
 ---
 

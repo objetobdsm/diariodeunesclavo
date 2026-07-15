@@ -4,10 +4,10 @@ title: "FdD bautizo 3"
 date: 2010-07-09 08:34:00 +0000
 permalink: /2010/07/fdd-bautizo-3.html
 tags:
-  - imagenes
+  - imágenes
   - vida real
   - esclavos
-  - sumision
+  - sumisión
 ---
 
 <span class="Apple-style-span" style="font-family: Arial; font-size: small;"></span><br />

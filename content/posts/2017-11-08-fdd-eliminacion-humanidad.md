@@ -6,7 +6,7 @@ permalink: /2017/11/fdd-eliminacion-humanidad.html
 tags:
   - bondage
   - objetificación
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - privación sensorial

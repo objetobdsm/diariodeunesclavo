@@ -4,7 +4,7 @@ title: "FdD autoridad"
 date: 2012-01-02 07:54:00 +0000
 permalink: /2012/01/fdd-autoridad.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

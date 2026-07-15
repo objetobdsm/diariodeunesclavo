@@ -6,7 +6,7 @@ permalink: /2011/10/fdd-lamiendo-en-obediencia.html
 tags:
   - botas
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

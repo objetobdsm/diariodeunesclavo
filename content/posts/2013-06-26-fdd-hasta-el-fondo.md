@@ -6,7 +6,7 @@ permalink: /2013/06/fdd-hasta-el-fondo.html
 tags:
   - dog-training
   - FdD
-  - despersonalizacion
+  - despersonalización
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

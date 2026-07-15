@@ -4,8 +4,8 @@ title: "FdD cuero negro"
 date: 2010-11-20 06:01:00 +0000
 permalink: /2010/11/fdd-cuero-negro.html
 tags:
-  - imagenes
-  - dominacion
+  - imágenes
+  - dominación
   - leather
 ---
 

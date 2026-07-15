@@ -6,7 +6,7 @@ permalink: /2019/02/fdd-humillacion-la-leccion.html
 tags:
   - humillación
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

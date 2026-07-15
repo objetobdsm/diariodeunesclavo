@@ -5,7 +5,7 @@ date: 2020-06-01 10:57:00 +0000
 permalink: /2020/06/fdd-mas-alla-del-genero.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

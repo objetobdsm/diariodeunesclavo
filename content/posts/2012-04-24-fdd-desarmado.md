@@ -5,7 +5,7 @@ date: 2012-04-24 05:15:00 +0000
 permalink: /2012/04/fdd-desarmado.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

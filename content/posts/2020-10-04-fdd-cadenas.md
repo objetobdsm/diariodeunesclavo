@@ -5,7 +5,7 @@ date: 2020-10-04 08:58:00 +0000
 permalink: /2020/10/fdd-cadenas.html
 tags:
   - FdD
-  - amos
+  - Amos
   - cadenas
 ---
 

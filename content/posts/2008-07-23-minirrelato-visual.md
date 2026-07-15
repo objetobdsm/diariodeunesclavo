@@ -5,7 +5,7 @@ date: 2008-07-23 10:23:00 +0000
 permalink: /2008/07/minirrelato-visual.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - leather
 ---
 

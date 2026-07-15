@@ -5,8 +5,8 @@ date: 2025-09-06 09:17:00 +0000
 permalink: /2025/09/fdd-la-fuente-de-la-felicidad.html
 tags:
   - FdD
-  - dominacion
-  - sumision
+  - dominación
+  - sumisión
   - castidad
   - guantes
   - gom

@@ -4,7 +4,7 @@ title: "FdD sumisión entre lujos."
 date: 2012-04-20 07:43:00 +0000
 permalink: /2012/04/fdd-sumision-entre-lujos.html
 tags:
-  - sumision
+  - sumisión
   - FdD
 ---
 

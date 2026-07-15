@@ -5,7 +5,7 @@ date: 2015-02-13 07:08:00 +0000
 permalink: /2015/02/fdd-ternura.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

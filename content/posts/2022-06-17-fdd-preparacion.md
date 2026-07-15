@@ -6,7 +6,7 @@ permalink: /2022/06/fdd-preparacion.html
 tags:
   - botas
   - FdD
-  - dominacion
+  - dominación
   - leather
 ---
 

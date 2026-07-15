@@ -6,7 +6,7 @@ permalink: /2017/07/fdd-romperse-y-perderse.html
 tags:
   - FdD
   - esclavitud voluntaria
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2019-07-05 19:44:00 +0000
 permalink: /2019/07/fdd-entrega.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

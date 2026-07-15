@@ -5,7 +5,7 @@ date: 2011-07-04 05:26:00 +0000
 permalink: /2011/07/fdd-agarrado.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

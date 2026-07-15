@@ -5,7 +5,7 @@ date: 2019-05-31 11:06:00 +0000
 permalink: /2019/05/fdd-castigo.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

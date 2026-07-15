@@ -5,7 +5,7 @@ date: 2019-04-16 08:51:00 +0000
 permalink: /2019/04/fdd-barrera.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

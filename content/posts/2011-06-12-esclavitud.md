@@ -4,7 +4,7 @@ title: "esclavitud"
 date: 2011-06-12 16:18:00 +0000
 permalink: /2011/06/esclavitud.html
 tags:
-  - imagenes
+  - imágenes
   - esclavitud
 ---
 

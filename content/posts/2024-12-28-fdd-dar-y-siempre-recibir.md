@@ -6,7 +6,7 @@ permalink: /2024/12/fdd-dar-y-siempre-recibir.html
 tags:
   - FdD
   - ws
-  - sumision
+  - sumisión
   - leather
 ---
 

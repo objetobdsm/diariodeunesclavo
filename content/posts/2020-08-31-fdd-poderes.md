@@ -6,7 +6,7 @@ permalink: /2020/08/fdd-poderes.html
 tags:
   - FdD
   - leather
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

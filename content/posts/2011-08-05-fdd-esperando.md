@@ -5,7 +5,7 @@ date: 2011-08-05 06:01:00 +0000
 permalink: /2011/08/fdd-esperando.html
 tags:
   - latex
-  - sumision
+  - sumisión
   - FdD
 ---
 

@@ -6,7 +6,7 @@ permalink: /2025/01/fdd-autoridad-y-felicidad.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

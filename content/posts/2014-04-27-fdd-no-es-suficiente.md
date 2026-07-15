@@ -6,7 +6,7 @@ permalink: /2014/04/fdd-no-es-suficiente.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2019-03-11 08:13:00 +0000
 permalink: /2019/03/fdd-panteones.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

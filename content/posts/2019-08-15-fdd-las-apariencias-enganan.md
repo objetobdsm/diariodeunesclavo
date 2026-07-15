@@ -5,7 +5,7 @@ date: 2019-08-15 09:56:00 +0000
 permalink: /2019/08/fdd-las-apariencias-enganan.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

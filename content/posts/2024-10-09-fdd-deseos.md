@@ -6,7 +6,7 @@ permalink: /2024/10/fdd-deseos.html
 tags:
   - FdD
   - esclavitud voluntaria
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -4,7 +4,7 @@ title: "accidente"
 date: 2014-02-07 14:48:00 +0000
 permalink: /2014/02/accidente.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - castidad
 ---
 

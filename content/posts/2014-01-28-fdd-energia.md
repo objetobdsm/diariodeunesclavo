@@ -5,7 +5,7 @@ date: 2014-01-28 08:54:00 +0000
 permalink: /2014/01/fdd-energia.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

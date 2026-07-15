@@ -5,7 +5,7 @@ date: 2017-09-04 05:13:00 +0000
 permalink: /2017/09/fdd-objetos-y-razones.html
 tags:
   - bondage
-  - despersonalizacion
+  - despersonalización
   - FdD
   - privación sensorial
   - leather

@@ -5,7 +5,7 @@ date: 2010-12-14 07:04:00 +0000
 permalink: /2010/12/fdd-lame-botas.html
 tags:
   - botas
-  - imagenes
+  - imágenes
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/26/30/26302f2ab60b074c5cad8b77ad0707bff6537b0ea693825ed375a265145d6c07.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/26/30/26302f2ab60b074c5cad8b77ad0707bff6537b0ea693825ed375a265145d6c07.jpg" /></a></div><div class="separator" style="clear: both; text-align: center;"><br />

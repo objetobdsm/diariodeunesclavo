@@ -5,7 +5,7 @@ date: 2019-03-09 08:13:00 +0000
 permalink: /2019/03/fdd-mercancia.html
 tags:
   - gimp
-  - despersonalizacion
+  - despersonalización
   - deshumanización
   - latex
 ---

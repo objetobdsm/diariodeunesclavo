@@ -5,7 +5,7 @@ date: 2010-08-10 04:41:00 +0000
 permalink: /2010/08/fdd-nuevas-perspectivas.html
 tags:
   - botas
-  - imagenes
+  - imágenes
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/dc/84/dc842c928d3d87d9c4412667ffe4fdd4a713c3c79bcd1c72cc001794dd8f3767.jpg).jpg" imageanchor="1" style="clear: left; float: left; margin-bottom: 1em; margin-right: 1em;"><img border="0" height="400" src="/uploads/73/40/7340ca02323256dc7469da152913d64c42412bd522118a93a6ac0f4174e9da49.jpg" width="300" /></a></div><br />

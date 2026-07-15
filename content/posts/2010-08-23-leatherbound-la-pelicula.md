@@ -4,7 +4,7 @@ title: "leatherbound la película"
 date: 2010-08-23 17:12:00 +0000
 permalink: /2010/08/leatherbound-la-pelicula.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

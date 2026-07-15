@@ -4,7 +4,7 @@ title: "nuevas armaduras"
 date: 2011-01-05 16:27:00 +0000
 permalink: /2011/01/nuevas-armaduras.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

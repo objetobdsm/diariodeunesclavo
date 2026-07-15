@@ -5,7 +5,7 @@ date: 2011-04-20 04:07:00 +0000
 permalink: /2011/04/fdd-dando-pasos.html
 tags:
   - obediencia
-  - sumision
+  - sumisión
   - FdD
 ---
 

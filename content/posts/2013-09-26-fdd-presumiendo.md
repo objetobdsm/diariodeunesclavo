@@ -6,7 +6,7 @@ permalink: /2013/09/fdd-presumiendo.html
 tags:
   - esclavos
   - bondage
-  - amos
+  - Amos
   - FdD
 ---
 

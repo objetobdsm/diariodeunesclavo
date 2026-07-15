@@ -5,7 +5,7 @@ date: 2020-10-17 09:19:00 +0000
 permalink: /2020/10/fdd-leather-y-hormigon.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

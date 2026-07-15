@@ -5,7 +5,7 @@ date: 2013-12-26 07:20:00 +0000
 permalink: /2013/12/fdd-desenfocado.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

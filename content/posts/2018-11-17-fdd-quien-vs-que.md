@@ -6,7 +6,7 @@ permalink: /2018/11/fdd-quien-vs-que.html
 tags:
   - bondage
   - capucha
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
 ---

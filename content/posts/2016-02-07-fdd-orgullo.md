@@ -6,7 +6,7 @@ permalink: /2016/02/fdd-orgullo.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

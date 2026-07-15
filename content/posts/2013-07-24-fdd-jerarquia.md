@@ -5,7 +5,7 @@ date: 2013-07-24 07:20:00 +0000
 permalink: /2013/07/fdd-jerarquia.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - leather
   - FdD
 ---

@@ -6,7 +6,7 @@ permalink: /2024/09/fdd-condensacion.html
 tags:
   - botas
   - FdD
-  - policia
+  - policía
   - leather
 ---
 

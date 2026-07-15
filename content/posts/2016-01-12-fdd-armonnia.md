@@ -6,7 +6,7 @@ permalink: /2016/01/fdd-armonnia.html
 tags:
   - FdD
   - esclavitud voluntaria
-  - sumision
+  - sumisión
   - leather
 ---
 

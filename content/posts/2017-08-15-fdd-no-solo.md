@@ -5,7 +5,7 @@ date: 2017-08-15 08:02:00 +0000
 permalink: /2017/08/fdd-no-solo.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

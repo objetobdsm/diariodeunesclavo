@@ -5,7 +5,7 @@ date: 2009-09-21 13:18:00 +0000
 permalink: /2009/09/todo-leather.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - leather
 ---
 

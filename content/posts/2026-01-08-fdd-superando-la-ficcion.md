@@ -6,7 +6,7 @@ permalink:
 tags:
   - FdD
   - leather
-  - sumision
+  - sumisión
   - botas
 ---
 ![Foto de dia](/uploads/2026/2026_01/2026_01_08.jpg)

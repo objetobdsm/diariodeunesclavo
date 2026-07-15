@@ -5,7 +5,7 @@ date: 2010-11-22 06:02:00 +0000
 permalink: /2010/11/fdd-fetiches-y-casos-reales.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - leather
 ---
 

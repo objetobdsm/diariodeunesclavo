@@ -5,7 +5,7 @@ date: 2012-01-31 08:56:00 +0000
 permalink: /2012/01/fdd-de-vueltas.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

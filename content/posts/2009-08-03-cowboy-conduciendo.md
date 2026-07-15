@@ -5,7 +5,7 @@ date: 2009-08-03 07:47:00 +0000
 permalink: /2009/08/cowboy-conduciendo.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - leather
 ---
 

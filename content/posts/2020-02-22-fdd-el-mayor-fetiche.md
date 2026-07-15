@@ -5,7 +5,7 @@ date: 2020-02-22 18:10:00 +0000
 permalink: /2020/02/fdd-el-mayor-fetiche.html
 tags:
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

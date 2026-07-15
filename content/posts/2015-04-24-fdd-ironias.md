@@ -6,7 +6,7 @@ permalink: /2015/04/fdd-ironias.html
 tags:
   - bondage
   - FdD
-  - policia
+  - policía
   - leather
 ---
 

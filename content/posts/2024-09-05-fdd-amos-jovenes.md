@@ -5,7 +5,7 @@ date: 2024-09-05 06:56:00 +0000
 permalink: /2024/09/fdd-amos-jovenes.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -4,7 +4,7 @@ title: "vida en esclavitud III"
 date: 2012-04-30 17:13:00 +0000
 permalink: /2012/04/vida-en-esclavitud-iii.html
 tags:
-  - imagenes
+  - imágenes
   - mazmorra
   - series
 ---

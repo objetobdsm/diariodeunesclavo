@@ -6,7 +6,7 @@ permalink: /2017/09/fdd-aprender-un-lugar.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2015-06-12 07:45:00 +0000
 permalink: /2015/06/fdd-orientacion-y-guia.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -4,7 +4,7 @@ title: "FdD doble realidad"
 date: 2010-11-08 07:02:00 +0000
 permalink: /2010/11/fdd-doble-realidad.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

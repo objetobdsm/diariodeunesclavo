@@ -6,7 +6,7 @@ permalink: /2014/11/fdd-afortunado.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

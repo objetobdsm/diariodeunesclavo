@@ -4,7 +4,7 @@ title: "FdD caballerosidad"
 date: 2012-05-19 07:44:00 +0000
 permalink: /2012/05/fdd-caballerosidad.html
 tags:
-  - dominacion
+  - dominación
   - leather
   - FdD
 ---

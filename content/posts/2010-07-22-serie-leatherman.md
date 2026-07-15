@@ -4,7 +4,7 @@ title: "serie leatherman"
 date: 2010-07-22 07:17:00 +0000
 permalink: /2010/07/serie-leatherman.html
 tags:
-  - imagenes
+  - imágenes
   - internet
   - leather
 ---

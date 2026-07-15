@@ -5,7 +5,7 @@ date: 2019-05-22 10:49:00 +0000
 permalink: /2019/05/fdd-delicadeza.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

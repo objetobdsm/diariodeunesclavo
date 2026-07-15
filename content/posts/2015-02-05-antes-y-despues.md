@@ -4,7 +4,7 @@ title: "antes y después"
 date: 2015-02-05 13:54:00 +0000
 permalink: /2015/02/antes-y-despues.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - castidad
 ---
 

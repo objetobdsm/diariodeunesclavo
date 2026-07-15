@@ -5,7 +5,7 @@ date: 2025-09-03 09:10:00 +0000
 permalink: /2025/09/fdd-son-como-son.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

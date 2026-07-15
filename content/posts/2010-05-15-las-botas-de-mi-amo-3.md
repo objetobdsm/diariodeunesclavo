@@ -6,7 +6,7 @@ permalink: /2010/05/las-botas-de-mi-amo-3.html
 tags:
   - botas
   - vida real
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/e6/34/e63479013c70602c457033c9229eb08e2ee192be3842eb864e1649dfc0be9c03.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="300" src="/uploads/99/ef/99efc02efa28e50e7806ea92b32dcc4dcaf13e6377cd7c9d46f527dcca613a85.jpg" width="400" /></a></div><div class="separator" style="clear: both; text-align: justify;">no me canso de verlas, como tampoco me canso de lamerlas y de servirlas. lo haría aunque no fueran de mi AMO, pero lo son, así que aún adquieren más importancia. además mi AMO las quiere, le gustan y las ama. el apasionan y le encantan. yo sólo aspiro a convertirme, como ellas, en un objeto que merezca, aunque sea mínimamente, tal consideración.</div><div class="separator" style="clear: both; text-align: center;"><br />

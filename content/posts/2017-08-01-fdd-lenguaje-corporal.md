@@ -5,7 +5,7 @@ date: 2017-08-01 07:36:00 +0000
 permalink: /2017/08/fdd-lenguaje-corporal.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -6,7 +6,7 @@ permalink: /2019/12/fdd-indefension.html
 tags:
   - bondage
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

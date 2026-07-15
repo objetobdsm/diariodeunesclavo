@@ -5,7 +5,7 @@ date: 2015-09-06 08:25:00 +0000
 permalink: /2015/09/fdd-de-nuevo-lugares.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

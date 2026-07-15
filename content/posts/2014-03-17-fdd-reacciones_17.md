@@ -6,7 +6,7 @@ permalink: /2014/03/fdd-reacciones_17.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

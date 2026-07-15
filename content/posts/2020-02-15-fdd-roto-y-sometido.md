@@ -6,7 +6,7 @@ permalink: /2020/02/fdd-roto-y-sometido.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

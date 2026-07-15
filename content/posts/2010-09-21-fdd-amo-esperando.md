@@ -4,8 +4,8 @@ title: "FdD Amo esperando"
 date: 2010-09-21 06:04:00 +0000
 permalink: /2010/09/fdd-amo-esperando.html
 tags:
-  - imagenes
-  - amos
+  - imágenes
+  - Amos
   - leather
 ---
 

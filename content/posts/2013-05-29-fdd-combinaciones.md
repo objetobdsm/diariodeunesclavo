@@ -4,7 +4,7 @@ title: "FdD combinaciones"
 date: 2013-05-29 07:21:00 +0000
 permalink: /2013/05/fdd-combinaciones.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

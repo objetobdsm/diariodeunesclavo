@@ -5,7 +5,7 @@ date: 2013-02-02 09:16:00 +0000
 permalink: /2013/02/fdd-rebeliones.html
 tags:
   - dog-training
-  - sumision
+  - sumisión
   - FdD
 ---
 

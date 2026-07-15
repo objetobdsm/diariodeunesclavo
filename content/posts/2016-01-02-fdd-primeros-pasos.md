@@ -5,7 +5,7 @@ date: 2016-01-02 08:43:00 +0000
 permalink: /2016/01/fdd-primeros-pasos.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

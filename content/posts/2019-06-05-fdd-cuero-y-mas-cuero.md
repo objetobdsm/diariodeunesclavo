@@ -5,7 +5,7 @@ date: 2019-06-05 11:09:00 +0000
 permalink: /2019/06/fdd-cuero-y-mas-cuero.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

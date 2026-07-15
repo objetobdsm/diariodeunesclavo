@@ -5,7 +5,7 @@ date: 2011-10-26 05:57:00 +0000
 permalink: /2011/10/fdd-posicion-de-perro.html
 tags:
   - dog-training
-  - sumision
+  - sumisión
   - FdD
 ---
 

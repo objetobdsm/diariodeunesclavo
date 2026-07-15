@@ -6,7 +6,7 @@ permalink: /2022/02/fdd-prestigio.html
 tags:
   - moteros
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

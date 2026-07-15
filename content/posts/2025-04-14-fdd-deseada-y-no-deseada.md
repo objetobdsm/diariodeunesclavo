@@ -5,7 +5,7 @@ date: 2025-04-14 07:19:00 +0000
 permalink: /2025/04/fdd-deseada-y-no-deseada.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - esclavitud voluntaria
 ---
 

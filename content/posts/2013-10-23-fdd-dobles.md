@@ -5,7 +5,7 @@ date: 2013-10-23 09:05:00 +0000
 permalink: /2013/10/fdd-dobles.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

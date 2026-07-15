@@ -4,7 +4,7 @@ title: "indefensión aprendida"
 date: 2011-04-26 21:26:00 +0000
 permalink: /2011/04/indefension-aprendida.html
 tags:
-  - dominacion
+  - dominación
   - blogs
 ---
 

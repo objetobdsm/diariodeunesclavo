@@ -4,7 +4,7 @@ title: "más cuero, más bondage, más esclavo"
 date: 2012-05-25 14:24:00 +0000
 permalink: /2012/05/mas-cuero-mas-bondage-mas-esclavo.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - bondage
   - leather
 ---

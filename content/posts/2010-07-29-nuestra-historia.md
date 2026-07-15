@@ -4,7 +4,7 @@ title: "nuestra historia"
 date: 2010-07-29 09:50:00 +0000
 permalink: /2010/07/nuestra-historia.html
 tags:
-  - imagenes
+  - imágenes
   - old guard
 ---
 

@@ -5,7 +5,7 @@ date: 2025-01-06 09:36:00 +0000
 permalink: /2025/01/fdd-apariencias.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2010-04-10 07:19:00 +0000
 permalink: /2010/04/grupo-de-esclavos.html
 tags:
   - esclavitud
-  - imagenes
+  - imágenes
 ---
 
 <div style="text-align: justify;">¿cuántos esclavos puede tener un AMO? podría ser una pregunta lógica o al menos una pregunta que nos podríamos hacer. sin embargo es una pregunta trampa. la razón es que encierra que podemos convertir al AMO en un esclavo ya que limitamos su libertad a menos que demos la única respuesta obvia: todos aquellos que EL desee. ¿quiénes somos los sumisos para poner coto a los deseos del AMO? estamos aquí para hacer lo que EL desee y no viceversa. sólo sus deseos y necesidades son importantes.</div><br />

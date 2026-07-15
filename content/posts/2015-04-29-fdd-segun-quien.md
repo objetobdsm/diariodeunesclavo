@@ -8,7 +8,7 @@ tags:
   - bondage
   - capucha
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

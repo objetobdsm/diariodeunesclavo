@@ -4,7 +4,7 @@ title: "FdD polos opuestos"
 date: 2018-12-10 09:49:00 +0000
 permalink: /2018/12/fdd-polos-opuestos.html
 tags:
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - latex

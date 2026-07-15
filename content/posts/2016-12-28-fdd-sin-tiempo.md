@@ -6,7 +6,7 @@ permalink: /2016/12/fdd-sin-tiempo.html
 tags:
   - humillación
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

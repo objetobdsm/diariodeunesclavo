@@ -4,7 +4,7 @@ title: "FdD entrenamiento"
 date: 2011-09-27 05:30:00 +0000
 permalink: /2011/09/fdd-entrenamiento.html
 tags:
-  - sumision
+  - sumisión
   - FdD
 ---
 

@@ -4,7 +4,7 @@ title: "FdD guantes III"
 date: 2011-01-09 07:09:00 +0000
 permalink: /2011/01/fdd-guantes-iii.html
 tags:
-  - imagenes
+  - imágenes
   - guantes
   - leather
 ---

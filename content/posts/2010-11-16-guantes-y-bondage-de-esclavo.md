@@ -5,7 +5,7 @@ date: 2010-11-16 20:35:00 +0000
 permalink: /2010/11/guantes-y-bondage-de-esclavo.html
 tags:
   - guantes
-  - imagenes propias
+  - imágenes propias
   - bondage
 ---
 

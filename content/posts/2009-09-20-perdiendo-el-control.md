@@ -5,7 +5,7 @@ date: 2009-09-20 10:24:00 +0000
 permalink: /2009/09/perdiendo-el-control.html
 tags:
   - personal
-  - dominacion
+  - dominación
   - esclavitud
 ---
 

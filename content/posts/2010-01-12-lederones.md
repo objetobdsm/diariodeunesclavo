@@ -4,7 +4,7 @@ title: "lederones"
 date: 2010-01-12 08:42:00 +0000
 permalink: /2010/01/lederones.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

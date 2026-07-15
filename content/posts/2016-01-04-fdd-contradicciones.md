@@ -6,7 +6,7 @@ permalink: /2016/01/fdd-contradicciones.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

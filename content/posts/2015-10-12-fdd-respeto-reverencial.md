@@ -5,7 +5,7 @@ date: 2015-10-12 07:07:00 +0000
 permalink: /2015/10/fdd-respeto-reverencial.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

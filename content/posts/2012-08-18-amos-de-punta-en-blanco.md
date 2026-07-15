@@ -4,8 +4,8 @@ title: "Amos de punta en blanco"
 date: 2012-08-18 17:52:00 +0000
 permalink: /2012/08/amos-de-punta-en-blanco.html
 tags:
-  - imagenes
-  - amos
+  - imágenes
+  - Amos
   - leather
 ---
 

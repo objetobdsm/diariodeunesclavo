@@ -6,7 +6,7 @@ permalink: /2018/01/fdd-naturaleza-y-jerarquia.html
 tags:
   - esclavos
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

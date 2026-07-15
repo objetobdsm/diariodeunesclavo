@@ -4,9 +4,9 @@ title: "FdD en la soledad de la ciudad"
 date: 2010-12-21 07:53:00 +0000
 permalink: /2010/12/fdd-en-la-soledad-de-la-ciudad.html
 tags:
-  - imagenes
-  - dominacion
-  - sumision
+  - imágenes
+  - dominación
+  - sumisión
 ---
 
 <div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/0e/80/0e80239ae8b8fec0c59845f12d53adb0cd56356b8a48041fb4e7fa2f7f070210.jpg" imageanchor="1"><img src="/uploads/0e/80/0e80239ae8b8fec0c59845f12d53adb0cd56356b8a48041fb4e7fa2f7f070210.jpg" border="0" /></a></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><br /></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify">otra foto de la serie que veíamos ayer. un Amo sólo en la ciudad. digo Amo porque este perro quiere ver a un Amo, pero no hay nada que diga que es una cosa u otra. independientemente del aspecto que tenga, tanto los Amos como los esclavos se forjan en el mismo sitio: en la soledad. es cierto que formamos comunidad, que nos reunimos, los que podemos, en algún bar donde van otros tíos vestidos de cuero, o que son sumisos. internet posibilitó las comunidades virtuales que permiten encontrar a personas en todas partes del mundo con tus mismos gustos, pero la mayor parte del tiempo estamos solos.. a menos que el Amo encuentre lo que está buscando y el esclavo sea encontrado por Aquel que le busca.</div><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify">soportar la soledad forma parte de nuestro rito de iniciación, porque si no lo hacemos corremos el riesgo de dedicar tiempo a lo que no merece la pena o servir al que no merece nuestra sumisión. encuentros sexuales esporádicos pueden compensar y hacer más llevadero el camino, pero al final siempre nos encontramos con nosotros mismos en la soledad, en medio de una noche. sin embargo algunos afortunados viven la experiencia del encuentro, que sólo puede darse en la soledad. entonces todo lo anterior desaparece y a partir de ese momento ya no te sientes sólo, los Amos usando y disfrutando de su propiedad y los esclavos siendo usados por sus Amos. en ese momento la soledad desaparece y podemos decir que somos muy afortunados.</div>

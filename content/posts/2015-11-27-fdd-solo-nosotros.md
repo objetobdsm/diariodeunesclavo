@@ -6,7 +6,7 @@ permalink: /2015/11/fdd-solo-nosotros.html
 tags:
   - FdD
   - latex
-  - sumision
+  - sumisión
   - leather
 ---
 

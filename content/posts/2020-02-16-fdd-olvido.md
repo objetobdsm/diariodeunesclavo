@@ -8,7 +8,7 @@ tags:
   - FdD
   - deshumanización
   - leather
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

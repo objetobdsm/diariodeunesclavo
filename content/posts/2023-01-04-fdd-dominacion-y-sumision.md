@@ -5,7 +5,7 @@ date: 2023-01-04 09:20:00 +0000
 permalink: /2023/01/fdd-dominacion-y-sumision.html
 tags:
   - FdD
-  - dominacion
+  - dominación
   - latex
 ---
 

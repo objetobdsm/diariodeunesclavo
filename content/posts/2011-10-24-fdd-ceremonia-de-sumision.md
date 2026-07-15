@@ -5,7 +5,7 @@ date: 2011-10-24 07:35:00 +0000
 permalink: /2011/10/fdd-ceremonia-de-sumision.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

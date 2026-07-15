@@ -6,7 +6,7 @@ permalink: /2019/10/fdd-objeto.html
 tags:
   - gimp
   - FdD
-  - despersonalizacion
+  - despersonalización
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

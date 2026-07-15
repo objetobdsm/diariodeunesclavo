@@ -4,7 +4,7 @@ title: "obediencia"
 date: 2011-06-20 16:10:00 +0000
 permalink: /2011/06/obediencia.html
 tags:
-  - teoria
+  - teoría
   - obediencia
   - blogs
 ---

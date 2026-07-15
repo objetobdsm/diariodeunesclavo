@@ -6,7 +6,7 @@ permalink: /2017/02/fdd-abuso-vs-liberacion.html
 tags:
   - bondage
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

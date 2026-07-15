@@ -5,7 +5,7 @@ date: 2018-05-09 07:33:00 +0000
 permalink: /2018/05/fdd-sentido-del-placer.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

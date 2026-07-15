@@ -6,7 +6,7 @@ permalink: /2009/11/botero-pensativo.html
 tags:
   - botas
   - reflexiones
-  - imagenes
+  - imágenes
   - leather
 ---
 

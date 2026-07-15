@@ -5,7 +5,7 @@ date: 2022-05-15 11:37:00 +0000
 permalink: /2022/05/fdd-fortuna.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

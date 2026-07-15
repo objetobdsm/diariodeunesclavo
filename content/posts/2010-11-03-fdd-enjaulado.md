@@ -4,7 +4,7 @@ title: "FdD enjaulado"
 date: 2010-11-03 06:30:00 +0000
 permalink: /2010/11/fdd-enjaulado.html
 tags:
-  - imagenes
+  - imágenes
   - encierro
   - identidad
 ---

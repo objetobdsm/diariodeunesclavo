@@ -4,9 +4,9 @@ title: "sirviendo al AMO"
 date: 2010-04-17 16:41:00 +0000
 permalink: /2010/04/sirviendo-al-amo.html
 tags:
-  - imagenes
+  - imágenes
   - leather
-  - sumision
+  - sumisión
 ---
 
 el esclavo vive para servir, para servir a su AMO. por eso debe estar de rodillas en su presencia, como señal de que está disponible y preparado para lo que su AMO desee. y servir significa hacer su vida más agradable y darle placer, mucho placer. eso se puede dar de muchas formas, cada AMO elige y decide el momento, la forma, el lugar. sin embargo esta es una muy común que aquí remito a su consideración.<br />

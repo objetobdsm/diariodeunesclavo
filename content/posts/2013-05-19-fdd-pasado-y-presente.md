@@ -5,8 +5,8 @@ date: 2013-05-19 06:20:00 +0000
 permalink: /2013/05/fdd-pasado-y-presente.html
 tags:
   - esclavos
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - FdD
 ---
 

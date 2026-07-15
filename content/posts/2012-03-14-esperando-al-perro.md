@@ -5,7 +5,7 @@ date: 2012-03-14 19:30:00 +0000
 permalink: /2012/03/esperando-al-perro.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - leather
 ---
 

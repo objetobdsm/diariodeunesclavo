@@ -5,7 +5,7 @@ date: 2011-07-22 05:39:00 +0000
 permalink: /2011/07/fdd-nueva-actitud.html
 tags:
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

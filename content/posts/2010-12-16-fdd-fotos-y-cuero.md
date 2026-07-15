@@ -4,7 +4,7 @@ title: "FdD fotos y cuero"
 date: 2010-12-16 07:06:00 +0000
 permalink: /2010/12/fdd-fotos-y-cuero.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

@@ -7,8 +7,8 @@ tags:
   - esclavos
   - bondage
   - FdD
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - leather
 ---
 

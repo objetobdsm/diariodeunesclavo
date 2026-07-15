@@ -6,7 +6,7 @@ permalink: /2022/04/fdd-sabado-santo.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

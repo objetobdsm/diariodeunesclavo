@@ -5,7 +5,7 @@ date: 2015-12-26 07:18:00 +0000
 permalink: /2015/12/fdd-regalos.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

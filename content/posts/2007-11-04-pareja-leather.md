@@ -5,7 +5,7 @@ date: 2007-11-04 06:38:00 +0000
 permalink: /2007/09/pareja-leather.html
 tags:
   - reflexiones
-  - imagenes
+  - imágenes
   - leather
 ---
 

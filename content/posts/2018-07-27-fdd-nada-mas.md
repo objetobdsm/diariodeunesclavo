@@ -5,7 +5,7 @@ date: 2018-07-27 11:03:00 +0000
 permalink: /2018/07/fdd-nada-mas.html
 tags:
   - objetificación
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
 ---

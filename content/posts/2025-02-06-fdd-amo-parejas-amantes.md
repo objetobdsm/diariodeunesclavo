@@ -6,7 +6,7 @@ permalink: /2025/02/fdd-amo-parejas-amantes.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

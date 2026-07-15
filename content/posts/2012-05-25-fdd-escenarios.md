@@ -4,7 +4,7 @@ title: "FdD escenarios"
 date: 2012-05-25 07:41:00 +0000
 permalink: /2012/05/fdd-escenarios.html
 tags:
-  - amos
+  - Amos
   - FdD
 ---
 

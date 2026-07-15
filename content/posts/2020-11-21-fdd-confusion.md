@@ -5,7 +5,7 @@ date: 2020-11-21 11:25:00 +0000
 permalink: /2020/11/fdd-confusion.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

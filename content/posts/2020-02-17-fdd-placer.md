@@ -5,7 +5,7 @@ date: 2020-02-17 18:05:00 +0000
 permalink: /2020/02/fdd-placer.html
 tags:
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

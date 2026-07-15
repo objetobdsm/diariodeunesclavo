@@ -5,7 +5,7 @@ date: 2011-09-02 09:01:00 +0000
 permalink: /2011/09/desde-otro-angulo.html
 tags:
   - leather
-  - imagenes
+  - imágenes
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

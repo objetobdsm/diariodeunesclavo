@@ -5,7 +5,7 @@ date: 2025-09-24 05:04:00 +0000
 permalink: /2025/09/fdd-caricias-con-sentido.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - tortura
 ---
 

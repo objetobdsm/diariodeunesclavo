@@ -5,7 +5,7 @@ date: 2015-06-27 08:21:00 +0000
 permalink: /2015/06/fdd-asimetria.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2012-10-31 06:43:00 +0000
 permalink: /2012/10/fdd-necesidades.html
 tags:
   - esclavos
-  - sumision
+  - sumisión
   - FdD
 ---
 

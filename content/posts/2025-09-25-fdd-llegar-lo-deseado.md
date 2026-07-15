@@ -5,7 +5,7 @@ date: 2025-09-25 05:04:00 +0000
 permalink: /2025/09/fdd-llegar-lo-deseado.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
   - botas
 ---

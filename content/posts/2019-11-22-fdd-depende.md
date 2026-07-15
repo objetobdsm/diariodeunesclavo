@@ -6,7 +6,7 @@ permalink: /2019/11/fdd-depende.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - jaulas
 ---
 

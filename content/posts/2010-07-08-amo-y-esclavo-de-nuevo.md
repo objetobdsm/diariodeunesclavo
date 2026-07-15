@@ -4,9 +4,9 @@ title: "amo y esclavo de nuevo"
 date: 2010-07-08 17:03:00 +0000
 permalink: /2010/07/amo-y-esclavo-de-nuevo.html
 tags:
-  - imagenes
+  - imágenes
   - leather
-  - sumision
+  - sumisión
 ---
 
 <a href="/uploads/d2/36/d2365f1d6b23ef15c65a409150b794f7350cf16418e8288d91f8bb8f55b5a5a0.jpg).jpg" onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}" style="clear: left; float: left; margin-bottom: 1em; margin-right: 1em;"><img alt="" border="0" height="640" id="BLOGGER_PHOTO_ID_5440387961711770402" src="/uploads/d2/36/d2365f1d6b23ef15c65a409150b794f7350cf16418e8288d91f8bb8f55b5a5a0.jpg).jpg" style="display: block; height: 320px; margin: 0px auto 10px; text-align: center; width: 240px;" width="480" /></a><br />

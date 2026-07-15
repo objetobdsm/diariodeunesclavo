@@ -4,7 +4,7 @@ title: "FdD deshumanización"
 date: 2017-01-25 05:35:00 +0000
 permalink: /2017/01/fdd-deshumanizacion.html
 tags:
-  - despersonalizacion
+  - despersonalización
   - FdD
   - dog-training
   - deshumanización

@@ -4,7 +4,7 @@ title: "FdD combinando fantasía y realidad"
 date: 2013-06-02 07:41:00 +0000
 permalink: /2013/06/fdd-combinando-fantasia-y-realidad.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

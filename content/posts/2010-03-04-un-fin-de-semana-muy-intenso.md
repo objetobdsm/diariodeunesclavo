@@ -4,7 +4,7 @@ title: "un fin de semana muy intenso"
 date: 2010-03-04 20:53:00 +0000
 permalink: /2010/03/un-fin-de-semana-muy-intenso.html
 tags:
-  - cronica
+  - crónica
   - sesiones
 ---
 

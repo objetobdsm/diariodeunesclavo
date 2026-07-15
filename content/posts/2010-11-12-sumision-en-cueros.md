@@ -4,7 +4,7 @@ title: "sumisión en cueros"
 date: 2010-11-12 19:36:00 +0000
 permalink: /2010/11/sumision-en-cueros.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

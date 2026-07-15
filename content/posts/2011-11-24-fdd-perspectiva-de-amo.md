@@ -5,7 +5,7 @@ date: 2011-11-24 06:44:00 +0000
 permalink: /2011/11/fdd-perspectiva-de-amo.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

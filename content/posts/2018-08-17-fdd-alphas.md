@@ -5,8 +5,8 @@ date: 2018-08-17 18:07:00 +0000
 permalink: /2018/08/fdd-alphas.html
 tags:
   - FdD
-  - dominacion
-  - amos
+  - dominación
+  - Amos
   - leather
 ---
 

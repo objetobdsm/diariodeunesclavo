@@ -6,7 +6,7 @@ permalink: /2016/02/fdd-vueltas-con-la-pornografia.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

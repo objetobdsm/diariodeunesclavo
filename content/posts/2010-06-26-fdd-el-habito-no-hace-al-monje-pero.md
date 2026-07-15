@@ -4,7 +4,7 @@ title: "FdD el hábito no hace al monje pero...."
 date: 2010-06-26 04:29:00 +0000
 permalink: /2010/06/fdd-el-habito-no-hace-al-monje-pero.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

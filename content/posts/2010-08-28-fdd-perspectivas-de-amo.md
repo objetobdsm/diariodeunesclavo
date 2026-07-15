@@ -4,7 +4,7 @@ title: "FdD perspectivas de AMO"
 date: 2010-08-28 06:48:00 +0000
 permalink: /2010/08/fdd-perspectivas-de-amo.html
 tags:
-  - imagenes
+  - imágenes
   - esclavos
 ---
 

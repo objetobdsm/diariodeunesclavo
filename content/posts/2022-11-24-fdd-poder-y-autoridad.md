@@ -5,9 +5,9 @@ date: 2022-11-24 11:32:00 +0000
 permalink: /2022/11/fdd-poder-y-autoridad.html
 tags:
   - FdD
-  - policia
-  - dominacion
-  - sumision
+  - policía
+  - dominación
+  - sumisión
   - leather
 ---
 

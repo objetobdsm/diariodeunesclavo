@@ -5,7 +5,7 @@ date: 2011-09-17 18:54:00 +0000
 permalink: /2011/09/botas-de-perro.html
 tags:
   - botas
-  - imagenes propias
+  - imágenes propias
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/3c/a3/3ca3dc3514b226e52f6efdb1d7b4ae750a5d193b73b074c01319edc0d0f82d9f.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="300" src="/uploads/c0/3b/c03b01bad151dc51ebb17c7c0165d70a4630389615250c7c35c2fd66208a2709.jpg" width="400" /></a></div> estas son las botas que este perro llevaba puestas hoy.<br />

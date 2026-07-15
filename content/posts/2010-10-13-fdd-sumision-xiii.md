@@ -4,7 +4,7 @@ title: "FdD sumisión XIII"
 date: 2010-10-13 05:24:00 +0000
 permalink: /2010/10/fdd-sumision-xiii.html
 tags:
-  - imagenes
+  - imágenes
   - encierro
   - leather
 ---

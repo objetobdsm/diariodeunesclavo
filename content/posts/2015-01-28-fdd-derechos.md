@@ -5,7 +5,7 @@ date: 2015-01-28 07:09:00 +0000
 permalink: /2015/01/fdd-derechos.html
 tags:
   - FdD
-  - policia
+  - policía
   - leather
 ---
 

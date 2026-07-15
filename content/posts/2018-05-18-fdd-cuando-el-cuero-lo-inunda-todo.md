@@ -6,7 +6,7 @@ permalink: /2018/05/fdd-cuando-el-cuero-lo-inunda-todo.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

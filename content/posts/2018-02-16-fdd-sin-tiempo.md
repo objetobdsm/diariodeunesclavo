@@ -5,7 +5,7 @@ date: 2018-02-16 07:31:00 +0000
 permalink: /2018/02/fdd-sin-tiempo.html
 tags:
   - capucha
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - latex

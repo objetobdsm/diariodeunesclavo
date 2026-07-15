@@ -4,7 +4,7 @@ title: "FdD dueño del mundo"
 date: 2013-08-31 09:28:00 +0000
 permalink: /2013/08/fdd-dueno-del-mundo.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

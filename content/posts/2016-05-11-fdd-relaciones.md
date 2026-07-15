@@ -6,7 +6,7 @@ permalink: /2016/05/fdd-relaciones.html
 tags:
   - bondage
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

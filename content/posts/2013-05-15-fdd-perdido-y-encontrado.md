@@ -6,7 +6,7 @@ permalink: /2013/05/fdd-perdido-y-encontrado.html
 tags:
   - esclavos
   - público
-  - amos
+  - Amos
   - FdD
 ---
 

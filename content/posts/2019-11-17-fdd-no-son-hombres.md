@@ -6,7 +6,7 @@ permalink: /2019/11/fdd-no-son-hombres.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

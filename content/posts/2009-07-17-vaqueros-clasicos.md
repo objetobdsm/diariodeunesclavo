@@ -4,7 +4,7 @@ title: "¿vaqueros clásicos?"
 date: 2009-07-17 04:13:00 +0000
 permalink: /2009/07/vaqueros-clasicos.html
 tags:
-  - imagenes
+  - imágenes
   - vaqueros
 ---
 

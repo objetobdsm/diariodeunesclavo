@@ -6,7 +6,7 @@ permalink: /2019/01/fdd-humillaciones.html
 tags:
   - humillación
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <br />

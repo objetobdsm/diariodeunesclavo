@@ -4,7 +4,7 @@ title: "algo de la vida real"
 date: 2008-09-01 10:40:00 +0000
 permalink: /2008/09/algo-de-la-vida-real.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

@@ -6,7 +6,7 @@ permalink: /2016/01/fdd-diferencias-de-propiedades.html
 tags:
   - bondage
   - capucha
-  - despersonalizacion
+  - despersonalización
   - FdD
   - cadenas
 ---

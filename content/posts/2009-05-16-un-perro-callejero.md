@@ -5,7 +5,7 @@ date: 2009-05-16 08:17:00 +0000
 permalink: /2009/05/un-perro-callejero.html
 tags:
   - dolor
-  - dominacion
+  - dominación
   - comunicados
 ---
 

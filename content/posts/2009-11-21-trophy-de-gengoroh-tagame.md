@@ -4,7 +4,7 @@ title: "trophy de gengoroh tagame"
 date: 2009-11-21 20:00:00 +0000
 permalink: /2009/11/trophy-de-gengoroh-tagame.html
 tags:
-  - imagenes
+  - imágenes
   - tagame
   - comics
 ---

@@ -5,7 +5,7 @@ date: 2010-08-14 09:56:00 +0000
 permalink: /2010/08/fdd-un-solar.html
 tags:
   - dog-training
-  - imagenes
+  - imágenes
   - leather
 ---
 

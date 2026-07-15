@@ -6,7 +6,7 @@ permalink: /2025/10/fdd-enfrentarse-o-huir.html
 tags:
   - FdD
   - latex
-  - sumision
+  - sumisión
   - deshumanización
 ---
 

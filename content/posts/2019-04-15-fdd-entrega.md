@@ -5,7 +5,7 @@ date: 2019-04-15 08:51:00 +0000
 permalink: /2019/04/fdd-entrega.html
 tags:
   - FdD
-  - dominacion
+  - dominación
   - leather
 ---
 

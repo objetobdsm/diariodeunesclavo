@@ -6,7 +6,7 @@ permalink: /2025/04/fdd-imaginar.html
 tags:
   - FdD
   - leather
-  - amos
+  - Amos
   - botas
 ---
 

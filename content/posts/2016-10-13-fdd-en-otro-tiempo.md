@@ -5,7 +5,7 @@ date: 2016-10-13 07:28:00 +0000
 permalink: /2016/10/fdd-en-otro-tiempo.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

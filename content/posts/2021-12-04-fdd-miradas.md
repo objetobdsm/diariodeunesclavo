@@ -5,7 +5,7 @@ date: 2021-12-04 14:35:00 +0000
 permalink: /2021/12/fdd-miradas.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2018-03-19 07:40:00 +0000
 permalink: /2018/03/fdd-fragilidad.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

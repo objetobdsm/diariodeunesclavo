@@ -4,7 +4,7 @@ title: "FdD veneración en latex"
 date: 2010-06-25 04:28:00 +0000
 permalink: /2010/06/fdd-veneracion-en-latex.html
 tags:
-  - imagenes
+  - imágenes
   - latex
   - capucha
 ---

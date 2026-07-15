@@ -4,7 +4,7 @@ title: "FdD segundas pieles"
 date: 2010-06-27 04:30:00 +0000
 permalink: /2010/06/fdd-segundas-pieles.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

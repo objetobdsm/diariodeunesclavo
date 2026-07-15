@@ -5,7 +5,7 @@ date: 2016-05-29 06:01:00 +0000
 permalink: /2016/05/fdd-reconocer.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

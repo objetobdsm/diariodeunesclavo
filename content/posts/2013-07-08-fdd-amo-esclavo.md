@@ -5,7 +5,7 @@ date: 2013-07-08 08:05:00 +0000
 permalink: /2013/07/fdd-amo-esclavo.html
 tags:
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

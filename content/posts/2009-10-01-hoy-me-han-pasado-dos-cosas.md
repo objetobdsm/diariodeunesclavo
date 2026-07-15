@@ -5,7 +5,7 @@ date: 2009-10-01 22:28:00 +0000
 permalink: /2009/10/hoy-me-han-pasado-dos-cosas.html
 tags:
   - personal
-  - dominacion
+  - dominación
   - castidad
 ---
 

@@ -5,7 +5,7 @@ date: 2023-01-06 10:43:00 +0000
 permalink: /2023/01/fdd-poderes.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

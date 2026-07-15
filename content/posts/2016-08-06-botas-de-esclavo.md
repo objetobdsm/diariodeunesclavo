@@ -5,7 +5,7 @@ date: 2016-08-06 23:30:00 +0000
 permalink: /2016/08/botas-de-esclavo.html
 tags:
   - botas
-  - imagenes propias
+  - imágenes propias
   - castidad
 ---
 

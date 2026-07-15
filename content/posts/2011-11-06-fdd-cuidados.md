@@ -6,7 +6,7 @@ permalink: /2011/11/fdd-cuidados.html
 tags:
   - propiedad
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

@@ -5,7 +5,7 @@ date: 2022-09-08 06:19:00 +0000
 permalink: /2022/09/fdd-cazadores.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

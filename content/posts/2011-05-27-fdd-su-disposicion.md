@@ -6,7 +6,7 @@ permalink: /2011/05/fdd-su-disposicion.html
 tags:
   - bondage
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

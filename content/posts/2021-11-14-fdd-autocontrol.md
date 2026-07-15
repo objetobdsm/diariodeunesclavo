@@ -5,7 +5,7 @@ date: 2021-11-14 06:37:00 +0000
 permalink: /2021/11/fdd-autocontrol.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2020-01-26 19:58:00 +0000
 permalink: /2020/01/fdd-sumision-presente.html
 tags:
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

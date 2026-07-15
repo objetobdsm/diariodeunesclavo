@@ -6,7 +6,7 @@ permalink: /2020/07/fdd-desde-el-silencio.html
 tags:
   - FdD
   - cadenas
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

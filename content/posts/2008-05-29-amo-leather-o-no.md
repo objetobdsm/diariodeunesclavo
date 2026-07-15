@@ -4,7 +4,7 @@ title: "amo leather ¿o no?"
 date: 2008-05-29 15:38:00 +0000
 permalink: /2008/03/amo-leather-o-no.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

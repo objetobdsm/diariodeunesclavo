@@ -4,7 +4,7 @@ title: "¿quien dice que no es posible?"
 date: 2012-12-21 18:39:00 +0000
 permalink: /2012/12/quien-dice-que-no-es-posible.html
 tags:
-  - imagenes
+  - imágenes
   - jaulas
 ---
 

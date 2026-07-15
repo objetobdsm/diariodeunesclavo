@@ -5,7 +5,7 @@ date: 2020-02-06 19:35:00 +0000
 permalink: /2020/02/fdd-contextos.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

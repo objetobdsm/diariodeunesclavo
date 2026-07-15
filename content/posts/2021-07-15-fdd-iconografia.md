@@ -6,7 +6,7 @@ permalink: /2021/07/fdd-iconografia.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

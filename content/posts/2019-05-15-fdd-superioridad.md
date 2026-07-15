@@ -5,7 +5,7 @@ date: 2019-05-15 10:45:00 +0000
 permalink: /2019/05/fdd-superioridad.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

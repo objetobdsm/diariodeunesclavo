@@ -5,7 +5,7 @@ date: 2016-08-24 07:26:00 +0000
 permalink: /2016/08/fdd-necesario.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - cadenas
 ---
 

@@ -6,7 +6,7 @@ permalink: /2016/01/fdd-entrenamiento.html
 tags:
   - capucha
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2017-05-26 08:17:00 +0000
 permalink: /2017/05/fdd-punto-de-partida.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

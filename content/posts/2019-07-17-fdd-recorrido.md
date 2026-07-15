@@ -5,7 +5,7 @@ date: 2019-07-17 19:57:00 +0000
 permalink: /2019/07/fdd-recorrido.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

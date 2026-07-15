@@ -5,7 +5,7 @@ date: 2018-08-22 18:09:00 +0000
 permalink: /2018/08/fdd-criadero-de-dominantes.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

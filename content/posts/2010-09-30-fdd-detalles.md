@@ -4,8 +4,8 @@ title: "FdD detalles"
 date: 2010-09-30 06:12:00 +0000
 permalink: /2010/09/fdd-detalles.html
 tags:
-  - imagenes
-  - amos
+  - imágenes
+  - Amos
   - leather
 ---
 

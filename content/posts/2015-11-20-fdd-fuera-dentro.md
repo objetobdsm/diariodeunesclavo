@@ -7,7 +7,7 @@ tags:
   - bondage
   - capucha
   - FdD
-  - sumision
+  - sumisión
   - privación sensorial
 ---
 

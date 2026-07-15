@@ -6,7 +6,7 @@ permalink: /2013/01/fdd-lugares.html
 tags:
   - esclavos
   - bondage
-  - amos
+  - Amos
   - FdD
 ---
 

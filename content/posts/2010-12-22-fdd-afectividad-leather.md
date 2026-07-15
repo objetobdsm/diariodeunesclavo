@@ -4,7 +4,7 @@ title: "FdD afectividad leather"
 date: 2010-12-22 05:53:00 +0000
 permalink: /2010/12/fdd-afectividad-leather.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

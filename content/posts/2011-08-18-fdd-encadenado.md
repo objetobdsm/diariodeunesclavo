@@ -4,7 +4,7 @@ title: "FdD encadenado"
 date: 2011-08-18 06:09:00 +0000
 permalink: /2011/08/fdd-encadenado.html
 tags:
-  - sumision
+  - sumisión
   - FdD
 ---
 

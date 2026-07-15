@@ -4,7 +4,7 @@ title: "entre capuchas"
 date: 2009-11-16 06:23:00 +0000
 permalink: /2009/09/entre-capuchas-anda-el-juego.html
 tags:
-  - imagenes
+  - imágenes
   - privación sensorial
 ---
 

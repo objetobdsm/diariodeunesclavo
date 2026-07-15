@@ -5,7 +5,7 @@ date: 2011-08-05 13:45:00 +0000
 permalink: /2011/08/las-nuevas-botas-de-este-perro.html
 tags:
   - botas
-  - imagenes propias
+  - imágenes propias
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/b2/f9/b2f9c865c6261a7cd4134cff4292432f5b8bc97c128cc202da5d1d49ef1ee75e.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="360" src="/uploads/76/ea/76ead52d3f26ee0cef934e74bc58b5171322380804a3b79753b4585ecf3dba56.jpg" width="640" /></a></div><br />

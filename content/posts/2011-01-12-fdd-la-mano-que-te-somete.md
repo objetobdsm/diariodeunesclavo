@@ -5,7 +5,7 @@ date: 2011-01-12 07:26:00 +0000
 permalink: /2011/01/fdd-la-mano-que-te-somete.html
 tags:
   - esclavitud
-  - sumision
+  - sumisión
   - FdD
 ---
 

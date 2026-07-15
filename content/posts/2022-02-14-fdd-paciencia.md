@@ -5,7 +5,7 @@ date: 2022-02-14 17:57:00 +0000
 permalink: /2022/02/fdd-paciencia.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

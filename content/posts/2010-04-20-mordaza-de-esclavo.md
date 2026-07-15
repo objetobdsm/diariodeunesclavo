@@ -4,9 +4,9 @@ title: "mordaza de esclavo"
 date: 2010-04-20 05:21:00 +0000
 permalink: /2010/04/mordaza-de-esclavo.html
 tags:
-  - imagenes
+  - imágenes
   - mordazas
-  - sumision
+  - sumisión
 ---
 
 <div style="text-align: justify;">un esclavo no debe hablar, a menos que su AMO lo desee. hablar es expresar la voluntad, tener voz, decir algo. un esclavo debe tender a hablar cada vez menos y obedecer más. y un AMO tiene el derecho de hacer que esto se cumpla, bien sea por las buenas o por las malas, porque el esclavo no tiene derecho a quejarse.</div><div style="text-align: justify;"><br />

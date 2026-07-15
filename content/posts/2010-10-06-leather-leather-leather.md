@@ -4,7 +4,7 @@ title: "leather, leather, leather"
 date: 2010-10-06 13:05:00 +0000
 permalink: /2010/10/leather-leather-leather.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

@@ -5,8 +5,8 @@ date: 2011-02-07 19:41:00 +0000
 permalink: /2011/02/mi-amo-me-guia.html
 tags:
   - obediencia
-  - amos
-  - sumision
+  - Amos
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/be/8a/be8aa4630c4022876fc489376783c7593673b002f5d49bf09c762c8e311c6cc9.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="640" src="/uploads/e0/38/e0383792a98e4582157002b8f7d0d7088e5028d1b4002ced5b8bd7d17b6fe844.jpg" width="457" /></a></div><div class="separator" style="clear: both; text-align: center;"><br />

@@ -6,7 +6,7 @@ permalink: /2018/05/fdd-camino-del-objeto.html
 tags:
   - bondage
   - objetificación
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
 ---

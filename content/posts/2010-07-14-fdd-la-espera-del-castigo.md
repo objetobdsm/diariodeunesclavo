@@ -5,7 +5,7 @@ date: 2010-07-14 19:38:00 +0000
 permalink: /2010/07/fdd-la-espera-del-castigo.html
 tags:
   - dolor
-  - imagenes
+  - imágenes
   - esclavitud
 ---
 

@@ -5,7 +5,7 @@ date: 2016-07-19 13:10:00 +0000
 permalink: /2016/07/fdd-venerar.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

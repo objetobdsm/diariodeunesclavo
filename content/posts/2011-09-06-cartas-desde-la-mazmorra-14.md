@@ -4,7 +4,7 @@ title: "cartas desde la mazmorra 14"
 date: 2011-09-06 15:14:00 +0000
 permalink: /2011/09/cartas-desde-la-mazmorra-14.html
 tags:
-  - teoria
+  - teoría
   - cartas
 ---
 

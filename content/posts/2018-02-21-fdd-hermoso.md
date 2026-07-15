@@ -5,7 +5,7 @@ date: 2018-02-21 06:11:00 +0000
 permalink: /2018/02/fdd-hermoso.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - castidad
 ---
 

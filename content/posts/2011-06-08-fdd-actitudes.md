@@ -5,7 +5,7 @@ date: 2011-06-08 05:51:00 +0000
 permalink: /2011/06/fdd-actitudes.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - leather
   - FdD
 ---

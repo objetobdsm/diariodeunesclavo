@@ -4,7 +4,7 @@ title: "FdD obediencia y sumisión"
 date: 2011-08-08 06:06:00 +0000
 permalink: /2011/08/fdd-obediencia-y-sumision.html
 tags:
-  - sumision
+  - sumisión
   - FdD
 ---
 

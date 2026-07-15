@@ -5,7 +5,7 @@ date: 2026-01-10 10:00:00 +0000
 permalink: 
 tags:
   - FdD
-  - mordaza
+  - mordazas
 ---
 ![Foto de dia](/uploads/2026/2026_01/2026_01_10.jpg)
 

@@ -5,7 +5,7 @@ date: 2013-05-25 07:15:00 +0000
 permalink: /2013/05/fdd-de-rodillas.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

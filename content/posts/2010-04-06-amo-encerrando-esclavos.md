@@ -4,7 +4,7 @@ title: "amo encerrando esclavos"
 date: 2010-04-06 07:52:00 +0000
 permalink: /2010/04/amo-encerrando-esclavos.html
 tags:
-  - imagenes
+  - imágenes
   - vida real
 ---
 

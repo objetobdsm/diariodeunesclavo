@@ -5,7 +5,7 @@ date: 2018-06-11 10:07:00 +0000
 permalink: /2018/06/fdd-sabiduria-escondida.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

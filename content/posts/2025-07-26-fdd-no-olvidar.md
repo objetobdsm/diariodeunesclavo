@@ -5,7 +5,7 @@ date: 2025-07-26 08:41:00 +0000
 permalink: /2025/07/fdd-no-olvidar.html
 tags:
   - FdD
-  - amos
+  - Amos
   - esclavos
   - leather
   - gimp

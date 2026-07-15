@@ -6,7 +6,7 @@ permalink: /2015/12/fdd-combinacion-de-contrarios.html
 tags:
   - bondage
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

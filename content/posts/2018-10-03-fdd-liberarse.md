@@ -5,7 +5,7 @@ date: 2018-10-03 07:02:00 +0000
 permalink: /2018/10/fdd-liberarse.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2011-05-16 04:06:00 +0000
 permalink: /2011/05/fdd-dando-placer.html
 tags:
   - humillación
-  - sumision
+  - sumisión
   - FdD
 ---
 

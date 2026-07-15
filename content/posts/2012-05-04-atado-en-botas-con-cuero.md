@@ -4,7 +4,7 @@ title: "atado en botas con cuero"
 date: 2012-05-04 08:39:00 +0000
 permalink: /2012/05/atado-en-botas-con-cuero.html
 tags:
-  - imagenes propias
+  - imágenes propias
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

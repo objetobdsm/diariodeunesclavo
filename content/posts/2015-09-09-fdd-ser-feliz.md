@@ -5,7 +5,7 @@ date: 2015-09-09 08:27:00 +0000
 permalink: /2015/09/fdd-ser-feliz.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

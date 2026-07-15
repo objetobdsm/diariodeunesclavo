@@ -6,7 +6,7 @@ permalink: /2018/11/fdd-cuestionamiento-social.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

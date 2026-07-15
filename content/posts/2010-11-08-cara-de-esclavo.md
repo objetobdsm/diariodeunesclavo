@@ -4,7 +4,7 @@ title: "cara de esclavo"
 date: 2010-11-08 18:36:00 +0000
 permalink: /2010/11/cara-de-esclavo.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - capucha
 ---
 

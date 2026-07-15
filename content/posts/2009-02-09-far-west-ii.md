@@ -5,7 +5,7 @@ date: 2009-02-09 06:29:00 +0000
 permalink: /2009/02/far-west-ii.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - bondage
   - leather
 ---

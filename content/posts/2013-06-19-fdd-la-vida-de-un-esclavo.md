@@ -5,7 +5,7 @@ date: 2013-06-19 05:15:00 +0000
 permalink: /2013/06/fdd-la-vida-de-un-esclavo.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

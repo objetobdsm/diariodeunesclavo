@@ -5,7 +5,7 @@ date: 2012-02-22 08:35:00 +0000
 permalink: /2012/02/fdd-orden-y-jerarquia.html
 tags:
   - botas
-  - dominacion
+  - dominación
   - leather
   - FdD
 ---

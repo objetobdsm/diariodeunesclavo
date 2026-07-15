@@ -5,7 +5,7 @@ date: 2019-03-03 17:55:00 +0000
 permalink: /2019/03/fdd-honor-privilegio-felicidad.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2010-05-02 05:44:00 +0000
 permalink: /2010/05/sirviendo-botas-1.html
 tags:
   - botas
-  - imagenes
+  - imágenes
 ---
 
 <a href="/uploads/a5/66/a566489818a616aeb62384a0b115a194977c93176e410ffaca2a17ddc5d39c24.jpg" onblur="try {parent.deselectBloggerImageGracefully();} catch(e) {}"><img alt="" border="0" height="300" id="BLOGGER_PHOTO_ID_5440383201291202322" src="/uploads/a5/66/a566489818a616aeb62384a0b115a194977c93176e410ffaca2a17ddc5d39c24.jpg" style="display: block; height: 240px; margin-bottom: 10px; margin-left: auto; margin-right: auto; margin-top: 0px; text-align: center; width: 320px;" width="400" /></a><br />

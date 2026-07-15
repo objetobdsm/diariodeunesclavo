@@ -5,7 +5,7 @@ date: 2015-10-07 07:57:00 +0000
 permalink: /2015/10/fdd-chulerias.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

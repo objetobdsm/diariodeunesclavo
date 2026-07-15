@@ -4,7 +4,7 @@ title: "disponible"
 date: 2010-07-28 09:15:00 +0000
 permalink: /2010/07/disponible.html
 tags:
-  - imagenes
+  - imágenes
   - mordazas
   - bondage
 ---

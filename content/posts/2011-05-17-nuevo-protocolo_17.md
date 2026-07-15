@@ -5,7 +5,7 @@ date: 2011-05-17 11:22:00 +0000
 permalink: /2011/05/nuevo-protocolo_17.html
 tags:
   - personal
-  - sumision
+  - sumisión
 ---
 
 <div style="text-align: justify;">mi AMO ya no es mi AMO, y no porque me haya condenado a la libertad o haya pasado algo extraño sino porque a partir de ahora desea que le llame "mi Dueño" y que utilice ese término para referirme a El. tiene varios títulos: Amo, Dueño, Señor, Maestro; y cada uno resalta una dimensión concreta de la relación D/s. al utilizar mi Dueño, estoy indicando más la condición de propiedad de este esclavo, que es además, la que más agrada a mi Amo.<br />

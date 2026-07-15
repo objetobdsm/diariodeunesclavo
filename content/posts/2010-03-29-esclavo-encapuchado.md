@@ -4,7 +4,7 @@ title: "esclavo encapuchado"
 date: 2010-03-29 19:30:00 +0000
 permalink: /2010/03/esclavo-encapuchado.html
 tags:
-  - imagenes
+  - imágenes
   - objetificación
   - capucha
 ---

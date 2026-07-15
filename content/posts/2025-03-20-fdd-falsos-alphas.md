@@ -5,7 +5,7 @@ date: 2025-03-20 10:03:00 +0000
 permalink: /2025/03/fdd-falsos-alphas.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

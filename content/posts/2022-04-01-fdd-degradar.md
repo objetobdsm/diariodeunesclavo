@@ -5,7 +5,7 @@ date: 2022-04-01 19:58:00 +0000
 permalink: /2022/04/fdd-degradar.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - castidad
 ---
 

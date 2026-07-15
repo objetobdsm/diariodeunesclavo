@@ -6,7 +6,7 @@ permalink: /2020/05/fdd-prototipos.html
 tags:
   - FdD
   - leather
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

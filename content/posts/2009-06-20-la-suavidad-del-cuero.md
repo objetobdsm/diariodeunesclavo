@@ -4,8 +4,8 @@ title: "la suavidad del cuero"
 date: 2009-06-20 04:44:00 +0000
 permalink: /2009/06/la-suavidad-del-cuero.html
 tags:
-  - imagenes
-  - dominacion
+  - imágenes
+  - dominación
   - leather
 ---
 

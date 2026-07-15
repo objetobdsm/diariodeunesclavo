@@ -5,7 +5,7 @@ date: 2010-01-13 17:38:00 +0000
 permalink: /2010/01/estaba-chateando.html
 tags:
   - lectores
-  - dominacion
+  - dominación
   - zapas
 ---
 

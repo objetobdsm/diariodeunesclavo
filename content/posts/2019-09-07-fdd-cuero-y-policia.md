@@ -5,7 +5,7 @@ date: 2019-09-07 10:44:00 +0000
 permalink: /2019/09/fdd-cuero-y-policia.html
 tags:
   - FdD
-  - policia
+  - policía
   - leather
 ---
 

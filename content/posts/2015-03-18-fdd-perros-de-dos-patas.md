@@ -4,7 +4,7 @@ title: "FdD perros de dos patas"
 date: 2015-03-18 09:59:00 +0000
 permalink: /2015/03/fdd-perros-de-dos-patas.html
 tags:
-  - despersonalizacion
+  - despersonalización
   - FdD
   - dog-training
 ---

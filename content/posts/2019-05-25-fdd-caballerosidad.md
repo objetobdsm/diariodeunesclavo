@@ -5,7 +5,7 @@ date: 2019-05-25 10:49:00 +0000
 permalink: /2019/05/fdd-caballerosidad.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

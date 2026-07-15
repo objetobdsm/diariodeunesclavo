@@ -7,7 +7,7 @@ tags:
   - FdD
   - bondage
   - leather
-  - sumision
+  - sumisión
   - despersonalización
   - deshumanización
   - esclavitud voluntaria

@@ -4,7 +4,7 @@ title: "FdD sufrimiento por obediencia"
 date: 2011-08-24 06:17:00 +0000
 permalink: /2011/08/fdd-sufrimiento-por-obediencia.html
 tags:
-  - sumision
+  - sumisión
   - FdD
 ---
 

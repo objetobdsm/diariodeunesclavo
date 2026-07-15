@@ -5,7 +5,7 @@ date: 2015-11-04 06:32:00 +0000
 permalink: /2015/11/fdd-verguenza.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

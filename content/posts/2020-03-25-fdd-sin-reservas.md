@@ -6,9 +6,9 @@ permalink: /2020/03/fdd-sin-reservas.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

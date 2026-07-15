@@ -5,7 +5,7 @@ date: 2013-01-23 10:41:00 +0000
 permalink: /2013/01/fdd-contradiccionesparadojas.html
 tags:
   - mazmorra
-  - sumision
+  - sumisión
   - FdD
 ---
 

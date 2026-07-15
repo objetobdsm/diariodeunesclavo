@@ -5,8 +5,8 @@ date: 2010-07-20 08:46:00 +0000
 permalink: /2010/07/fdd-policias.html
 tags:
   - botas
-  - imagenes
-  - policia
+  - imágenes
+  - policía
   - leather
 ---
 

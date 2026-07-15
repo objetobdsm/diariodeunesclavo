@@ -5,7 +5,7 @@ date: 2014-02-20 08:27:00 +0000
 permalink: /2014/02/fdd-reflejos.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

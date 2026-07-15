@@ -4,9 +4,9 @@ title: "FdD figuras autoritarias"
 date: 2012-02-03 07:08:00 +0000
 permalink: /2012/02/fdd-figuras-autoritarias.html
 tags:
-  - amos
+  - Amos
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

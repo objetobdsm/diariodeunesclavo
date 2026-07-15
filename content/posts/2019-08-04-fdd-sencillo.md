@@ -5,7 +5,7 @@ date: 2019-08-04 09:33:00 +0000
 permalink: /2019/08/fdd-sencillo.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

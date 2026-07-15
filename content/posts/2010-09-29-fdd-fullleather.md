@@ -4,8 +4,8 @@ title: "FdD fullleather"
 date: 2010-09-29 06:11:00 +0000
 permalink: /2010/09/fdd-fullleather.html
 tags:
-  - imagenes
-  - amos
+  - imágenes
+  - Amos
   - leather
 ---
 

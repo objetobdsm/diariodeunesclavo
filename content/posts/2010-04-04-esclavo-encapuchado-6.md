@@ -4,7 +4,7 @@ title: "esclavo encapuchado 6"
 date: 2010-04-04 07:47:00 +0000
 permalink: /2010/04/esclavo-encapuchado-6.html
 tags:
-  - imagenes
+  - imágenes
   - capucha
 ---
 

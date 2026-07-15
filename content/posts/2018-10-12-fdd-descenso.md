@@ -5,7 +5,7 @@ date: 2018-10-12 07:15:00 +0000
 permalink: /2018/10/fdd-descenso.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

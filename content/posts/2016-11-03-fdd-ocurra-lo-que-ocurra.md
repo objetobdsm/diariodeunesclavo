@@ -6,7 +6,7 @@ permalink: /2016/11/fdd-ocurra-lo-que-ocurra.html
 tags:
   - FdD
   - esclavitud voluntaria
-  - sumision
+  - sumisión
   - leather
 ---
 

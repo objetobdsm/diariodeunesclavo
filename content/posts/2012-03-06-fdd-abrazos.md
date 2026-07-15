@@ -5,7 +5,7 @@ date: 2012-03-06 07:12:00 +0000
 permalink: /2012/03/fdd-abrazos.html
 tags:
   - bondage
-  - sumision
+  - sumisión
   - FdD
 ---
 

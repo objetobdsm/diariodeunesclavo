@@ -6,7 +6,7 @@ permalink: /2012/05/fdd-posesion.html
 tags:
   - propiedad
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

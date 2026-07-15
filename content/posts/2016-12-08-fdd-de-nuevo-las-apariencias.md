@@ -5,7 +5,7 @@ date: 2016-12-08 07:21:00 +0000
 permalink: /2016/12/fdd-de-nuevo-las-apariencias.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

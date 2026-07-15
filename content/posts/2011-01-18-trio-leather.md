@@ -4,8 +4,8 @@ title: "trio leather"
 date: 2011-01-18 16:14:00 +0000
 permalink: /2011/01/trio-leather.html
 tags:
-  - imagenes
-  - dominacion
+  - imágenes
+  - dominación
   - leather
 ---
 

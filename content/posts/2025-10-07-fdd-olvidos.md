@@ -5,7 +5,7 @@ date: 2025-10-07 10:33:00 +0000
 permalink: /2025/10/fdd-olvidos.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - esclavitud
 ---
 

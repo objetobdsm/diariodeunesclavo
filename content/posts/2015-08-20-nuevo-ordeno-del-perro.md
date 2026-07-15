@@ -4,7 +4,7 @@ title: "nuevo ordeño del perro"
 date: 2015-08-20 15:56:00 +0000
 permalink: /2015/08/nuevo-ordeno-del-perro.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - castidad
 ---
 

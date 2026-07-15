@@ -4,7 +4,7 @@ title: "perro encuerado atado"
 date: 2012-04-20 16:55:00 +0000
 permalink: /2012/04/perro-encuerado-atado.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - bondage
   - leather
 ---

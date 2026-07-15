@@ -6,7 +6,7 @@ permalink: /2017/07/fdd-paciencia.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

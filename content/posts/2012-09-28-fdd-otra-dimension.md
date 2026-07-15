@@ -5,7 +5,7 @@ date: 2012-09-28 06:12:00 +0000
 permalink: /2012/09/fdd-otra-dimension.html
 tags:
   - latex
-  - sumision
+  - sumisión
   - FdD
 ---
 

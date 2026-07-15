@@ -6,7 +6,7 @@ permalink: /2016/12/fdd-locuras.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -6,7 +6,7 @@ permalink: /2020/11/fdd-similitud.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

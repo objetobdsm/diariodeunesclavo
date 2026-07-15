@@ -4,7 +4,7 @@ title: "FdD aspiraciones"
 date: 2016-01-03 08:43:00 +0000
 permalink: /2016/01/fdd-aspiraciones.html
 tags:
-  - despersonalizacion
+  - despersonalización
   - FdD
   - esclavitud voluntaria
   - deshumanización

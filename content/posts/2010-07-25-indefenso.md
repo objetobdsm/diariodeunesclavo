@@ -4,7 +4,7 @@ title: "indefenso"
 date: 2010-07-25 07:15:00 +0000
 permalink: /2010/07/indefenso.html
 tags:
-  - imagenes
+  - imágenes
   - bondage
   - leather
   - capucha

@@ -5,8 +5,8 @@ date: 2013-06-13 04:49:00 +0000
 permalink: /2013/06/fdd-normalidad-bdsm.html
 tags:
   - esclavos
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - FdD
 ---
 

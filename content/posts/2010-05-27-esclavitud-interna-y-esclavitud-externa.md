@@ -4,7 +4,7 @@ title: "esclavitud interna y esclavitud externa"
 date: 2010-05-27 14:51:00 +0000
 permalink: /2010/05/esclavitud-interna-y-esclavitud-externa.html
 tags:
-  - teoria
+  - teoría
   - esclavitud
 ---
 

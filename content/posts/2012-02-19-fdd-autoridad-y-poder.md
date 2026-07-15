@@ -4,7 +4,7 @@ title: "FdD autoridad y poder"
 date: 2012-02-19 08:15:00 +0000
 permalink: /2012/02/fdd-autoridad-y-poder.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

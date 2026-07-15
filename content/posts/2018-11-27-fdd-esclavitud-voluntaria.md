@@ -5,7 +5,7 @@ date: 2018-11-27 06:08:00 +0000
 permalink: /2018/11/fdd-esclavitud-voluntaria.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

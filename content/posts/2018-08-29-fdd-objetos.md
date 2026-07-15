@@ -5,7 +5,7 @@ date: 2018-08-29 18:39:00 +0000
 permalink: /2018/08/fdd-objetos.html
 tags:
   - bondage
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
 ---

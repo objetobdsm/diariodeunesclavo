@@ -5,7 +5,7 @@ date: 2025-06-24 07:53:00 +0000
 permalink: /2025/06/fdd-equivocados_24.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - cadenas
   - bondage
 ---

@@ -6,7 +6,7 @@ permalink: /2016/08/fdd-de-verano.html
 tags:
   - bondage
   - FdD
-  - momificacion
+  - momificación
   - latex
 ---
 

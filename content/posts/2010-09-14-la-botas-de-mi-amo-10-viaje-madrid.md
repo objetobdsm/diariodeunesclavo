@@ -6,7 +6,7 @@ permalink: /2010/09/la-botas-de-mi-amo-10-viaje-madrid.html
 tags:
   - botas
   - vida real
-  - imagenes propias
+  - imágenes propias
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/7d/be/7dbec88eb9b308a6d8448e541e0f32d4d974aa907339b9b7323bb931a3da43d7.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="300" src="/uploads/5e/88/5e88d5e4c7cda481afddb6af7842955bf98e6491120c854dd4605b3a915a3b31.jpg" width="400" /></a></div><div class="separator" style="clear: both; text-align: center;"><br />

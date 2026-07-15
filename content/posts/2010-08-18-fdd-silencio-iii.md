@@ -5,7 +5,7 @@ date: 2010-08-18 07:53:00 +0000
 permalink: /2010/08/fdd-silencio-iii.html
 tags:
   - esclavitud
-  - imagenes
+  - imágenes
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/14/7d/147d117e216b8caa82c5b0def9dfa68d04b26fbc7ed9d77bf27ccb61bfadeae1.jpg).jpg" imageanchor="1" style="clear: left; float: left; margin-bottom: 1em; margin-right: 1em;"><img border="0" height="400" src="/uploads/15/9f/159f09c1390f99a12e560469979e0450d63a8613ad9cb2ca980b8ca2aea24171.jpg" width="400" /></a></div><br />

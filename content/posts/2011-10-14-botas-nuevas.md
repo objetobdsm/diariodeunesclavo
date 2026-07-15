@@ -4,7 +4,7 @@ title: "botas nuevas"
 date: 2011-10-14 15:12:00 +0000
 permalink: /2011/10/botas-nuevas.html
 tags:
-  - imagenes propias
+  - imágenes propias
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/fa/be/fabe3915c46ce550682ceabba781b53c35cecf786cf43f90f40ebf2ce0ea4ee6.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="480" src="/uploads/b9/8c/b98ca2c0ca7a5e42f47f426bb6014bc6faa62b35cb3ced279240099135de891a.jpg" width="640" /></a></div><br />

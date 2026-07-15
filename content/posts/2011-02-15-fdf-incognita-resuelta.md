@@ -5,7 +5,7 @@ date: 2011-02-15 07:26:00 +0000
 permalink: /2011/02/fdf-incognita-resuelta.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - capucha
 ---
 

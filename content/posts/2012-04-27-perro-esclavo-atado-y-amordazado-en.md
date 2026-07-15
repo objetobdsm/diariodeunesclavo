@@ -4,7 +4,7 @@ title: "perro esclavo atado y amordazado en cuero y botas"
 date: 2012-04-27 15:38:00 +0000
 permalink: /2012/04/perro-esclavo-atado-y-amordazado-en.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - bondage
   - leather
 ---

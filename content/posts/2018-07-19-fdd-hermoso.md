@@ -6,7 +6,7 @@ permalink: /2018/07/fdd-hermoso.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -4,7 +4,7 @@ title: "¿pervertidos?"
 date: 2010-05-26 14:55:00 +0000
 permalink: /2010/05/pervertidos.html
 tags:
-  - teoria
+  - teoría
   - internet
 ---
 

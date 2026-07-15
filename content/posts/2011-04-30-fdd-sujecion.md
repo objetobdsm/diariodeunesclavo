@@ -5,7 +5,7 @@ date: 2011-04-30 04:44:00 +0000
 permalink: /2011/04/fdd-sujecion.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

@@ -5,7 +5,7 @@ date: 2008-10-28 04:49:00 +0000
 permalink: /2008/10/sin-palabras-i.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - leather
 ---
 

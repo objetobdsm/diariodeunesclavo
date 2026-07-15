@@ -6,7 +6,7 @@ permalink: /2022/11/fdd-nuevos-monjes.html
 tags:
   - celda
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -4,7 +4,7 @@ title: "FdD el objeto"
 date: 2018-12-23 10:13:00 +0000
 permalink: /2018/12/fdd-el-objeto.html
 tags:
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
 ---

@@ -5,7 +5,7 @@ date: 2011-04-02 06:14:00 +0000
 permalink: /2011/04/fdd-sin-desesperar.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

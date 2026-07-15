@@ -4,7 +4,7 @@ title: "almacenado"
 date: 2009-11-24 21:00:00 +0000
 permalink: /2009/11/almacenado.html
 tags:
-  - imagenes
+  - imágenes
   - mordazas
   - bondage
 ---

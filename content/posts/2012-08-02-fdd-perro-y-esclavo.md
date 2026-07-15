@@ -6,7 +6,7 @@ permalink: /2012/08/fdd-perro-y-esclavo.html
 tags:
   - dog-training
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

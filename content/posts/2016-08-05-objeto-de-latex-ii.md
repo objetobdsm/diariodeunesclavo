@@ -6,7 +6,7 @@ permalink: /2016/08/objeto-de-latex-ii.html
 tags:
   - botas
   - objetificación
-  - imagenes propias
+  - imágenes propias
   - FdD
   - latex
 ---

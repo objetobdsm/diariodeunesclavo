@@ -6,7 +6,7 @@ permalink: /2018/11/fdd-analisis-en-profundidad.html
 tags:
   - FdD
   - esclavitud voluntaria
-  - sumision
+  - sumisión
   - cadenas
 ---
 

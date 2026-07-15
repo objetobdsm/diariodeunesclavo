@@ -6,7 +6,7 @@ permalink: /2022/09/fdd-contrapunto.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

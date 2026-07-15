@@ -4,7 +4,7 @@ title: "por qué un AMO nunca necesita disculparse"
 date: 2010-06-18 08:15:00 +0000
 permalink: /2010/06/por-que-un-amo-nunca-necesita.html
 tags:
-  - sumision
+  - sumisión
   - blogs
 ---
 

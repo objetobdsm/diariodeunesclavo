@@ -5,7 +5,7 @@ date: 2016-06-26 12:22:00 +0000
 permalink: /2016/06/fdd-material-vs-actitud.html
 tags:
   - FdD
-  - amos
+  - Amos
   - latex
   - leather
 ---

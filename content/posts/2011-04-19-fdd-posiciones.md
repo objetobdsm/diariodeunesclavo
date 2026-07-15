@@ -6,7 +6,7 @@ permalink: /2011/04/fdd-posiciones.html
 tags:
   - esclavitud
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/24/11/2411691d53e61da9df29c092cfa98a4f417aa4c5af91e7aeb125db7993c551fd.jpg" imageanchor="1"><img src="/uploads/24/11/2411691d53e61da9df29c092cfa98a4f417aa4c5af91e7aeb125db7993c551fd.jpg" border="0" /></a></div>

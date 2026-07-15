@@ -5,7 +5,7 @@ date: 2011-04-03 20:15:00 +0000
 permalink: /2011/04/nada-nuevo.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - leather
 ---
 

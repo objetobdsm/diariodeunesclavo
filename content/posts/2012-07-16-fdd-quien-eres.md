@@ -4,7 +4,7 @@ title: "FdD ¿quien eres?"
 date: 2012-07-16 07:29:00 +0000
 permalink: /2012/07/fdd-quien-eres.html
 tags:
-  - dominacion
+  - dominación
   - FdD
 ---
 

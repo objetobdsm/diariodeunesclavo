@@ -5,7 +5,7 @@ date: 2012-08-23 06:37:00 +0000
 permalink: /2012/08/fdd-organizado.html
 tags:
   - latex
-  - sumision
+  - sumisión
   - FdD
 ---
 

@@ -6,7 +6,7 @@ permalink: /2015/08/fdd-poco-importa.html
 tags:
   - FdD
   - dog-training
-  - sumision
+  - sumisión
   - leather
 ---
 

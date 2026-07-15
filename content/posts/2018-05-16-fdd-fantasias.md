@@ -6,7 +6,7 @@ permalink: /2018/05/fdd-fantasias.html
 tags:
   - bondage
   - objetificación
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - jaulas

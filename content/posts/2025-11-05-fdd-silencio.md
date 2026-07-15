@@ -7,7 +7,7 @@ tags:
   - FdD
   - bondage
   - mordazas
-  - dominacion
+  - dominación
   - guantes
 ---
 

@@ -4,7 +4,7 @@ title: "FdD dignidad"
 date: 2019-01-20 13:38:00 +0000
 permalink: /2019/01/fdd-dignidad.html
 tags:
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - latex

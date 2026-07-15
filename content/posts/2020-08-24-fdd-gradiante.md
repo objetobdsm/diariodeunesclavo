@@ -5,7 +5,7 @@ date: 2020-08-24 08:13:00 +0000
 permalink: /2020/08/fdd-gradiante.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

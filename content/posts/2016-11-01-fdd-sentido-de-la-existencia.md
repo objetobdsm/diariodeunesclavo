@@ -5,7 +5,7 @@ date: 2016-11-01 07:07:00 +0000
 permalink: /2016/11/fdd-sentido-de-la-existencia.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -4,7 +4,7 @@ title: "el salvaje posmoderno"
 date: 2007-11-23 06:15:00 +0000
 permalink: /2007/11/el-salvaje-posmoderno.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

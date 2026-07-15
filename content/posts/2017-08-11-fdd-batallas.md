@@ -5,7 +5,7 @@ date: 2017-08-11 07:33:00 +0000
 permalink: /2017/08/fdd-batallas.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - jaulas
 ---
 

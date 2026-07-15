@@ -6,7 +6,7 @@ permalink: /2015/05/fdd-temblores.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

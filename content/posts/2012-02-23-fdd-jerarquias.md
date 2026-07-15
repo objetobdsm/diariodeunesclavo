@@ -4,8 +4,8 @@ title: "FdD jerarquías"
 date: 2012-02-23 07:48:00 +0000
 permalink: /2012/02/fdd-jerarquias.html
 tags:
-  - dominacion
-  - sumision
+  - dominación
+  - sumisión
   - FdD
 ---
 

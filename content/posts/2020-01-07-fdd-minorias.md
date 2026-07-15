@@ -6,9 +6,9 @@ permalink: /2020/01/fdd-minorias.html
 tags:
   - bondage
   - FdD
-  - amos
+  - Amos
   - leather
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

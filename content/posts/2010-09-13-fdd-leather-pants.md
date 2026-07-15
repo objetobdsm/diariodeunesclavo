@@ -4,7 +4,7 @@ title: "FdD leather pants"
 date: 2010-09-13 06:57:00 +0000
 permalink: /2010/09/fdd-leather-pants.html
 tags:
-  - imagenes
+  - imágenes
   - old guard
   - leather
 ---

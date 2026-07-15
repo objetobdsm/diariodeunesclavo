@@ -5,7 +5,7 @@ date: 2018-06-14 10:07:00 +0000
 permalink: /2018/06/fdd-silencio.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

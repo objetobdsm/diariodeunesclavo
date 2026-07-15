@@ -4,9 +4,9 @@ title: "FdD sumisión XXVII"
 date: 2010-10-27 05:45:00 +0000
 permalink: /2010/10/fdd-sumision-xxvii.html
 tags:
-  - imagenes
+  - imágenes
   - esclavos
-  - amos
+  - Amos
   - leather
 ---
 

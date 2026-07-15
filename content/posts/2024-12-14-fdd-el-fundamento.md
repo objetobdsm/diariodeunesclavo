@@ -6,8 +6,8 @@ permalink: /2024/12/fdd-el-fundamento.html
 tags:
   - esclavos
   - FdD
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - tortura
 ---
 

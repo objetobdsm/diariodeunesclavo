@@ -4,7 +4,7 @@ title: "FdD objetivo y realidad"
 date: 2017-02-05 06:36:00 +0000
 permalink: /2017/02/fdd-objetivo-y-realidad.html
 tags:
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - latex

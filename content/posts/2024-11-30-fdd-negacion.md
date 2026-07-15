@@ -5,7 +5,7 @@ date: 2024-11-30 09:39:00 +0000
 permalink: /2024/11/fdd-negacion.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

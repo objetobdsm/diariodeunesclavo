@@ -5,8 +5,8 @@ date: 2012-02-05 07:07:00 +0000
 permalink: /2012/02/fdd-perro-reales-sumision-real.html
 tags:
   - dog-training
-  - dominacion
-  - sumision
+  - dominación
+  - sumisión
   - FdD
 ---
 

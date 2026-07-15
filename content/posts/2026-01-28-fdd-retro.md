@@ -6,7 +6,7 @@ permalink:
 tags:
   - FdD
   - esclavos
-  - mordaza
+  - mordazas
   - capucha
   - bondage
 ---

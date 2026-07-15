@@ -5,7 +5,7 @@ date: 2025-12-05 10:45:00 +0000
 permalink: /2025/12/fdd-publico.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - esclavitud voluntaria
 ---
 

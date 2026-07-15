@@ -4,7 +4,7 @@ title: "sobre la educación"
 date: 2010-05-19 17:42:00 +0000
 permalink: /2010/05/sobre-la-educacion.html
 tags:
-  - sumision
+  - sumisión
   - old guard
 ---
 

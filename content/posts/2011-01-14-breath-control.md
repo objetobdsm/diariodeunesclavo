@@ -4,7 +4,7 @@ title: "breath control"
 date: 2011-01-14 16:14:00 +0000
 permalink: /2011/01/breath-control.html
 tags:
-  - imagenes
+  - imágenes
   - control respiración
 ---
 

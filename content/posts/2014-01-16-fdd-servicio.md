@@ -5,7 +5,7 @@ date: 2014-01-16 09:05:00 +0000
 permalink: /2014/01/fdd-servicio.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2019-01-15 13:16:00 +0000
 permalink: /2019/01/fdd-equilibrio-y-orden.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

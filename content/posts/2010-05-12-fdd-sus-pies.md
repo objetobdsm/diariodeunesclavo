@@ -5,7 +5,7 @@ date: 2010-05-12 04:17:00 +0000
 permalink: /2010/05/fdd-sus-pies.html
 tags:
   - botas
-  - amos
+  - Amos
   - esclavitud
 ---
 

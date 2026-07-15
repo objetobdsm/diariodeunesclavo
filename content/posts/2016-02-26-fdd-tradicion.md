@@ -6,7 +6,7 @@ permalink: /2016/02/fdd-tradicion.html
 tags:
   - FdD
   - old guard
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2024-12-04 07:03:00 +0000
 permalink: /2024/12/fdd-natural-o-cultural.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

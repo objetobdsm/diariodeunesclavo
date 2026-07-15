@@ -4,7 +4,7 @@ title: "FdD imagen perfecta"
 date: 2012-07-15 07:25:00 +0000
 permalink: /2012/07/fdd-imagen-perfecta.html
 tags:
-  - sumision
+  - sumisión
   - FdD
 ---
 

@@ -4,7 +4,7 @@ title: "FdD actitudes"
 date: 2013-03-12 07:09:00 +0000
 permalink: /2013/03/fdd-actitudes.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

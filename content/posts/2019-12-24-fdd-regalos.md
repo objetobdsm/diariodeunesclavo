@@ -5,7 +5,7 @@ date: 2019-12-24 18:59:00 +0000
 permalink: /2019/12/fdd-regalos.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

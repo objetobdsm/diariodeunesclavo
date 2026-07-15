@@ -4,8 +4,8 @@ title: "FdD cuero y edad"
 date: 2010-08-04 06:57:00 +0000
 permalink: /2010/08/fdd-cuero-y-edad.html
 tags:
-  - imagenes
-  - amos
+  - imágenes
+  - Amos
   - leather
 ---
 

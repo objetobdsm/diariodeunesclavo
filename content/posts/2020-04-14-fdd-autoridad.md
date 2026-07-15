@@ -5,7 +5,7 @@ date: 2020-04-14 08:48:00 +0000
 permalink: /2020/04/fdd-autoridad.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

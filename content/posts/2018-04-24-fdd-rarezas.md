@@ -5,7 +5,7 @@ date: 2018-04-24 07:17:00 +0000
 permalink: /2018/04/fdd-rarezas.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

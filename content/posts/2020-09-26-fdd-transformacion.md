@@ -6,7 +6,7 @@ permalink: /2020/09/fdd-transformacion.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

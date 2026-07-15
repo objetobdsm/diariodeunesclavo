@@ -5,7 +5,7 @@ date: 2014-05-21 07:31:00 +0000
 permalink: /2014/05/fdd-amo-joven.html
 tags:
   - botas
-  - amos
+  - Amos
   - leather
 ---
 

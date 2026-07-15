@@ -7,7 +7,7 @@ tags:
   - bondage
   - FdD
   - latex
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

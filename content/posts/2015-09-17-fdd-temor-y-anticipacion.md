@@ -5,7 +5,7 @@ date: 2015-09-17 09:09:00 +0000
 permalink: /2015/09/fdd-temor-y-anticipacion.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

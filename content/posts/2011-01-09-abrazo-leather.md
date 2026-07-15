@@ -4,7 +4,7 @@ title: "abrazo leather"
 date: 2011-01-09 16:29:00 +0000
 permalink: /2011/01/abrazo-leather.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

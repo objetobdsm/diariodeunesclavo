@@ -5,7 +5,7 @@ date: 2012-07-30 07:12:00 +0000
 permalink: /2012/07/fdd-obediencia-ciega.html
 tags:
   - esclavos
-  - sumision
+  - sumisión
   - FdD
 ---
 

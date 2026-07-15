@@ -5,7 +5,7 @@ date: 2016-06-18 11:50:00 +0000
 permalink: /2016/06/fdd-completa.html
 tags:
   - bondage
-  - despersonalizacion
+  - despersonalización
   - FdD
   - latex
   - privación sensorial

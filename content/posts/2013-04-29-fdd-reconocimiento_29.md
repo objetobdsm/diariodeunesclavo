@@ -5,7 +5,7 @@ date: 2013-04-29 06:40:00 +0000
 permalink: /2013/04/fdd-reconocimiento_29.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

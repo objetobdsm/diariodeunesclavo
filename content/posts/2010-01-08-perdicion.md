@@ -4,7 +4,7 @@ title: "perdición"
 date: 2010-01-08 22:51:00 +0000
 permalink: /2010/01/perdicion.html
 tags:
-  - amos
+  - Amos
   - esclavitud
 ---
 

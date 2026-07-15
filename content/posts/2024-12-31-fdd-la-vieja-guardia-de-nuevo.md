@@ -6,7 +6,7 @@ permalink: /2024/12/fdd-la-vieja-guardia-de-nuevo.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2018-09-17 08:48:00 +0000
 permalink: /2018/09/fdd-espiritual.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - leather
 ---
 

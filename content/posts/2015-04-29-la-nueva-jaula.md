@@ -4,7 +4,7 @@ title: "la nueva jaula"
 date: 2015-04-29 16:02:00 +0000
 permalink: /2015/04/la-nueva-jaula.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - castidad
 ---
 

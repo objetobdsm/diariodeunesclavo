@@ -6,7 +6,7 @@ permalink: /2025/06/fdd-por-los-poros.html
 tags:
   - FdD
   - leather
-  - amos
+  - Amos
   - latex
 ---
 

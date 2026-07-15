@@ -6,7 +6,7 @@ permalink: /2022/02/fdd-tiempo.html
 tags:
   - FdD
   - control
-  - sumision
+  - sumisión
   - leather
 ---
 

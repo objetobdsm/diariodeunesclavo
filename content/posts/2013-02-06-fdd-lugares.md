@@ -4,8 +4,8 @@ title: "FdD lugares"
 date: 2013-02-06 06:00:00 +0000
 permalink: /2013/02/fdd-lugares.html
 tags:
-  - dominacion
-  - sumision
+  - dominación
+  - sumisión
   - FdD
 ---
 

@@ -5,8 +5,8 @@ date: 2014-07-18 09:33:00 +0000
 permalink: /2014/07/fdd-masculinidades.html
 tags:
   - FdD
-  - dominacion
-  - sumision
+  - dominación
+  - sumisión
   - leather
 ---
 

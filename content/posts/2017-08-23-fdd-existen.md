@@ -5,7 +5,7 @@ date: 2017-08-23 06:35:00 +0000
 permalink: /2017/08/fdd-existen.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

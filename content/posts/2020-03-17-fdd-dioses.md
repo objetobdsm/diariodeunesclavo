@@ -5,7 +5,7 @@ date: 2020-03-17 19:25:00 +0000
 permalink: /2020/03/fdd-dioses.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

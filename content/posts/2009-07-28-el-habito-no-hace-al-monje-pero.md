@@ -4,7 +4,7 @@ title: "el hábito no hace al monje pero....."
 date: 2009-07-28 07:43:00 +0000
 permalink: /2009/07/el-habito-no-hace-al-monje-pero.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

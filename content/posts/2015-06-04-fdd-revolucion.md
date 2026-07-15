@@ -6,7 +6,7 @@ permalink: /2015/06/fdd-revolucion.html
 tags:
   - FdD
   - latex
-  - sumision
+  - sumisión
   - jaulas
 ---
 

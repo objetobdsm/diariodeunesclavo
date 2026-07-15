@@ -5,7 +5,7 @@ date: 2020-04-19 09:03:00 +0000
 permalink: /2020/04/fdd-tom-of-finland.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

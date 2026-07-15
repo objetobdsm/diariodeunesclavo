@@ -4,7 +4,7 @@ title: "FdD momificado en latex"
 date: 2011-12-03 07:44:00 +0000
 permalink: /2011/12/fdd-momificado-en-latex.html
 tags:
-  - momificacion
+  - momificación
   - latex
   - FdD
 ---

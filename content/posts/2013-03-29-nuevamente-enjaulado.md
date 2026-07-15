@@ -4,7 +4,7 @@ title: "nuevamente enjaulado"
 date: 2013-03-29 17:58:00 +0000
 permalink: /2013/03/nuevamente-enjaulado.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - castidad
 ---
 

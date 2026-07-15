@@ -4,7 +4,7 @@ title: "esclavo lederón amordazado"
 date: 2012-01-30 20:02:00 +0000
 permalink: /2012/01/esclavo-lederon-amordazado.html
 tags:
-  - imagenes
+  - imágenes
   - bondage
   - leather
 ---

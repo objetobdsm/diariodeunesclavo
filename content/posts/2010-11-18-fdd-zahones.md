@@ -4,7 +4,7 @@ title: "FdD zahones"
 date: 2010-11-18 06:37:00 +0000
 permalink: /2010/11/fdd-zahones.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

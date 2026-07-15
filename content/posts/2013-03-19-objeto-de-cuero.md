@@ -4,7 +4,7 @@ title: "objeto de cuero"
 date: 2013-03-19 20:32:00 +0000
 permalink: /2013/03/objeto-de-cuero.html
 tags:
-  - imagenes
+  - imágenes
   - objetificación
   - bondage
   - leather

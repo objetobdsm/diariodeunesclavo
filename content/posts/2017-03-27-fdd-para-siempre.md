@@ -6,7 +6,7 @@ permalink: /2017/03/fdd-para-siempre.html
 tags:
   - FdD
   - esclavitud voluntaria
-  - sumision
+  - sumisión
   - leather
 ---
 

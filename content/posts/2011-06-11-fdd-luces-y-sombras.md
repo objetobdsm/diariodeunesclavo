@@ -5,7 +5,7 @@ date: 2011-06-11 05:57:00 +0000
 permalink: /2011/06/fdd-luces-y-sombras.html
 tags:
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

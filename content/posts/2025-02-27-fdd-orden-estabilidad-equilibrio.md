@@ -5,7 +5,7 @@ date: 2025-02-27 09:24:00 +0000
 permalink: /2025/02/fdd-orden-estabilidad-equilibrio.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

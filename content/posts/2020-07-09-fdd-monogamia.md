@@ -5,7 +5,7 @@ date: 2020-07-09 09:49:00 +0000
 permalink: /2020/07/fdd-monogamia.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

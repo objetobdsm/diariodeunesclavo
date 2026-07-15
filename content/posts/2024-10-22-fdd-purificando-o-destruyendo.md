@@ -5,7 +5,7 @@ date: 2024-10-22 06:48:00 +0000
 permalink: /2024/10/fdd-purificando-o-destruyendo.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - esclavos
 ---
 

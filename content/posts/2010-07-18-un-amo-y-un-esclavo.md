@@ -6,7 +6,7 @@ permalink: /2010/07/un-amo-y-un-esclavo.html
 tags:
   - humillación
   - dog-training
-  - imagenes
+  - imágenes
   - leather
 ---
 

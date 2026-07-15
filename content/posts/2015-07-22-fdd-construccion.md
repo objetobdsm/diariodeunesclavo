@@ -6,7 +6,7 @@ permalink: /2015/07/fdd-construccion.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

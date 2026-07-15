@@ -4,7 +4,7 @@ title: "pride de gengoroh tagame"
 date: 2009-11-08 12:06:00 +0000
 permalink: /2009/11/pride-de-gengoroh-tagame.html
 tags:
-  - imagenes
+  - imágenes
   - tagame
   - comics
 ---

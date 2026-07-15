@@ -5,7 +5,7 @@ date: 2014-02-23 08:30:00 +0000
 permalink: /2014/02/fdd-castigo-y-temor.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

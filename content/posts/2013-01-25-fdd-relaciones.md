@@ -5,7 +5,7 @@ date: 2013-01-25 10:44:00 +0000
 permalink: /2013/01/fdd-relaciones.html
 tags:
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

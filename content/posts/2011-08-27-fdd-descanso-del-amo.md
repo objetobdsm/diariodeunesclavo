@@ -4,7 +4,7 @@ title: "FdD descanso del Amo"
 date: 2011-08-27 06:31:00 +0000
 permalink: /2011/08/fdd-descanso-del-amo.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

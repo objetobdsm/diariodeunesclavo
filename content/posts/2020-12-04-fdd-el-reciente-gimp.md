@@ -6,7 +6,7 @@ permalink: /2020/12/fdd-el-reciente-gimp.html
 tags:
   - gimp
   - FdD
-  - despersonalizacion
+  - despersonalización
   - deshumanización
 ---
 

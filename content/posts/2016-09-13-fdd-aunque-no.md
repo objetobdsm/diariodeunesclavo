@@ -6,7 +6,7 @@ permalink: /2016/09/fdd-aunque-no.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

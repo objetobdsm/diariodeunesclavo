@@ -6,7 +6,7 @@ permalink: /2015/03/fdd-perdicion.html
 tags:
   - bondage
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

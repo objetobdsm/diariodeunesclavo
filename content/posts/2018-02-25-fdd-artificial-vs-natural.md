@@ -6,7 +6,7 @@ permalink: /2018/02/fdd-artificial-vs-natural.html
 tags:
   - bondage
   - capucha
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - leather

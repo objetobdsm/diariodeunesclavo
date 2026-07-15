@@ -5,7 +5,7 @@ date: 2025-09-05 09:15:00 +0000
 permalink: /2025/09/fdd-mejores.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - bdsm
   - esclavitud
 ---

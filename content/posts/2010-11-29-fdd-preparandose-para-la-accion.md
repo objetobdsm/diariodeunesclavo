@@ -4,7 +4,7 @@ title: "FdD preparándose para la acción"
 date: 2010-11-29 06:25:00 +0000
 permalink: /2010/11/fdd-preparandose-para-la-accion.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

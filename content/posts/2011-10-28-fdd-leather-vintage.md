@@ -6,7 +6,7 @@ permalink: /2011/10/fdd-leather-vintage.html
 tags:
   - botas
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

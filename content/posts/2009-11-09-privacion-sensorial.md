@@ -4,7 +4,7 @@ title: "privación sensorial"
 date: 2009-11-09 05:53:00 +0000
 permalink: /2009/10/privacion-sensorial.html
 tags:
-  - imagenes
+  - imágenes
   - privación sensorial
 ---
 

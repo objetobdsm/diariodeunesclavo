@@ -5,7 +5,7 @@ date: 2012-08-25 09:36:00 +0000
 permalink: /2012/08/fdd-crueldad.html
 tags:
   - bondage
-  - sumision
+  - sumisión
   - FdD
 ---
 

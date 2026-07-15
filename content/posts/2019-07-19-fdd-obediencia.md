@@ -6,7 +6,7 @@ permalink: /2019/07/fdd-obediencia.html
 tags:
   - bondage
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

@@ -4,10 +4,10 @@ title: "FdD dominación psicológica"
 date: 2019-06-04 11:09:00 +0000
 permalink: /2019/06/fdd-dominacion-psicologica.html
 tags:
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -4,7 +4,7 @@ title: "FdD siempre hacia delante"
 date: 2011-07-03 05:22:00 +0000
 permalink: /2011/07/fdd-siempre-hacia-delante.html
 tags:
-  - sumision
+  - sumisión
   - FdD
 ---
 

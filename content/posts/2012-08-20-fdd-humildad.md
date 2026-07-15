@@ -5,7 +5,7 @@ date: 2012-08-20 07:40:00 +0000
 permalink: /2012/08/fdd-humildad.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

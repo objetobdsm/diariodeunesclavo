@@ -5,7 +5,7 @@ date: 2018-04-02 07:54:00 +0000
 permalink: /2018/04/fdd-niveles-y-apariencia.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

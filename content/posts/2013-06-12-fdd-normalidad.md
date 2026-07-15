@@ -5,8 +5,8 @@ date: 2013-06-12 04:48:00 +0000
 permalink: /2013/06/fdd-normalidad.html
 tags:
   - esclavos
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - FdD
 ---
 

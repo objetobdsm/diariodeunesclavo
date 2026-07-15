@@ -8,7 +8,7 @@ tags:
   - sumisión
   - esclavitud voluntaria
   - latex
-  - amos
+  - Amos
   - esclavos
 ---
 

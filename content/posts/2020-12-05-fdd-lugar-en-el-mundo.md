@@ -5,7 +5,7 @@ date: 2020-12-05 11:07:00 +0000
 permalink: /2020/12/fdd-lugar-en-el-mundo.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

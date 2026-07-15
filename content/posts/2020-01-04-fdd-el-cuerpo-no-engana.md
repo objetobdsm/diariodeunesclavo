@@ -5,7 +5,7 @@ date: 2020-01-04 19:33:00 +0000
 permalink: /2020/01/fdd-el-cuerpo-no-engana.html
 tags:
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

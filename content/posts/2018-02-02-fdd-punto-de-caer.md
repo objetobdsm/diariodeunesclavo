@@ -7,7 +7,7 @@ tags:
   - botas
   - FdD
   - old guard
-  - sumision
+  - sumisión
   - leather
 ---
 

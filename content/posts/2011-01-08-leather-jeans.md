@@ -5,7 +5,7 @@ date: 2011-01-08 16:30:00 +0000
 permalink: /2011/01/leather-jeans.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - leather
 ---
 

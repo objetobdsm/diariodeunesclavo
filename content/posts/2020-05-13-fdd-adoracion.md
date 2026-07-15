@@ -5,7 +5,7 @@ date: 2020-05-13 12:48:00 +0000
 permalink: /2020/05/fdd-adoracion.html
 tags:
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

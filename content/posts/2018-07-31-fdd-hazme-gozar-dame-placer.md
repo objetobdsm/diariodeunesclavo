@@ -5,7 +5,7 @@ date: 2018-07-31 11:03:00 +0000
 permalink: /2018/07/fdd-hazme-gozar-dame-placer.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

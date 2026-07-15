@@ -4,7 +4,7 @@ title: "esclavo encapuchado 3"
 date: 2010-03-31 15:50:00 +0000
 permalink: /2010/03/esclavo-encapuchado-3.html
 tags:
-  - imagenes
+  - imágenes
   - capucha
 ---
 

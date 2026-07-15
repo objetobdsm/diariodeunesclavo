@@ -5,7 +5,7 @@ date: 2013-06-15 06:51:00 +0000
 permalink: /2013/06/fdd-lugar-en-el-mundo.html
 tags:
   - botas
-  - amos
+  - Amos
   - leather
   - FdD
 ---

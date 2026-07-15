@@ -4,7 +4,7 @@ title: "esclavo en bondage"
 date: 2010-11-23 15:18:00 +0000
 permalink: /2010/11/esclavo-en-bondage.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - bondage
   - leather
   - capucha

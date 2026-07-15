@@ -5,8 +5,8 @@ date: 2021-07-20 16:33:00 +0000
 permalink: /2021/07/fdd-bares-y-locales.html
 tags:
   - FdD
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - leather
 ---
 

@@ -5,10 +5,10 @@ date: 2025-11-02 03:48:00 +0000
 permalink: /2025/11/fdd-en-contra.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
   - botas
-  - amos
+  - Amos
   - esclavos
 ---
 

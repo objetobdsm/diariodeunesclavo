@@ -6,7 +6,7 @@ permalink: /2017/03/fdd-para-los-inferiores.html
 tags:
   - moteros
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

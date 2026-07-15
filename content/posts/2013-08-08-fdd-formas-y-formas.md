@@ -5,7 +5,7 @@ date: 2013-08-08 08:17:00 +0000
 permalink: /2013/08/fdd-formas-y-formas.html
 tags:
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

@@ -6,8 +6,8 @@ permalink: /2018/04/fdd-equivocacion.html
 tags:
   - esclavos
   - FdD
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - leather
 ---
 

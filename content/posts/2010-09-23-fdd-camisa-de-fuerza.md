@@ -4,7 +4,7 @@ title: "FdD camisa de fuerza"
 date: 2010-09-23 06:05:00 +0000
 permalink: /2010/09/fdd-camisa-de-fuerza.html
 tags:
-  - imagenes
+  - imágenes
   - mordazas
   - leather
 ---

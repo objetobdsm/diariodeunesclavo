@@ -5,7 +5,7 @@ date: 2024-12-12 07:03:00 +0000
 permalink: /2024/12/fdd-arrodillarte-y-obedecer.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

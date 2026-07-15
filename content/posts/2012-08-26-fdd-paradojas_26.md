@@ -6,7 +6,7 @@ permalink: /2012/08/fdd-paradojas_26.html
 tags:
   - dog-training
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

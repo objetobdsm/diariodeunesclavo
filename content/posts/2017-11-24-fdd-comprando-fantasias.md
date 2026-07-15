@@ -5,9 +5,9 @@ date: 2017-11-24 08:00:00 +0000
 permalink: /2017/11/fdd-comprando-fantasias.html
 tags:
   - bondage
-  - despersonalizacion
+  - despersonalización
   - FdD
-  - momificacion
+  - momificación
   - deshumanización
   - privación sensorial
 ---

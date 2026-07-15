@@ -4,7 +4,7 @@ title: "leathermaster (sin palabras)"
 date: 2010-07-11 18:05:00 +0000
 permalink: /2010/07/leathermaster-sin-palabras.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

@@ -7,8 +7,8 @@ tags:
   - FdD
   - gimp
   - bondage
-  - jaula
-  - deshumanizacion
+  - jaulas
+  - deshumanización
 ---
 ![Foto de dia](/uploads/2026/2026_01/2026_01_11.jpg)
 

@@ -6,7 +6,7 @@ permalink: /2025/07/fdd-mirar-y-ver.html
 tags:
   - FdD
   - leather
-  - amos
+  - Amos
   - esclavos
 ---
 

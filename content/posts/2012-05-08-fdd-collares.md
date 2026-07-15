@@ -5,7 +5,7 @@ date: 2012-05-08 05:00:00 +0000
 permalink: /2012/05/fdd-collares.html
 tags:
   - propiedad
-  - sumision
+  - sumisión
   - FdD
 ---
 

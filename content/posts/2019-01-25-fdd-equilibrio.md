@@ -6,7 +6,7 @@ permalink: /2019/01/fdd-equilibrio.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -4,7 +4,7 @@ title: "reunión de esclavos"
 date: 2011-01-04 16:32:00 +0000
 permalink: /2011/01/reunion-de-esclavos.html
 tags:
-  - imagenes
+  - imágenes
   - esclavos
 ---
 

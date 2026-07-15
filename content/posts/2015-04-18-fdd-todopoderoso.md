@@ -6,7 +6,7 @@ permalink: /2015/04/fdd-todopoderoso.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

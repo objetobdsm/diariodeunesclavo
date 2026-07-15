@@ -5,7 +5,7 @@ date: 2018-11-21 05:54:00 +0000
 permalink: /2018/11/fdd-traspaso.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - castidad
 ---
 

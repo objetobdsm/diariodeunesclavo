@@ -6,7 +6,7 @@ permalink: /2020/06/fdd-adiccion.html
 tags:
   - FdD
   - dog-training
-  - sumision
+  - sumisión
   - leather
 ---
 

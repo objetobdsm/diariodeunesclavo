@@ -6,7 +6,7 @@ permalink: /2010/05/las-botas-de-mi-amo-2.html
 tags:
   - botas
   - vida real
-  - imagenes propias
+  - imágenes propias
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/4c/f0/4cf0dd7a22505c3ae58ab6617a3404c2d0dd027916fd543c0ccbfac7d3cdb893.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="300" src="/uploads/45/16/45163b5fab4c788f8c25d8ffa81b26f9e4de01e88b83b76ea179108fcca12b88.jpg" width="400" /></a></div><div style="text-align: justify;">siguiendo de nuevo las órdenes de mi AMO procedo a publicar una nueva relación de fotos hechas a su colección de botas. como se puede apreciar la mayoría son vaqueras, sendra concretamente. existen otro tipo de botas, pero sin duda las sendra son especiales, diferentes, distintas. y aunque no lo fueran a mi me lo parecerían, y sólo por un motivo: porque a mi AMO le gustan. ese puede ser el único motivo. </div><br />

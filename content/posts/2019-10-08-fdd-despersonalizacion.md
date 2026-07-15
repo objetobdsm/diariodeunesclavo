@@ -4,7 +4,7 @@ title: "FdD despersonalización"
 date: 2019-10-08 11:54:00 +0000
 permalink: /2019/10/fdd-despersonalizacion.html
 tags:
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - latex

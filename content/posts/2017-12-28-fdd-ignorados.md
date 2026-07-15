@@ -5,7 +5,7 @@ date: 2017-12-28 08:28:00 +0000
 permalink: /2017/12/fdd-ignorados.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

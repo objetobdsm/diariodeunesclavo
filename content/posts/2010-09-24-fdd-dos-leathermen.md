@@ -4,7 +4,7 @@ title: "FdD dos leathermen"
 date: 2010-09-24 06:06:00 +0000
 permalink: /2010/09/fdd-dos-leathermen.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

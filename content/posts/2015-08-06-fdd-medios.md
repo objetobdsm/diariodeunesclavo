@@ -5,7 +5,7 @@ date: 2015-08-06 06:40:00 +0000
 permalink: /2015/08/fdd-medios.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -6,7 +6,7 @@ permalink: /2011/12/fdd-obediencia.html
 tags:
   - latex
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

@@ -6,7 +6,7 @@ permalink: /2012/07/fdd-arrodillarte.html
 tags:
   - botas
   - vaqueros
-  - sumision
+  - sumisión
   - FdD
 ---
 

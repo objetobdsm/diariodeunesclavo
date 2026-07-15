@@ -6,7 +6,7 @@ permalink: /2019/08/fdd-profundizacion.html
 tags:
   - FdD
   - ws
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

@@ -5,7 +5,7 @@ date: 2016-09-25 06:30:00 +0000
 permalink: /2016/09/fdd-seguir.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

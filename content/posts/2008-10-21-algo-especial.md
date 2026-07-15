@@ -4,7 +4,7 @@ title: "algo especial"
 date: 2008-10-21 05:15:00 +0000
 permalink: /2008/10/algo-especial.html
 tags:
-  - imagenes
+  - imágenes
   - bondage
   - leather
 ---

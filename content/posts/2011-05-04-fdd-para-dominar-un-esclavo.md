@@ -4,7 +4,7 @@ title: "FdD para dominar a un esclavo"
 date: 2011-05-04 04:07:00 +0000
 permalink: /2011/05/fdd-para-dominar-un-esclavo.html
 tags:
-  - dominacion
+  - dominación
   - leather
   - FdD
 ---

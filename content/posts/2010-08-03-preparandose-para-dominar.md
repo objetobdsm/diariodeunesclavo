@@ -4,8 +4,8 @@ title: "preparándose para dominar"
 date: 2010-08-03 11:02:00 +0000
 permalink: /2010/08/preparandose-para-dominar.html
 tags:
-  - imagenes
-  - dominacion
+  - imágenes
+  - dominación
   - leather
 ---
 

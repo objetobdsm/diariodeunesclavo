@@ -6,7 +6,7 @@ permalink: /2016/02/fdd-superior.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

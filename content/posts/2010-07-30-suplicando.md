@@ -4,8 +4,8 @@ title: "suplicando"
 date: 2010-07-30 13:05:00 +0000
 permalink: /2010/07/suplicando.html
 tags:
-  - teoria
-  - imagenes
+  - teoría
+  - imágenes
   - identidad
 ---
 

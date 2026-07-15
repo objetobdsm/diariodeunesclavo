@@ -5,7 +5,7 @@ date: 2014-08-29 07:57:00 +0000
 permalink: /2014/08/fdd-interior-y-exterior.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

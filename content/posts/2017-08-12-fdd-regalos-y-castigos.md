@@ -5,7 +5,7 @@ date: 2017-08-12 16:33:00 +0000
 permalink: /2017/08/fdd-regalos-y-castigos.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - castidad
 ---
 

@@ -5,7 +5,7 @@ date: 2011-05-02 04:02:00 +0000
 permalink: /2011/05/fdd-amo-y-esclavo.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - leather
   - FdD
 ---

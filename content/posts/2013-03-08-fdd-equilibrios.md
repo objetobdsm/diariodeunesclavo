@@ -6,8 +6,8 @@ permalink: /2013/03/fdd-equilibrios.html
 tags:
   - botas
   - esclavos
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - FdD
 ---
 

@@ -6,7 +6,7 @@ permalink: /2025/05/fdd-claridad.html
 tags:
   - FdD
   - leather
-  - amos
+  - Amos
   - esclavos
 ---
 

@@ -5,7 +5,7 @@ date: 2015-12-21 07:18:00 +0000
 permalink: /2015/12/fdd-anticipacion.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

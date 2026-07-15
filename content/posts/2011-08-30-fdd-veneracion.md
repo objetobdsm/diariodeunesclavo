@@ -5,7 +5,7 @@ date: 2011-08-30 06:40:00 +0000
 permalink: /2011/08/fdd-veneracion.html
 tags:
   - esclavos
-  - sumision
+  - sumisión
   - FdD
 ---
 

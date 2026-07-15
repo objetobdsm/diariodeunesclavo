@@ -6,7 +6,7 @@ permalink: /2018/03/fdd-agujeros-negros.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

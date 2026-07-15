@@ -5,7 +5,7 @@ date: 2014-12-27 08:33:00 +0000
 permalink: /2014/12/fdd-orgulloso.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

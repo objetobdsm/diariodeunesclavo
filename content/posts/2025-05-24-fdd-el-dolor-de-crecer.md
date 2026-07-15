@@ -6,7 +6,7 @@ permalink: /2025/05/fdd-el-dolor-de-crecer.html
 tags:
   - FdD
   - leather
-  - dominacion
+  - dominación
   - tortura
 ---
 

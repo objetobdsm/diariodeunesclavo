@@ -4,7 +4,7 @@ title: "cadenas y candados"
 date: 2010-07-02 09:13:00 +0000
 permalink: /2010/07/cadenas-y-candados.html
 tags:
-  - sumision
+  - sumisión
   - perfiles
 ---
 

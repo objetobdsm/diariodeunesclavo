@@ -6,7 +6,7 @@ permalink: /2025/11/fdd-verguenza.html
 tags:
   - FdD
   - leather
-  - sumision
+  - sumisión
   - esclavitud
 ---
 

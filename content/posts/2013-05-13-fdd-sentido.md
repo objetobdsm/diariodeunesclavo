@@ -5,7 +5,7 @@ date: 2013-05-13 06:06:00 +0000
 permalink: /2013/05/fdd-sentido.html
 tags:
   - esclavos
-  - sumision
+  - sumisión
   - FdD
 ---
 

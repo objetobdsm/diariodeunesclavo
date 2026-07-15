@@ -4,7 +4,7 @@ title: "FdD prisionero"
 date: 2010-07-18 08:43:00 +0000
 permalink: /2010/07/fdd-prisionero.html
 tags:
-  - imagenes
+  - imágenes
   - esclavitud
   - privación sensorial
 ---

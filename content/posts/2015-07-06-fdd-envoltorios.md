@@ -6,7 +6,7 @@ permalink: /2015/07/fdd-envoltorios.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

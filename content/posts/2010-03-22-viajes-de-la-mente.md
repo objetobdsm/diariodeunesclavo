@@ -4,7 +4,7 @@ title: "viajes de la mente"
 date: 2010-03-22 05:39:00 +0000
 permalink: /2010/03/viajes-de-la-mente.html
 tags:
-  - amos
+  - Amos
   - vida real
 ---
 

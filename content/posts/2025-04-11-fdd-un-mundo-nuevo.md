@@ -5,7 +5,7 @@ date: 2025-04-11 17:09:00 +0000
 permalink: /2025/04/fdd-un-mundo-nuevo.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - botas
   - leather
 ---

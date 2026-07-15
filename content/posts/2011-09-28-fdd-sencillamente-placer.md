@@ -5,7 +5,7 @@ date: 2011-09-28 04:49:00 +0000
 permalink: /2011/09/fdd-sencillamente-placer.html
 tags:
   - guantes
-  - sumision
+  - sumisión
   - FdD
 ---
 

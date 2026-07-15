@@ -4,7 +4,7 @@ title: "FdD despersonalización / deshumanización"
 date: 2019-01-12 13:16:00 +0000
 permalink: /2019/01/fdd-despersonalizacion-deshumanizacion.html
 tags:
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
 ---

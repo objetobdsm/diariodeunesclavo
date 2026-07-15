@@ -7,7 +7,7 @@ tags:
   - esclavitud
   - identidad
   - latex
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/2b/29/2b2921ca1ba3e3e6522d242ba49c11a5a8036119506990efe26d1238d23e4bd5.jpg" imageanchor="1"><img height="640" src="/uploads/85/8f/858fb0976951b08991a7c92ae063ff80ef0cde97e0a8f5f4680e3f34596624e9.jpg" width="410" border="0" /></a></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: center">

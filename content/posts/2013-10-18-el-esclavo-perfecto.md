@@ -4,7 +4,7 @@ title: "el esclavo perfecto"
 date: 2013-10-18 11:21:00 +0000
 permalink: /2013/10/el-esclavo-perfecto.html
 tags:
-  - imagenes
+  - imágenes
   - mordazas
   - bondage
 ---

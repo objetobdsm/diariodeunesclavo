@@ -5,7 +5,7 @@ date: 2022-09-05 05:51:00 +0000
 permalink: /2022/09/fdd-autoridad.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

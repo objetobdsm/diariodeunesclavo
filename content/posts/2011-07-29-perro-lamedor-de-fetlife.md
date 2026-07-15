@@ -5,7 +5,7 @@ date: 2011-07-29 17:54:00 +0000
 permalink: /2011/07/perro-lamedor-de-fetlife.html
 tags:
   - dog-training
-  - imagenes propias
+  - imágenes propias
   - leather
 ---
 

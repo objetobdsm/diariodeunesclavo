@@ -5,8 +5,8 @@ date: 2013-06-05 07:41:00 +0000
 permalink: /2013/06/fdd-devocion.html
 tags:
   - esclavos
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - FdD
 ---
 

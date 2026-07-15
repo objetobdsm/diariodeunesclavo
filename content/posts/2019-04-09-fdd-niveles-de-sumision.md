@@ -6,7 +6,7 @@ permalink: /2019/04/fdd-niveles-de-sumision.html
 tags:
   - bondage
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

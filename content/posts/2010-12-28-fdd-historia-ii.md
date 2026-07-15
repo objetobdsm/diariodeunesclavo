@@ -5,7 +5,7 @@ date: 2010-12-28 07:11:00 +0000
 permalink: /2010/12/fdd-historia-ii.html
 tags:
   - moteros
-  - imagenes
+  - imágenes
   - leather
 ---
 

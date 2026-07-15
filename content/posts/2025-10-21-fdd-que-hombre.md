@@ -6,8 +6,8 @@ permalink: /2025/10/fdd-que-hombre.html
 tags:
   - FdD
   - leather
-  - dominacion
-  - sumision
+  - dominación
+  - sumisión
   - botas
   - guantes
 ---

@@ -6,7 +6,7 @@ permalink: /2020/06/fdd-desecho.html
 tags:
   - FdD
   - ws
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

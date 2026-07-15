@@ -8,7 +8,7 @@ tags:
   - esclavos
   - bondage
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

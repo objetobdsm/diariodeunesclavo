@@ -5,7 +5,7 @@ date: 2017-10-25 05:35:00 +0000
 permalink: /2017/10/fdd-en-contra.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

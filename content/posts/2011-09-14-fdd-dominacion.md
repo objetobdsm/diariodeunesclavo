@@ -4,9 +4,9 @@ title: "FdD dominación"
 date: 2011-09-14 05:36:00 +0000
 permalink: /2011/09/fdd-dominacion.html
 tags:
-  - dominacion
+  - dominación
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

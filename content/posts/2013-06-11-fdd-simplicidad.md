@@ -4,7 +4,7 @@ title: "FdD simplicidad"
 date: 2013-06-11 05:47:00 +0000
 permalink: /2013/06/fdd-simplicidad.html
 tags:
-  - sumision
+  - sumisión
   - FdD
 ---
 

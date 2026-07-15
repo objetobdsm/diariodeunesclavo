@@ -6,7 +6,7 @@ permalink: /2017/09/fdd-fundirse.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

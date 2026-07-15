@@ -6,7 +6,7 @@ permalink: /2019/03/fdd-cerca-y-lejos.html
 tags:
   - mordazas
   - capucha
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
 ---

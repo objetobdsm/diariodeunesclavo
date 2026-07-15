@@ -4,7 +4,7 @@ title: "FdD sin palabras"
 date: 2010-06-17 07:43:00 +0000
 permalink: /2010/06/fdd-sin-palabras.html
 tags:
-  - amos
+  - Amos
   - leather
 ---
 

@@ -4,7 +4,7 @@ title: "carteles propios"
 date: 2014-01-30 10:59:00 +0000
 permalink: /2014/01/carteles-propios.html
 tags:
-  - Imagen
+  - imágenes
   - carteles propios
 ---
 

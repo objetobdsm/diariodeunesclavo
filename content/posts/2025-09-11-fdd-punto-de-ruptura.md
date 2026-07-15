@@ -6,7 +6,7 @@ permalink: /2025/09/fdd-punto-de-ruptura.html
 tags:
   - FdD
   - esclavitud voluntaria
-  - sumision
+  - sumisión
   - obediencia
 ---
 

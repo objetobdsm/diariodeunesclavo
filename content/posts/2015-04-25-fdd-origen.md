@@ -6,7 +6,7 @@ permalink: /2015/04/fdd-origen.html
 tags:
   - humillación
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -4,7 +4,7 @@ title: "FdD situación actual"
 date: 2016-07-05 08:42:00 +0000
 permalink: /2016/07/fdd-situacion-actual.html
 tags:
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - leather

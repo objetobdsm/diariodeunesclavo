@@ -4,9 +4,9 @@ title: "FdD indefensión"
 date: 2010-08-11 04:44:00 +0000
 permalink: /2010/08/fdd-indefension.html
 tags:
-  - imagenes
+  - imágenes
   - bondage
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/97/68/97683e7c87e6d704f7d7934d177bb0b203d411ff52d3ef3db3af18d838f2e417.jpg).jpg" imageanchor="1" style="clear: left; float: left; margin-bottom: 1em; margin-right: 1em;"><img border="0" height="400" src="/uploads/3b/03/3b037561b4f0ffcbdbfba859fa12932da115995d6e716abadf5eee436ba36be7.jpg" width="266" /></a></div><br />

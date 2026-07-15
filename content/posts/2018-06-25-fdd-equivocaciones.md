@@ -5,7 +5,7 @@ date: 2018-06-25 10:25:00 +0000
 permalink: /2018/06/fdd-equivocaciones.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

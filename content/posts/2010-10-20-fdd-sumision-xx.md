@@ -5,7 +5,7 @@ date: 2010-10-20 06:19:00 +0000
 permalink: /2010/10/fdd-sumision-xx.html
 tags:
   - propiedad
-  - imagenes
+  - imágenes
   - esclavitud
 ---
 

@@ -4,7 +4,7 @@ title: "FdD ¿suplicar?"
 date: 2012-06-21 07:53:00 +0000
 permalink: /2012/06/fdd-suplicar.html
 tags:
-  - sumision
+  - sumisión
   - privación sensorial
   - FdD
 ---

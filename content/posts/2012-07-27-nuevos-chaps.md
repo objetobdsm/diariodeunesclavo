@@ -4,7 +4,7 @@ title: "nuevos chaps"
 date: 2012-07-27 09:45:00 +0000
 permalink: /2012/07/nuevos-chaps.html
 tags:
-  - imagenes propias
+  - imágenes propias
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

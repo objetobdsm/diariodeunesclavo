@@ -4,7 +4,7 @@ title: "lederón vintage"
 date: 2012-03-27 17:44:00 +0000
 permalink: /2012/03/lederon-vintage.html
 tags:
-  - imagenes
+  - imágenes
   - old guard
 ---
 

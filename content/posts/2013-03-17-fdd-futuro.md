@@ -5,7 +5,7 @@ date: 2013-03-17 08:39:00 +0000
 permalink: /2013/03/fdd-futuro.html
 tags:
   - encierro
-  - sumision
+  - sumisión
   - FdD
 ---
 

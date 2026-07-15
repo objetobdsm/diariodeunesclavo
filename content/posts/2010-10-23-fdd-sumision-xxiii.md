@@ -4,7 +4,7 @@ title: "FdD sumisión XXIII"
 date: 2010-10-23 05:42:00 +0000
 permalink: /2010/10/fdd-sumision-xxiii.html
 tags:
-  - imagenes
+  - imágenes
   - esclavos
   - leather
 ---

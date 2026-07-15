@@ -5,7 +5,7 @@ date: 2018-11-10 07:20:00 +0000
 permalink: /2018/11/fdd-alphas.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

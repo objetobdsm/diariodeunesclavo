@@ -5,7 +5,7 @@ date: 2025-04-30 07:20:00 +0000
 permalink: /2025/04/fdd-criterios.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
   - esclavitud
 ---

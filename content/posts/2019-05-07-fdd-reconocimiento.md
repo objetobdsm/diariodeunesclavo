@@ -4,7 +4,7 @@ title: "FdD reconocimiento"
 date: 2019-05-07 12:22:00 +0000
 permalink: /2019/05/fdd-reconocimiento.html
 tags:
-  - sumision
+  - sumisión
   - leather
 ---
 

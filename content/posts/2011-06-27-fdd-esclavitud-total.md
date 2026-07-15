@@ -5,7 +5,7 @@ date: 2011-06-27 05:50:00 +0000
 permalink: /2011/06/fdd-esclavitud-total.html
 tags:
   - esclavos
-  - sumision
+  - sumisión
   - FdD
 ---
 

@@ -5,7 +5,7 @@ date: 2022-08-12 10:27:00 +0000
 permalink: /2022/08/fdd-la-clave.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

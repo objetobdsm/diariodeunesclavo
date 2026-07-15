@@ -4,7 +4,7 @@ title: "crónica. llegada a madrid"
 date: 2011-02-11 12:36:00 +0000
 permalink: /2011/02/cronica-llegada-madrid.html
 tags:
-  - cronica
+  - crónica
   - sesiones
   - personal
 ---

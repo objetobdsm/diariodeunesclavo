@@ -5,8 +5,8 @@ date: 2018-07-23 10:51:00 +0000
 permalink: /2018/07/fdd-unidad.html
 tags:
   - FdD
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2013-08-19 07:10:00 +0000
 permalink: /2013/08/fdd-dualidad-versus-unidad.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

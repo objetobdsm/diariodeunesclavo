@@ -6,7 +6,7 @@ permalink: /2010/04/sus-botas-las-botas-que-lleva-este.html
 tags:
   - botas
   - vida real
-  - imagenes propias
+  - imágenes propias
 ---
 
 <div class="separator" style="clear: both; text-align: justify;">hoy he estado prácticamente todo el día en una celebración familiar. no quería renunciar a lo que soy así que me he puesto unas botas y, unos vaqueros y una camisa. sin dudarlo he llamado a mi AMO para decirle que hoy también le estaba obedeciendo ya que me ha ordenado que lleve botas siempre que sea posible, para así acordarme de EL y tenerlo presente. he sacado una foto con el móvil y se la he enviado.</div><div class="separator" style="clear: both; text-align: center;"><br />

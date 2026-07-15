@@ -5,7 +5,7 @@ date: 2020-06-05 10:00:00 +0000
 permalink: /2020/06/fdd-sumision_5.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

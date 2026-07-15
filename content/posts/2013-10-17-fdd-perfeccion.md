@@ -5,7 +5,7 @@ date: 2013-10-17 07:00:00 +0000
 permalink: /2013/10/fdd-perfeccion.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

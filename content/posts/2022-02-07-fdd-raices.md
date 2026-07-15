@@ -6,7 +6,7 @@ permalink: /2022/02/fdd-raices.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

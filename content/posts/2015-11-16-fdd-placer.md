@@ -5,7 +5,7 @@ date: 2015-11-16 07:06:00 +0000
 permalink: /2015/11/fdd-placer.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -4,7 +4,7 @@ title: "FdD sociedad jerarquizada"
 date: 2011-01-11 06:24:00 +0000
 permalink: /2011/01/fdd-sociedad-jerarquizada.html
 tags:
-  - dominacion
+  - dominación
   - FdD
 ---
 

@@ -6,7 +6,7 @@ permalink: /2014/10/fdd-en-la-cima.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2020-09-17 08:31:00 +0000
 permalink: /2020/09/fdd-elegante.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

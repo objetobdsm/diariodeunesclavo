@@ -4,7 +4,7 @@ title: "FdD bien sujeto"
 date: 2010-07-17 08:42:00 +0000
 permalink: /2010/07/fdd-bien-sujeto.html
 tags:
-  - imagenes
+  - imágenes
   - bondage
   - esclavitud
 ---

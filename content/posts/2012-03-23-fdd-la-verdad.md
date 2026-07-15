@@ -6,7 +6,7 @@ permalink: /2012/03/fdd-la-verdad.html
 tags:
   - bondage
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

@@ -5,7 +5,7 @@ date: 2016-11-08 11:08:00 +0000
 permalink: /2016/11/fdd-simbiosis-perfecta.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
   - jaulas
 ---

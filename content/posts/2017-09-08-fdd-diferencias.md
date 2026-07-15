@@ -5,7 +5,7 @@ date: 2017-09-08 06:46:00 +0000
 permalink: /2017/09/fdd-diferencias.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

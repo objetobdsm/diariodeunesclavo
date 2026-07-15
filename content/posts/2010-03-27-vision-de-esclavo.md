@@ -4,7 +4,7 @@ title: "visión de esclavo"
 date: 2010-03-27 08:07:00 +0000
 permalink: /2010/03/vision-de-esclavo.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

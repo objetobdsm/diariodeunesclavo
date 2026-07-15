@@ -5,7 +5,7 @@ date: 2012-09-04 07:52:00 +0000
 permalink: /2012/09/fdd-sumision-humildad-honestidad-y.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

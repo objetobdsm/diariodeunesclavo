@@ -5,7 +5,7 @@ date: 2012-02-04 07:06:00 +0000
 permalink: /2012/02/fdd-encuentra-los-errores.html
 tags:
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

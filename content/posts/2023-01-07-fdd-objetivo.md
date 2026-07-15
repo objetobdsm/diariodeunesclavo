@@ -5,7 +5,7 @@ date: 2023-01-07 10:44:00 +0000
 permalink: /2023/01/fdd-objetivo.html
 tags:
   - FdD
-  - despersonalizacion
+  - despersonalización
   - deshumanización
   - latex
   - jaulas

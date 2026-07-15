@@ -4,7 +4,7 @@ title: "la droga que anula la voluntad."
 date: 2009-12-23 18:13:00 +0000
 permalink: /2009/12/la-droga-que-anula-la-voluntad.html
 tags:
-  - sumision
+  - sumisión
   - estados alterados
   - drogas
 ---

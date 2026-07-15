@@ -5,8 +5,8 @@ date: 2020-01-28 20:01:00 +0000
 permalink: /2020/01/fdd-mensajes-contradictorios.html
 tags:
   - FdD
-  - alphas
-  - amos
+  - Alphas
+  - Amos
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

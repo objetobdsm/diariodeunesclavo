@@ -5,7 +5,7 @@ date: 2022-12-16 10:27:00 +0000
 permalink: /2022/12/fdd-conocidos.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

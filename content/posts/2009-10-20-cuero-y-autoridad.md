@@ -4,7 +4,7 @@ title: "cuero y autoridad"
 date: 2009-10-20 22:15:00 +0000
 permalink: /2009/10/cuero-y-autoridad.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

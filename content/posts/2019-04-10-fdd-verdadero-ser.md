@@ -4,7 +4,7 @@ title: "FdD verdadero ser"
 date: 2019-04-10 08:40:00 +0000
 permalink: /2019/04/fdd-verdadero-ser.html
 tags:
-  - despersonalizacion
+  - despersonalización
   - FdD
   - latex
 ---

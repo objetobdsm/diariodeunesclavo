@@ -4,8 +4,8 @@ title: "FdD mereces un castigo"
 date: 2010-09-20 06:03:00 +0000
 permalink: /2010/09/fdd-mereces-un-castigo.html
 tags:
-  - imagenes
-  - amos
+  - imágenes
+  - Amos
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2010-10-30 05:49:00 +0000
 permalink: /2010/10/fdd-sumision-xxx.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - leather
 ---
 

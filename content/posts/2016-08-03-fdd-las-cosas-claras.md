@@ -6,7 +6,7 @@ permalink: /2016/08/fdd-las-cosas-claras.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

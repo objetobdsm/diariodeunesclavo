@@ -5,7 +5,7 @@ date: 2009-10-06 11:06:00 +0000
 permalink: /2009/10/lthrbotero.html
 tags:
   - personal
-  - imagenes
+  - imágenes
   - esclavitud
 ---
 

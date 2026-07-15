@@ -4,7 +4,7 @@ title: "FdD encuentros"
 date: 2010-12-12 06:18:00 +0000
 permalink: /2010/12/fdd-encuentros.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

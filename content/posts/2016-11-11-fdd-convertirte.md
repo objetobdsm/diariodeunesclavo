@@ -6,7 +6,7 @@ permalink: /2016/11/fdd-convertirte.html
 tags:
   - mordazas
   - capucha
-  - despersonalizacion
+  - despersonalización
   - FdD
   - leather
 ---

@@ -4,7 +4,7 @@ title: "blanco y negro"
 date: 2008-01-09 05:41:00 +0000
 permalink: /2008/01/blanco-y-negro.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

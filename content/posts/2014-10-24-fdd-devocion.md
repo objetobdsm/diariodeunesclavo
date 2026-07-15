@@ -5,7 +5,7 @@ date: 2014-10-24 07:29:00 +0000
 permalink: /2014/10/fdd-devocion.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

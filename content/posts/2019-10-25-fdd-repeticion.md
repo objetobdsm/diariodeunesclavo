@@ -6,7 +6,7 @@ permalink: /2019/10/fdd-repeticion.html
 tags:
   - FdD
   - leather
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

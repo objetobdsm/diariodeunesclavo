@@ -4,8 +4,8 @@ title: "la resistencia es inútil."
 date: 2009-05-23 19:19:00 +0000
 permalink: /2009/05/la-resistencia-es-inutil.html
 tags:
-  - dominacion
-  - imagenes
+  - dominación
+  - imágenes
   - bondage
 ---
 

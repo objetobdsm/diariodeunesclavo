@@ -7,7 +7,7 @@ tags:
   - esclavos
   - guantes
   - FdD
-  - dominacion
+  - dominación
   - leather
 ---
 

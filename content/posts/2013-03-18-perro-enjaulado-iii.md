@@ -4,7 +4,7 @@ title: "perro enjaulado III"
 date: 2013-03-18 21:15:00 +0000
 permalink: /2013/03/perro-enjaulado-iii.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - castidad
 ---
 

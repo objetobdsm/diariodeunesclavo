@@ -4,7 +4,7 @@ title: "FdD uno gana uno pierde"
 date: 2013-08-27 09:20:00 +0000
 permalink: /2013/08/fdd-uno-gana-uno-pierde.html
 tags:
-  - policia
+  - policía
   - bondage
   - leather
   - FdD

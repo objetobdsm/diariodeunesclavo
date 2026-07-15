@@ -5,7 +5,7 @@ date: 2022-08-26 04:45:00 +0000
 permalink: /2022/08/fdd-hipermasculinidad.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

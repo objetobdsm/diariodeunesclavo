@@ -5,7 +5,7 @@ date: 2015-04-28 07:56:00 +0000
 permalink: /2015/04/fdd-por-que.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -4,7 +4,7 @@ title: "FdD inversión"
 date: 2012-10-23 06:49:00 +0000
 permalink: /2012/10/fdd-inversion.html
 tags:
-  - policia
+  - policía
   - FdD
 ---
 

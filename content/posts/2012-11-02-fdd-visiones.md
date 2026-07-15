@@ -5,7 +5,7 @@ date: 2012-11-02 08:32:00 +0000
 permalink: /2012/11/fdd-visiones.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

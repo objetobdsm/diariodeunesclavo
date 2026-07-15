@@ -5,7 +5,7 @@ date: 2020-08-22 08:13:00 +0000
 permalink: /2020/08/fdd-lugar-en-el-mundo.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

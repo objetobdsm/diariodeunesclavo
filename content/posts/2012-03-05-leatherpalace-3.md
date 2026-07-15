@@ -4,7 +4,7 @@ title: "leatherpalace 3"
 date: 2012-03-05 13:13:00 +0000
 permalink: /2012/03/leatherpalace-3.html
 tags:
-  - imagenes
+  - imágenes
   - series
   - leather
 ---

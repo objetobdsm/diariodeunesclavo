@@ -4,7 +4,7 @@ title: "FdD privación sensorial, privación de libertad"
 date: 2010-06-29 04:41:00 +0000
 permalink: /2010/06/fdd-privacion-sensorial-privacion-de.html
 tags:
-  - imagenes
+  - imágenes
   - mordazas
   - privación sensorial
 ---

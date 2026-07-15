@@ -6,8 +6,8 @@ permalink: /2017/07/fdd-confirmar.html
 tags:
   - esclavos
   - FdD
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - leather
 ---
 

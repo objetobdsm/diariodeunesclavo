@@ -4,7 +4,7 @@ title: "entre leathermen anda el juego 1"
 date: 2008-09-12 00:25:00 +0000
 permalink: /2008/09/entre-leathermen-anda-el-juego-1.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

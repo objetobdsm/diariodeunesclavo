@@ -6,7 +6,7 @@ permalink: /2017/12/fdd-nuevamente-old-guard.html
 tags:
   - FdD
   - old guard
-  - sumision
+  - sumisión
   - leather
 ---
 

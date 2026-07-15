@@ -5,7 +5,7 @@ date: 2020-04-01 18:45:00 +0000
 permalink: /2020/04/fdd-resistencia.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

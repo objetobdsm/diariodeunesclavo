@@ -6,7 +6,7 @@ permalink: /2018/08/fdd-destilar.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

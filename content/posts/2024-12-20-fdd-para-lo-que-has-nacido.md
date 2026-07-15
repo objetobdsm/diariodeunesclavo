@@ -5,7 +5,7 @@ date: 2024-12-20 10:48:00 +0000
 permalink: /2024/12/fdd-para-lo-que-has-nacido.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

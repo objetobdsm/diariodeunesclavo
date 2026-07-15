@@ -4,7 +4,7 @@ title: "FdD esclavos"
 date: 2010-08-30 06:44:00 +0000
 permalink: /2010/08/fdd-esclavos.html
 tags:
-  - imagenes
+  - imágenes
   - esclavos
 ---
 

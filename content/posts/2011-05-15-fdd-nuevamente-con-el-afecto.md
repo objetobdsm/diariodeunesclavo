@@ -5,7 +5,7 @@ date: 2011-05-15 09:31:00 +0000
 permalink: /2011/05/fdd-nuevamente-con-el-afecto.html
 tags:
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

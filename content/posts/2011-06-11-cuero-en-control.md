@@ -4,7 +4,7 @@ title: "cuero en control"
 date: 2011-06-11 19:06:00 +0000
 permalink: /2011/06/cuero-en-control.html
 tags:
-  - imagenes
+  - imágenes
   - bondage
   - leather
 ---

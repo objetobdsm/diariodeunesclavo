@@ -5,7 +5,7 @@ date: 2013-12-28 08:29:00 +0000
 permalink: /2013/12/fdd-mundos-ii.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

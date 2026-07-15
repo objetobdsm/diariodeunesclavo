@@ -6,7 +6,7 @@ permalink: /2017/04/fdd-obedece.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

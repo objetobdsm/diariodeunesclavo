@@ -4,9 +4,9 @@ title: "cumple con tu deber"
 date: 2011-01-06 16:32:00 +0000
 permalink: /2011/01/cumple-con-tu-deber.html
 tags:
-  - imagenes
-  - dominacion
-  - sumision
+  - imágenes
+  - dominación
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/c8/b9/c8b9e344a469a48e7cf5f114959df5958e66ef69f5fc14624ef4697b8e2cc6e6.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/c8/b9/c8b9e344a469a48e7cf5f114959df5958e66ef69f5fc14624ef4697b8e2cc6e6.jpg" /></a></div><div class="separator" style="clear: both; text-align: center;"><br />

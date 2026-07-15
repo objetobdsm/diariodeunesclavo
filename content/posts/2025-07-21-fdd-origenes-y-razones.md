@@ -6,7 +6,7 @@ permalink: /2025/07/fdd-origenes-y-razones.html
 tags:
   - FdD
   - leather
-  - amos
+  - Amos
   - botas
 ---
 

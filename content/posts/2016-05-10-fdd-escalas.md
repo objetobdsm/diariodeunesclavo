@@ -5,7 +5,7 @@ date: 2016-05-10 09:10:00 +0000
 permalink: /2016/05/fdd-escalas.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

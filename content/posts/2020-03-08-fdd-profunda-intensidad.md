@@ -6,7 +6,7 @@ permalink: /2020/03/fdd-profunda-intensidad.html
 tags:
   - mazmorra
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

@@ -6,7 +6,7 @@ permalink: /2019/08/fdd-besar-las-botas.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

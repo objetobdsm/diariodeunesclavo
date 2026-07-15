@@ -5,7 +5,7 @@ date: 2017-12-21 08:57:00 +0000
 permalink: /2017/12/fdd-dureza.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

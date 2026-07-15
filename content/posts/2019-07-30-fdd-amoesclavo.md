@@ -6,7 +6,7 @@ permalink: /2019/07/fdd-amoesclavo.html
 tags:
   - mordazas
   - FdD
-  - Imagen
+  - imágenes
   - latex
 ---
 

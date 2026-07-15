@@ -4,7 +4,7 @@ title: "cuero en Amo, cuero en esclavo"
 date: 2011-01-21 16:33:00 +0000
 permalink: /2011/01/cuero-en-amo-cuero-en-esclavo.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2010-07-21 08:11:00 +0000
 permalink: /2010/07/una-de-las-primeras.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - capucha
 ---
 

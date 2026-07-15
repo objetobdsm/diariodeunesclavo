@@ -5,7 +5,7 @@ date: 2014-12-04 07:51:00 +0000
 permalink: /2014/12/fdd-tradicion.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

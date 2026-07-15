@@ -5,7 +5,7 @@ date: 2012-02-26 12:51:00 +0000
 permalink: /2012/02/leather-cowboy.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - vaqueros
   - leather
 ---

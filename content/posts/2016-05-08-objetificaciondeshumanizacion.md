@@ -6,7 +6,7 @@ permalink: /2016/05/objetificaciondeshumanizacion.html
 tags:
   - botas
   - objetificación
-  - despersonalizacion
+  - despersonalización
   - videos
   - deshumanización
   - latex

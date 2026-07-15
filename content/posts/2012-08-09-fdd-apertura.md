@@ -4,7 +4,7 @@ title: "FdD apertura"
 date: 2012-08-09 06:21:00 +0000
 permalink: /2012/08/fdd-apertura.html
 tags:
-  - dominacion
+  - dominación
   - FdD
 ---
 

@@ -6,7 +6,7 @@ permalink: /2010/09/mi-cuerpo-no-me-pertenece.html
 tags:
   - control
   - vida real
-  - dominacion
+  - dominación
   - esclavitud
 ---
 

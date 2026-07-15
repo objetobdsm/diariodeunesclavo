@@ -4,7 +4,7 @@ title: "cuero y privación sensorial"
 date: 2010-07-05 12:08:00 +0000
 permalink: /2010/07/cuero-y-privacion-sensorial.html
 tags:
-  - imagenes
+  - imágenes
   - privación sensorial
   - leather
   - capucha

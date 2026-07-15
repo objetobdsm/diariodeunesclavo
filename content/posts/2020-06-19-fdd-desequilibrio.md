@@ -5,9 +5,9 @@ date: 2020-06-19 10:22:00 +0000
 permalink: /2020/06/fdd-desequilibrio.html
 tags:
   - FdD
-  - dominacion
+  - dominación
   - leather
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

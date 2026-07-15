@@ -5,7 +5,7 @@ date: 2014-12-05 07:51:00 +0000
 permalink: /2014/12/fdd-especimenes.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

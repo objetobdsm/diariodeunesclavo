@@ -4,8 +4,8 @@ title: "FdD asimetrías"
 date: 2012-03-01 08:01:00 +0000
 permalink: /2012/03/fdd-asimetrias.html
 tags:
-  - dominacion
-  - sumision
+  - dominación
+  - sumisión
   - FdD
   - jaulas
 ---

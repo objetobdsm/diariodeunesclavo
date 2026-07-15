@@ -6,7 +6,7 @@ permalink: /2014/06/fdd-amos-naturales.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

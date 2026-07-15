@@ -6,7 +6,7 @@ permalink: /2025/01/fdd-escalas.html
 tags:
   - gimp
   - FdD
-  - despersonalizacion
+  - despersonalización
   - deshumanización
   - latex
 ---

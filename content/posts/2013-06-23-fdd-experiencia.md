@@ -5,8 +5,8 @@ date: 2013-06-23 07:47:00 +0000
 permalink: /2013/06/fdd-experiencia.html
 tags:
   - esclavos
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - FdD
 ---
 

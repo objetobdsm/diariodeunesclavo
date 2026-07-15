@@ -6,7 +6,7 @@ permalink: /2020/07/fdd-guiados.html
 tags:
   - FdD
   - leather
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

@@ -5,8 +5,8 @@ date: 2012-05-01 07:22:00 +0000
 permalink: /2012/05/fdd-cuanto-es-suficiente.html
 tags:
   - esclavos
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - FdD
 ---
 

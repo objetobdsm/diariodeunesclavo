@@ -6,7 +6,7 @@ permalink: /2018/08/fdd-muy-sueltos.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - latex
 ---
 

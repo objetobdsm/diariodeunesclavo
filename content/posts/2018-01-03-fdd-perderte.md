@@ -6,7 +6,7 @@ permalink: /2018/01/fdd-perderte.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

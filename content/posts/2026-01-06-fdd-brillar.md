@@ -6,7 +6,7 @@ permalink:
 tags:
   - FdD
   - leather
-  - sumision
+  - sumisión
   - esclavitud voluntaria
   - gimp
   - botas

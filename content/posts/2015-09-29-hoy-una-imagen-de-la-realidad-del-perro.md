@@ -4,7 +4,7 @@ title: "hoy, una imagen de la realidad del perro"
 date: 2015-09-29 15:59:00 +0000
 permalink: /2015/09/hoy-una-imagen-de-la-realidad-del-perro.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - castidad
 ---
 

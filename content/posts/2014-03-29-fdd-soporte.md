@@ -6,7 +6,7 @@ permalink: /2014/03/fdd-soporte.html
 tags:
   - capucha
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

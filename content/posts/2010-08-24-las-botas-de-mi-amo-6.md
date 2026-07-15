@@ -5,7 +5,7 @@ date: 2010-08-24 08:30:00 +0000
 permalink: /2010/08/las-botas-de-mi-amo-6.html
 tags:
   - botas
-  - imagenes propias
+  - imágenes propias
 ---
 
 <div class="separator" style="clear: both; text-align: left;">aún faltaban algunas fotos de las botas de mi AMO así que las voy a publicar hoy y en los próximos días. disfruten viéndolas como yo disfruto lamiéndolas.</div><div class="separator" style="clear: both; text-align: left;"><br />

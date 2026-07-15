@@ -6,7 +6,7 @@ permalink: /2017/12/fdd-chispas-de-futuro.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

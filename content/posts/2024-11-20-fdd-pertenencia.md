@@ -5,7 +5,7 @@ date: 2024-11-20 08:36:00 +0000
 permalink: /2024/11/fdd-pertenencia.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

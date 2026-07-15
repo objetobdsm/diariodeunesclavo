@@ -5,7 +5,7 @@ date: 2013-03-14 07:11:00 +0000
 permalink: /2013/03/fdd-acto-de-sumision.html
 tags:
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

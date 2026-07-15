@@ -4,7 +4,7 @@ title: "FdD íntimo y personal"
 date: 2025-09-08 06:04:00 +0000
 permalink: /2025/09/fdd-intimo-y-personal.html
 tags:
-  - FdD sumision
+  - FdD
   - bdsm
 ---
 

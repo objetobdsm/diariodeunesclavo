@@ -5,7 +5,7 @@ date: 2021-11-16 07:10:00 +0000
 permalink: /2021/11/fdd-realidades.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

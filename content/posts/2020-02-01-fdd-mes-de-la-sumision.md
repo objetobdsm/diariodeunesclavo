@@ -5,7 +5,7 @@ date: 2020-02-01 05:45:00 +0000
 permalink: /2020/02/fdd-mes-de-la-sumision.html
 tags:
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

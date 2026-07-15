@@ -6,9 +6,9 @@ permalink:
 tags:
   - FdD
   - leather
-  - sumision
+  - sumisión
   - bondage
-  - amos
+  - Amos
   - botas
 ---
 ![Foto de dia](/uploads/2026/2026_01/2026_01_07.jpg)

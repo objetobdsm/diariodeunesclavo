@@ -6,7 +6,7 @@ permalink: /2020/05/fdd-ds-y-material.html
 tags:
   - humillación
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

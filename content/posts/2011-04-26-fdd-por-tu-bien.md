@@ -4,7 +4,7 @@ title: "FdD por tu bien"
 date: 2011-04-26 04:11:00 +0000
 permalink: /2011/04/fdd-por-tu-bien.html
 tags:
-  - sumision
+  - sumisión
   - FdD
   - Daddy
 ---

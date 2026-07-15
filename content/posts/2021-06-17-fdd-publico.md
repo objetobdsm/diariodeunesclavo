@@ -5,7 +5,7 @@ date: 2021-06-17 05:30:00 +0000
 permalink: /2021/06/fdd-publico.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

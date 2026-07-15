@@ -5,7 +5,7 @@ date: 2013-02-15 10:15:00 +0000
 permalink: /2013/02/tributo-al-dueno.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - latex
   - internet
 ---

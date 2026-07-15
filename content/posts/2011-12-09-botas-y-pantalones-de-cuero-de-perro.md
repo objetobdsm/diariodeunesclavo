@@ -5,7 +5,7 @@ date: 2011-12-09 16:52:00 +0000
 permalink: /2011/12/botas-y-pantalones-de-cuero-de-perro.html
 tags:
   - botas
-  - imagenes propias
+  - imágenes propias
   - leather
 ---
 

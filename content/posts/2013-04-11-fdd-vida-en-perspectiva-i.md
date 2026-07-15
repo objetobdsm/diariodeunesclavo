@@ -6,7 +6,7 @@ permalink: /2013/04/fdd-vida-en-perspectiva-i.html
 tags:
   - botas
   - bondage
-  - sumision
+  - sumisión
   - FdD
 ---
 

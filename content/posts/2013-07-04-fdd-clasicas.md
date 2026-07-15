@@ -5,8 +5,8 @@ date: 2013-07-04 07:13:00 +0000
 permalink: /2013/07/fdd-clasicas.html
 tags:
   - esclavos
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - FdD
 ---
 

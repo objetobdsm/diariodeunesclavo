@@ -4,8 +4,8 @@ title: "FdD expresar"
 date: 2012-09-10 07:01:00 +0000
 permalink: /2012/09/fdd-expresar.html
 tags:
-  - dominacion
-  - sumision
+  - dominación
+  - sumisión
   - FdD
 ---
 

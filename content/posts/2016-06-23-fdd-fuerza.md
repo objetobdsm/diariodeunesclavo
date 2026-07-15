@@ -5,7 +5,7 @@ date: 2016-06-23 12:14:00 +0000
 permalink: /2016/06/fdd-fuerza.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

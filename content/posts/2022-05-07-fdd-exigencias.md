@@ -6,7 +6,7 @@ permalink: /2022/05/fdd-exigencias.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2013-12-19 08:26:00 +0000
 permalink: /2013/12/fdd-ascension.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

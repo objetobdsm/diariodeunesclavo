@@ -5,7 +5,7 @@ date: 2013-11-25 08:54:00 +0000
 permalink: /2013/11/fdd-tentacion.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

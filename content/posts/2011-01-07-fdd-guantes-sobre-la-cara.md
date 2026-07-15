@@ -4,7 +4,7 @@ title: "FdD guantes sobre la cara"
 date: 2011-01-07 07:55:00 +0000
 permalink: /2011/01/fdd-guantes-sobre-la-cara.html
 tags:
-  - imagenes
+  - imágenes
   - control respiración
   - guantes
   - leather

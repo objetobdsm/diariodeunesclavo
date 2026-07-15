@@ -5,7 +5,7 @@ date: 2015-04-12 09:58:00 +0000
 permalink: /2015/04/fdd-preguntas.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2017-02-12 04:55:00 +0000
 permalink: /2017/02/fdd-entender.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
   - jaulas
 ---

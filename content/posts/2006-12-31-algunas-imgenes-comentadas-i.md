@@ -4,7 +4,7 @@ title: "Imágenes comentadas I"
 date: 2006-12-31 10:27:00 +0000
 permalink: /2006/12/algunas-imgenes-comentadas-i.html
 tags:
-  - imagenes
+  - imágenes
 ---
 
 <br />

@@ -5,7 +5,7 @@ date: 2017-05-23 08:17:00 +0000
 permalink: /2017/05/fdd-cuatro-patas.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -6,7 +6,7 @@ permalink: /2020/04/fdd-cambios.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

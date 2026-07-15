@@ -6,7 +6,7 @@ permalink: /2025/09/fdd-es-real-y-posible.html
 tags:
   - FdD
   - leather
-  - amos
+  - Amos
   - esclavos
 ---
 

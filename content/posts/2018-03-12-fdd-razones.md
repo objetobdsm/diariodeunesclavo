@@ -7,7 +7,7 @@ tags:
   - bondage
   - FdD
   - camisa de fuerza
-  - sumision
+  - sumisión
   - leather
 ---
 

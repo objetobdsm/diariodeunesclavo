@@ -4,7 +4,7 @@ title: "FdD ¿parejas?"
 date: 2010-06-28 04:31:00 +0000
 permalink: /2010/06/fdd-parejas.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

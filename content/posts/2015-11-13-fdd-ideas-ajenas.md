@@ -6,7 +6,7 @@ permalink: /2015/11/fdd-ideas-ajenas.html
 tags:
   - bondage
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

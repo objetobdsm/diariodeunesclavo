@@ -6,8 +6,8 @@ permalink: /2025/02/fdd-el-elemento-clave.html
 tags:
   - esclavos
   - FdD
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2011-05-22 04:30:00 +0000
 permalink: /2011/05/fdd-posibilidades.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

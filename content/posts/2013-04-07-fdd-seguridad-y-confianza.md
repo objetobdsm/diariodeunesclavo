@@ -5,7 +5,7 @@ date: 2013-04-07 07:19:00 +0000
 permalink: /2013/04/fdd-seguridad-y-confianza.html
 tags:
   - humillación
-  - dominacion
+  - dominación
   - leather
   - FdD
 ---

@@ -4,8 +4,8 @@ title: "FdD paciencia"
 date: 2013-02-09 08:48:00 +0000
 permalink: /2013/02/fdd-paciencia.html
 tags:
-  - dominacion
-  - amos
+  - dominación
+  - Amos
   - FdD
 ---
 

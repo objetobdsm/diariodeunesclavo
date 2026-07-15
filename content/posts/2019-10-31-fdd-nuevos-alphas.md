@@ -5,7 +5,7 @@ date: 2019-10-31 12:13:00 +0000
 permalink: /2019/10/fdd-nuevos-alphas.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

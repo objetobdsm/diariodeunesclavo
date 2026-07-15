@@ -4,7 +4,7 @@ title: "a petición... guantes 3"
 date: 2011-04-30 19:09:00 +0000
 permalink: /2011/04/peticion-guantes-3.html
 tags:
-  - imagenes
+  - imágenes
   - guantes
   - mordazas
 ---

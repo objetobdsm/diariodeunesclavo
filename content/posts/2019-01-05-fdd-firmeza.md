@@ -5,7 +5,7 @@ date: 2019-01-05 07:15:00 +0000
 permalink: /2019/01/fdd-firmeza.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

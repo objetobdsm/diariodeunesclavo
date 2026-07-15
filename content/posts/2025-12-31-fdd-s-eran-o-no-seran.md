@@ -6,7 +6,7 @@ permalink:
 tags:
   - FdD
   - leather
-  - amos
+  - Amos
 ---
 ![Foto de dia](/uploads/2025/2025_12/2025_12_31.jpg)
 

@@ -5,7 +5,7 @@ date: 2020-09-02 18:01:00 +0000
 permalink: /2020/09/fdd-iconografia.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

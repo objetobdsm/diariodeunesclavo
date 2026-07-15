@@ -5,7 +5,7 @@ date: 2012-07-23 11:46:00 +0000
 permalink: /2012/07/colin-davis-merece-una-visita.html
 tags:
   - mass media
-  - imagenes
+  - imágenes
   - internet
 ---
 

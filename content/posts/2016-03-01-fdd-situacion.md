@@ -6,7 +6,7 @@ permalink: /2016/03/fdd-situacion.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

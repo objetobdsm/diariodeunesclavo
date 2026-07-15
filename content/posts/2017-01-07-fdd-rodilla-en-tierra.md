@@ -5,7 +5,7 @@ date: 2017-01-07 07:35:00 +0000
 permalink: /2017/01/fdd-rodilla-en-tierra.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

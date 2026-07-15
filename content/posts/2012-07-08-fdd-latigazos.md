@@ -5,7 +5,7 @@ date: 2012-07-08 06:43:00 +0000
 permalink: /2012/07/fdd-latigazos.html
 tags:
   - dolor
-  - dominacion
+  - dominación
   - FdD
 ---
 

@@ -6,7 +6,7 @@ permalink: /2019/06/fdd-violencia.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -4,8 +4,8 @@ title: "FdD Amo en cueros"
 date: 2010-08-03 06:56:00 +0000
 permalink: /2010/08/fdd-amo-en-cueros.html
 tags:
-  - imagenes
-  - amos
+  - imágenes
+  - Amos
   - leather
 ---
 

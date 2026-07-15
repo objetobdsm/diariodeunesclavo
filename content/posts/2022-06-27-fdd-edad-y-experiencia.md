@@ -5,7 +5,7 @@ date: 2022-06-27 08:49:00 +0000
 permalink: /2022/06/fdd-edad-y-experiencia.html
 tags:
   - FdD
-  - policia
+  - policía
   - leather
 ---
 

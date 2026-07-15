@@ -6,7 +6,7 @@ permalink: /2019/02/fdd-humillacion-humildad-servicio.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

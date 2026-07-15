@@ -6,7 +6,7 @@ permalink: /2022/05/fdd-suerte.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

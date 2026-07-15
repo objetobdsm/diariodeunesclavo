@@ -6,7 +6,7 @@ permalink: /2024/10/fdd-placeres-y-obediencia.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

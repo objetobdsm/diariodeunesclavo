@@ -4,9 +4,9 @@ title: "FdD el deseo"
 date: 2010-08-07 20:22:00 +0000
 permalink: /2010/08/fdd-el-deseo.html
 tags:
-  - imagenes
+  - imágenes
   - esclavitud
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/c5/79/c579955891ebe7b02cda048f986446912ce60eb391464ea80036c72943e4c3c5.jpg).jpg" imageanchor="1" style="clear: left; float: left; margin-bottom: 1em; margin-right: 1em;"><img border="0" height="400" src="/uploads/0c/59/0c59695c05c1aa800a66d07f15aead2349ef8ed58446f7e349d420894fac9999.jpg" width="257" /></a></div><br />

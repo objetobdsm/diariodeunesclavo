@@ -5,7 +5,7 @@ date: 2024-09-04 06:53:00 +0000
 permalink: /2024/09/fdd-otono-invierno.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

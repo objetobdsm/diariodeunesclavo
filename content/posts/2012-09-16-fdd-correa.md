@@ -6,7 +6,7 @@ permalink: /2012/09/fdd-correa.html
 tags:
   - bondage
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

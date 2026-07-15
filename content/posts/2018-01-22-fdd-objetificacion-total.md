@@ -5,7 +5,7 @@ date: 2018-01-22 12:43:00 +0000
 permalink: /2018/01/fdd-objetificacion-total.html
 tags:
   - bondage
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - latex

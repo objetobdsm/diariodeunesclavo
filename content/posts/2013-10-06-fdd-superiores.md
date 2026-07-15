@@ -6,7 +6,7 @@ permalink: /2013/10/fdd-superiores.html
 tags:
   - latex
   - capucha
-  - sumision
+  - sumisión
   - FdD
 ---
 

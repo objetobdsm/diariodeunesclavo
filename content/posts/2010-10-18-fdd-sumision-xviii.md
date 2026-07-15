@@ -4,7 +4,7 @@ title: "FdD sumisión XVIII"
 date: 2010-10-18 06:16:00 +0000
 permalink: /2010/10/fdd-sumision-xviii.html
 tags:
-  - imagenes
+  - imágenes
   - leather
   - Daddy
 ---

@@ -4,7 +4,7 @@ title: "FdD más chaps"
 date: 2010-12-01 07:10:00 +0000
 permalink: /2010/12/fdd-mas-chaps.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

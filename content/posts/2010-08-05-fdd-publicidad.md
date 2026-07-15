@@ -4,7 +4,7 @@ title: "FdD publicidad"
 date: 2010-08-05 05:59:00 +0000
 permalink: /2010/08/fdd-publicidad.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

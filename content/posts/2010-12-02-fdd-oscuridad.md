@@ -4,7 +4,7 @@ title: "FdD oscuridad"
 date: 2010-12-02 07:23:00 +0000
 permalink: /2010/12/fdd-oscuridad.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

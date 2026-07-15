@@ -6,7 +6,7 @@ permalink: /2025/07/fdd-vinculos.html
 tags:
   - FdD
   - skins
-  - amos
+  - Amos
   - esclavos
 ---
 

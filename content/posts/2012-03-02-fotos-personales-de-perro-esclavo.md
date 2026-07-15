@@ -5,7 +5,7 @@ date: 2012-03-02 21:30:00 +0000
 permalink: /2012/03/fotos-personales-de-perro-esclavo.html
 tags:
   - botas
-  - imagenes propias
+  - imágenes propias
   - leather
 ---
 

@@ -6,7 +6,7 @@ permalink: /2020/05/fdd-lo-mejor-de-dos.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

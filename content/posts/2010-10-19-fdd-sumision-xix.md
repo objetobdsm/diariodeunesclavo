@@ -5,7 +5,7 @@ date: 2010-10-19 06:18:00 +0000
 permalink: /2010/10/fdd-sumision-xix.html
 tags:
   - control mental
-  - imagenes
+  - imágenes
   - leather
 ---
 

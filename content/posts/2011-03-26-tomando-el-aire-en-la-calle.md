@@ -4,7 +4,7 @@ title: "tomando el aire en la calle"
 date: 2011-03-26 12:13:00 +0000
 permalink: /2011/03/tomando-el-aire-en-la-calle.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

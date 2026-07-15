@@ -6,7 +6,7 @@ permalink: /2015/04/fdd-luz-y-oscuridad.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

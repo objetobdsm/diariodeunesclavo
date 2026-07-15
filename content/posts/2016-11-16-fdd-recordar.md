@@ -6,7 +6,7 @@ permalink: /2016/11/fdd-recordar.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

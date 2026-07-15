@@ -6,10 +6,10 @@ permalink: /2025/04/fdd-sustituir.html
 tags:
   - FdD
   - leather
-  - sumision
+  - sumisión
   - botas
   - guantes
-  - amos
+  - Amos
   - esclavos
 ---
 

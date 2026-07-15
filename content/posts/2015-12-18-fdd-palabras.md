@@ -5,7 +5,7 @@ date: 2015-12-18 10:59:00 +0000
 permalink: /2015/12/fdd-palabras.html
 tags:
   - bondage
-  - despersonalizacion
+  - despersonalización
   - FdD
 ---
 

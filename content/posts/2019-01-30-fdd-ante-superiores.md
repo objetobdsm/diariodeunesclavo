@@ -6,7 +6,7 @@ permalink: /2019/01/fdd-ante-superiores.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -4,7 +4,7 @@ title: "FdD amo en cuero"
 date: 2010-05-15 04:23:00 +0000
 permalink: /2010/05/fdd-amo-en-cuero.html
 tags:
-  - amos
+  - Amos
   - leather
 ---
 

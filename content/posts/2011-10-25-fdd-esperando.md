@@ -5,7 +5,7 @@ date: 2011-10-25 06:49:00 +0000
 permalink: /2011/10/fdd-esperando.html
 tags:
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

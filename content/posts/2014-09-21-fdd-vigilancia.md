@@ -6,7 +6,7 @@ permalink: /2014/09/fdd-vigilancia.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

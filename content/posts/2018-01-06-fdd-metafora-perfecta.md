@@ -6,7 +6,7 @@ permalink: /2018/01/fdd-metafora-perfecta.html
 tags:
   - humillación
   - bondage
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
 ---

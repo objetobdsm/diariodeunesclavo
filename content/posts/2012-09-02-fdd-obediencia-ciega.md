@@ -5,7 +5,7 @@ date: 2012-09-02 07:42:00 +0000
 permalink: /2012/09/fdd-obediencia-ciega.html
 tags:
   - bondage
-  - sumision
+  - sumisión
   - FdD
 ---
 

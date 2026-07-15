@@ -6,7 +6,7 @@ permalink: /2022/07/fdd-anonimato.html
 tags:
   - capucha
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

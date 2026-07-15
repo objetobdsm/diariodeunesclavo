@@ -6,7 +6,7 @@ permalink: /2025/09/fdd-reflejos.html
 tags:
   - FdD
   - sumisión
-  - amos
+  - Amos
   - leather
 ---
 

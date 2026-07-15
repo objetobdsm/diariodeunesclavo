@@ -5,7 +5,7 @@ date: 2013-03-23 09:58:00 +0000
 permalink: /2013/03/fdd-mostrando-sumision.html
 tags:
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

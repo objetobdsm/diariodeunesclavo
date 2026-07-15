@@ -4,7 +4,7 @@ title: "FdD ¿de paseo?"
 date: 2013-05-27 07:18:00 +0000
 permalink: /2013/05/fdd-de-paseo.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

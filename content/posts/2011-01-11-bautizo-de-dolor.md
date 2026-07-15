@@ -5,7 +5,7 @@ date: 2011-01-11 16:28:00 +0000
 permalink: /2011/01/bautizo-de-dolor.html
 tags:
   - dolor
-  - imagenes
+  - imágenes
 ---
 
 <div class="separator" style="clear: both; text-align: center;"><a href="/uploads/ae/77/ae774907d156e8139a61ba03d2d0941bb023edafd5992c9552ccec1700bd1b10.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="/uploads/ae/77/ae774907d156e8139a61ba03d2d0941bb023edafd5992c9552ccec1700bd1b10.jpg" /></a></div><div class="separator" style="clear: both; text-align: right;"><br />

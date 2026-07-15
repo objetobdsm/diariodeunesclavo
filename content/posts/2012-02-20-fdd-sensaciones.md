@@ -4,7 +4,7 @@ title: "FdD sensaciones"
 date: 2012-02-20 08:21:00 +0000
 permalink: /2012/02/fdd-sensaciones.html
 tags:
-  - dominacion
+  - dominación
   - leather
   - FdD
 ---

@@ -5,7 +5,7 @@ date: 2010-07-19 08:45:00 +0000
 permalink: /2010/07/fdd-cuero-vanilla.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - leather
 ---
 

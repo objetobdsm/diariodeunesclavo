@@ -4,7 +4,7 @@ title: "el sueño de cualquier esclavo fetichista"
 date: 2013-09-20 16:25:00 +0000
 permalink: /2013/09/el-sueno-de-cualquier-esclavo-fetichista.html
 tags:
-  - imagenes
+  - imágenes
   - bondage
   - leather
 ---

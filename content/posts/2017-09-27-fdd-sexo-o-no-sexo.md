@@ -5,7 +5,7 @@ date: 2017-09-27 06:54:00 +0000
 permalink: /2017/09/fdd-sexo-o-no-sexo.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

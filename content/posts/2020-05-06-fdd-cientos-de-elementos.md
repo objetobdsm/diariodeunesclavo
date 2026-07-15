@@ -6,7 +6,7 @@ permalink: /2020/05/fdd-cientos-de-elementos.html
 tags:
   - FdD
   - Daddy
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

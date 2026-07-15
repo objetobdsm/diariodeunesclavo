@@ -6,7 +6,7 @@ permalink: /2014/03/fdd-desvelando-la-realidad.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

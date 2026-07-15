@@ -4,7 +4,7 @@ title: "FdD funciones"
 date: 2012-12-17 10:23:00 +0000
 permalink: /2012/12/fdd-funciones.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

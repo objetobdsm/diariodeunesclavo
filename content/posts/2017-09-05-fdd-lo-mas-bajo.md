@@ -5,7 +5,7 @@ date: 2017-09-05 05:13:00 +0000
 permalink: /2017/09/fdd-lo-mas-bajo.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

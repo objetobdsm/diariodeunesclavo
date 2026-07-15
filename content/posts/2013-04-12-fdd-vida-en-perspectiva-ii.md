@@ -5,8 +5,8 @@ date: 2013-04-12 07:29:00 +0000
 permalink: /2013/04/fdd-vida-en-perspectiva-ii.html
 tags:
   - botas
-  - dominacion
-  - sumision
+  - dominación
+  - sumisión
   - FdD
 ---
 

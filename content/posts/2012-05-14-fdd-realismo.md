@@ -4,7 +4,7 @@ title: "FdD realismo"
 date: 2012-05-14 05:44:00 +0000
 permalink: /2012/05/fdd-realismo.html
 tags:
-  - sumision
+  - sumisión
   - FdD
 ---
 

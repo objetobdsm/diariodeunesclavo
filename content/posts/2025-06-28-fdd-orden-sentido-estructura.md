@@ -6,7 +6,7 @@ permalink: /2025/06/fdd-orden-sentido-estructura.html
 tags:
   - FdD
   - leather
-  - sumision
+  - sumisión
   - botas
   - capucha
 ---

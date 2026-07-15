@@ -5,7 +5,7 @@ date: 2019-08-03 09:33:00 +0000
 permalink: /2019/08/fdd-leather-family.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

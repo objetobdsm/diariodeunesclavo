@@ -5,7 +5,7 @@ date: 2012-03-03 07:50:00 +0000
 permalink: /2012/03/fdd-renuncias.html
 tags:
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

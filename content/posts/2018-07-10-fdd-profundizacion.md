@@ -5,7 +5,7 @@ date: 2018-07-10 19:46:00 +0000
 permalink: /2018/07/fdd-profundizacion.html
 tags:
   - bondage
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - leather

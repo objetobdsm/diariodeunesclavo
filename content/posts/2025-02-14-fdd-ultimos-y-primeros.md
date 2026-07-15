@@ -4,7 +4,7 @@ title: "FdD últimos y primeros"
 date: 2025-02-14 07:59:00 +0000
 permalink: /2025/02/fdd-ultimos-y-primeros.html
 tags:
-  - sumision
+  - sumisión
   - gimp
   - FdD
   - latex

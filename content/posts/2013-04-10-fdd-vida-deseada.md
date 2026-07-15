@@ -5,8 +5,8 @@ date: 2013-04-10 07:24:00 +0000
 permalink: /2013/04/fdd-vida-deseada.html
 tags:
   - esclavos
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - FdD
 ---
 

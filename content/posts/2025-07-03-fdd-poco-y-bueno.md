@@ -6,7 +6,7 @@ permalink: /2025/07/fdd-poco-y-bueno.html
 tags:
   - FdD
   - bondage
-  - sumision
+  - sumisión
   - privación sensorial
 ---
 

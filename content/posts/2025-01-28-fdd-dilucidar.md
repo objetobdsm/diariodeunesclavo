@@ -6,7 +6,7 @@ permalink: /2025/01/fdd-dilucidar.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

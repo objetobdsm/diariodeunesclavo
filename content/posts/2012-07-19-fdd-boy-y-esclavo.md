@@ -5,7 +5,7 @@ date: 2012-07-19 06:23:00 +0000
 permalink: /2012/07/fdd-boy-y-esclavo.html
 tags:
   - esclavos
-  - dominacion
+  - dominación
   - FdD
 ---
 

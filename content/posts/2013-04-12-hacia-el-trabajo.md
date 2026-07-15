@@ -4,7 +4,7 @@ title: "hacia el trabajo"
 date: 2013-04-12 16:05:00 +0000
 permalink: /2013/04/hacia-el-trabajo.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - castidad
 ---
 

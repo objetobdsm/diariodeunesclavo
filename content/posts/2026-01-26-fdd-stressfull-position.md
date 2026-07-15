@@ -6,7 +6,7 @@ permalink:
 tags:
   - FdD
   - esclavos
-  - mordaza
+  - mordazas
   - bondage
 ---
 ![Foto de dia](/uploads/2026/2026_01/2026_01_26.jpg)

@@ -6,7 +6,7 @@ permalink: /2017/12/fdd-interseccion.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

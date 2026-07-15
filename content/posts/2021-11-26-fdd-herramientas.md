@@ -5,7 +5,7 @@ date: 2021-11-26 08:00:00 +0000
 permalink: /2021/11/fdd-herramientas.html
 tags:
   - FdD
-  - dominacion
+  - dominación
   - leather
 ---
 

@@ -4,9 +4,9 @@ title: "FdD sumisión XXII"
 date: 2010-10-22 05:40:00 +0000
 permalink: /2010/10/fdd-sumision-xxii.html
 tags:
-  - imagenes
+  - imágenes
   - esclavitud
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/54/04/54040055e208e467732e7981d199c47ebd035f6c97dc634ba9ba798a70451fdf.jpg).jpg" imageanchor="1"><img height="425" src="/uploads/1d/65/1d65c41c7624c3058cced09d7a189e721b78a0e6100a40ae65fd25ff27fb9957.jpg" width="640" border="0" /></a></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><br /></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify">durante la edad media, cuando un vasallo hacía la ceremonia del homenaje, se arrodillaba solemnemente delante de su Señor feudal. éste le cogía las manos y ambos hacían un acuerdo mutuo. el vasallo prometía obediencia, consejo, ayuda en caso de peligro, servicio. a cambio el Señor feudal le entregaba un trozo de tierra, el feudo, que garantizaba la superviviencia del vasallo.</div><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify">esta foto me recuerda esa ceremonia, la vida bdsm me recuerda en cierta media esa idea. los esclavos realizamos un vasallaje, una promesa solemne de entregarnos y someternos a nuestro Señor, en sumisión y obediencia. a cambio el Señor acepta la responsabilidad de nuestra vida, nuestro cuidado y nuestra supervivencia. es una relación simbiótica vinculada por lazos profundos y que obligan a ambas partes. </div><div class="separator" style="CLEAR: both; TEXT-ALIGN: justify">sin embargo la esclavitud va más allá de la relación de vasallaje. es mucho más radical y profunda. no hay posibilidad de reclamación, por ejemplo. el acuerdo de vasallaje se hacía entre dos hombres libres, sólo así podía ser vinculante, pero la relación D/s, al menos la que mantengo con mi AMO no es entre dos hombres libres, es entre un hombre libre y un esclavo. cuando realicé mi acto de sumisión, renuncié a mis derechos en beneficio de mi AMO. si alguna vez los tuve ahora están a los pies de mi AMO, bajo sus botas, para que haga uso de ellos si así le place.</div><div class="separator" style="CLEAR: both; TEXT-ALIGN: center"></div>

@@ -4,7 +4,7 @@ title: "FdD reales"
 date: 2010-12-07 07:30:00 +0000
 permalink: /2010/12/fdd-reales.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

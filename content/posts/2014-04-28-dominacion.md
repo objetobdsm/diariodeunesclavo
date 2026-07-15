@@ -4,9 +4,9 @@ title: "dominación"
 date: 2014-04-28 16:37:00 +0000
 permalink: /2014/04/dominacion.html
 tags:
-  - imagenes propias
-  - dominacion
-  - sumision
+  - imágenes propias
+  - dominación
+  - sumisión
   - leather
 ---
 

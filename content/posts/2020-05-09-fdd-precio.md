@@ -7,7 +7,7 @@ tags:
   - humillación
   - bondage
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

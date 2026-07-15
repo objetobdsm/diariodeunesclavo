@@ -4,7 +4,7 @@ title: "leather salon"
 date: 2011-01-20 16:35:00 +0000
 permalink: /2011/01/leather-salon.html
 tags:
-  - imagenes
+  - imágenes
   - esclavitud
   - leather
 ---

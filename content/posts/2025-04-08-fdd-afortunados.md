@@ -5,7 +5,7 @@ date: 2025-04-08 05:33:00 +0000
 permalink: /2025/04/fdd-afortunados.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - latex
   - leather
   - obediencia

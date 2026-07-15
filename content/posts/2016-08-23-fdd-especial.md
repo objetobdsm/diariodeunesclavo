@@ -6,7 +6,7 @@ permalink: /2016/08/fdd-especial.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

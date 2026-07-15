@@ -4,7 +4,7 @@ title: "FdD fashion"
 date: 2010-11-07 07:35:00 +0000
 permalink: /2010/11/fdd-fashion.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

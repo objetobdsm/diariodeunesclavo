@@ -6,7 +6,7 @@ permalink: /2016/06/fdd-para-por-y-gracias.html
 tags:
   - esclavos
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

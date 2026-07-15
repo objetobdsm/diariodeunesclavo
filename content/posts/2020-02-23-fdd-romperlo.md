@@ -6,7 +6,7 @@ permalink: /2020/02/fdd-romperlo.html
 tags:
   - FdD
   - esclavitud voluntaria
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

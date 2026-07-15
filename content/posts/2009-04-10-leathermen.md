@@ -4,7 +4,7 @@ title: "leathermen"
 date: 2009-04-10 02:21:00 +0000
 permalink: /2009/04/leathermen.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

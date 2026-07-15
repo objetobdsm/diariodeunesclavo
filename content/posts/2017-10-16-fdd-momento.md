@@ -5,7 +5,7 @@ date: 2017-10-16 06:15:00 +0000
 permalink: /2017/10/fdd-momento.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

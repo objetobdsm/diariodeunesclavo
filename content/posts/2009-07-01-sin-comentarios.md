@@ -4,7 +4,7 @@ title: "sin comentarios"
 date: 2009-07-01 07:49:00 +0000
 permalink: /2009/07/sin-comentarios.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

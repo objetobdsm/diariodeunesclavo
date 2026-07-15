@@ -6,7 +6,7 @@ permalink: /2016/04/fdd-nirvana.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

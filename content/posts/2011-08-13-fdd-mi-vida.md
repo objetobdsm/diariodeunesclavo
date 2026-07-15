@@ -4,7 +4,7 @@ title: "FdD mi vida"
 date: 2011-08-13 06:58:00 +0000
 permalink: /2011/08/fdd-mi-vida.html
 tags:
-  - sumision
+  - sumisión
   - FdD
 ---
 

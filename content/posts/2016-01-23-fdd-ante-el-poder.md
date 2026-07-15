@@ -5,7 +5,7 @@ date: 2016-01-23 09:49:00 +0000
 permalink: /2016/01/fdd-ante-el-poder.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

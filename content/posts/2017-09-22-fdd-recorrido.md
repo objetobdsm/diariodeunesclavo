@@ -6,7 +6,7 @@ permalink: /2017/09/fdd-recorrido.html
 tags:
   - FdD
   - dog-training
-  - sumision
+  - sumisión
   - leather
 ---
 

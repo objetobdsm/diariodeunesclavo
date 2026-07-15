@@ -6,7 +6,7 @@ permalink: /2011/02/una-nueva-existencia.html
 tags:
   - esclavitud
   - vida real
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="CLEAR: both; TEXT-ALIGN: center"><a style="MARGIN-LEFT: 1em; MARGIN-RIGHT: 1em" href="/uploads/ae/05/ae05d1079c4388f2b2f77124cf830b8a5c412c9b393af4afc8bcc72c571b8215.jpg" imageanchor="1"><img src="/uploads/ae/05/ae05d1079c4388f2b2f77124cf830b8a5c412c9b393af4afc8bcc72c571b8215.jpg" border="0" /></a></div><div class="separator" style="CLEAR: both; TEXT-ALIGN: center">

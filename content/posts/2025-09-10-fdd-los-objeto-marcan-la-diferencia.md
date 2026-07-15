@@ -5,7 +5,7 @@ date: 2025-09-10 05:49:00 +0000
 permalink: /2025/09/fdd-los-objeto-marcan-la-diferencia.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - bdsm
 ---
 

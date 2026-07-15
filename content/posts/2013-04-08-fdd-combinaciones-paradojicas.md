@@ -4,7 +4,7 @@ title: "FdD combinaciones paradójicas"
 date: 2013-04-08 07:21:00 +0000
 permalink: /2013/04/fdd-combinaciones-paradojicas.html
 tags:
-  - amos
+  - Amos
   - leather
   - FdD
 ---

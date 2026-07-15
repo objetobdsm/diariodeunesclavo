@@ -6,7 +6,7 @@ permalink: /2025/02/fdd-fortaleza.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

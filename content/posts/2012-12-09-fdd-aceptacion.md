@@ -5,7 +5,7 @@ date: 2012-12-09 09:55:00 +0000
 permalink: /2012/12/fdd-aceptacion.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

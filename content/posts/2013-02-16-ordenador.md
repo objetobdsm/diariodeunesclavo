@@ -4,7 +4,7 @@ title: "ordeñador"
 date: 2013-02-16 18:17:00 +0000
 permalink: /2013/02/ordenador.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - ordeños
 ---
 

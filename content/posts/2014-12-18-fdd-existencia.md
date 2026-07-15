@@ -5,7 +5,7 @@ date: 2014-12-18 07:26:00 +0000
 permalink: /2014/12/fdd-existencia.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

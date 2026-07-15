@@ -5,7 +5,7 @@ date: 2020-07-17 17:09:00 +0000
 permalink: /2020/07/fdd-identidad.html
 tags:
   - FdD
-  - despersonalizacion
+  - despersonalización
   - deshumanización
   - latex
 ---

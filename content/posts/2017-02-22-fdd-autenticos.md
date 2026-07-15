@@ -5,7 +5,7 @@ date: 2017-02-22 07:35:00 +0000
 permalink: /2017/02/fdd-autenticos.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

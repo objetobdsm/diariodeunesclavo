@@ -5,8 +5,8 @@ date: 2015-11-14 07:06:00 +0000
 permalink: /2015/11/fdd-no-estamos-solos.html
 tags:
   - FdD
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - leather
 ---
 

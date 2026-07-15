@@ -4,7 +4,7 @@ title: "lthr abrazo"
 date: 2009-11-30 14:51:00 +0000
 permalink: /2009/11/lthr-abrazo.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

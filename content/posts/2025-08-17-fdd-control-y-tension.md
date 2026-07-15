@@ -6,7 +6,7 @@ permalink: /2025/08/fdd-control-y-tension.html
 tags:
   - FdD
   - humillación
-  - sumision
+  - sumisión
   - esclavos
 ---
 

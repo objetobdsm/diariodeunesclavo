@@ -6,7 +6,7 @@ permalink: /2019/06/fdd-oscuro-y-tenebroso.html
 tags:
   - capucha
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

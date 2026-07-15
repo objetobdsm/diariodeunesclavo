@@ -5,7 +5,7 @@ date: 2011-09-23 05:45:00 +0000
 permalink: /2011/09/fdd-ternura.html
 tags:
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

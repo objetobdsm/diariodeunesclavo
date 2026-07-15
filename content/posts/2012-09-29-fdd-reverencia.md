@@ -5,7 +5,7 @@ date: 2012-09-29 06:54:00 +0000
 permalink: /2012/09/fdd-reverencia.html
 tags:
   - bondage
-  - sumision
+  - sumisión
   - FdD
 ---
 

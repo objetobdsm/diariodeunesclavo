@@ -5,7 +5,7 @@ date: 2014-07-17 09:33:00 +0000
 permalink: /2014/07/fdd-enjaulado.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
   - jaulas
 ---

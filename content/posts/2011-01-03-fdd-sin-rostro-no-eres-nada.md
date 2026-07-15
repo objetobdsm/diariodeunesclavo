@@ -4,7 +4,7 @@ title: "FdD sin rostro no eres nada"
 date: 2011-01-03 07:04:00 +0000
 permalink: /2011/01/fdd-sin-rostro-no-eres-nada.html
 tags:
-  - imagenes
+  - imágenes
   - leather
   - capucha
 ---

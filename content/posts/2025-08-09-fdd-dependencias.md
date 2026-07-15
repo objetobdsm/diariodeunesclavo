@@ -5,7 +5,7 @@ date: 2025-08-09 09:12:00 +0000
 permalink: /2025/08/fdd-dependencias.html
 tags:
   - FdD
-  - amos
+  - Amos
   - esclavos
   - leather
   - botas

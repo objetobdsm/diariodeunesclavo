@@ -5,7 +5,7 @@ date: 2008-09-22 07:48:00 +0000
 permalink: /2008/09/en-la-moto-de-mi-amo-xxii.html
 tags:
   - dolor
-  - dominacion
+  - dominación
   - ficción propia
 ---
 

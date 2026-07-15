@@ -5,8 +5,8 @@ date: 2025-09-07 09:21:00 +0000
 permalink: /2025/09/fdd-dominacion-y-sumision.html
 tags:
   - FdD
-  - dominacion
-  - sumision
+  - dominación
+  - sumisión
   - bdsm
   - control
 ---

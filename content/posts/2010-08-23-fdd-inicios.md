@@ -4,7 +4,7 @@ title: "FdD inicios"
 date: 2010-08-23 07:24:00 +0000
 permalink: /2010/08/fdd-inicios.html
 tags:
-  - imagenes
+  - imágenes
   - bondage
   - leather
 ---

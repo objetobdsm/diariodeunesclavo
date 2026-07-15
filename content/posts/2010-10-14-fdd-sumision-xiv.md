@@ -4,7 +4,7 @@ title: "FdD sumisión XIV"
 date: 2010-10-14 06:12:00 +0000
 permalink: /2010/10/fdd-sumision-xiv.html
 tags:
-  - imagenes
+  - imágenes
   - control respiración
 ---
 

@@ -4,7 +4,7 @@ title: "leathercowboy"
 date: 2007-12-21 05:50:00 +0000
 permalink: /2007/12/leathercowboy.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

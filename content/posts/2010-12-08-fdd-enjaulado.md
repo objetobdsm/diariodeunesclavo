@@ -4,7 +4,7 @@ title: "FdD enjaulado"
 date: 2010-12-08 07:32:00 +0000
 permalink: /2010/12/fdd-enjaulado.html
 tags:
-  - imagenes
+  - imágenes
   - jaulas
 ---
 

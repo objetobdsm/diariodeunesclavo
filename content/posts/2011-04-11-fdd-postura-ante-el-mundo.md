@@ -5,7 +5,7 @@ date: 2011-04-11 04:03:00 +0000
 permalink: /2011/04/fdd-postura-ante-el-mundo.html
 tags:
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

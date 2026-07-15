@@ -6,7 +6,7 @@ permalink: /2018/05/fdd-suplir.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

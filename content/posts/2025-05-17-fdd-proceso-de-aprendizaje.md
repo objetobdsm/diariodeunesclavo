@@ -6,7 +6,7 @@ permalink: /2025/05/fdd-proceso-de-aprendizaje.html
 tags:
   - FdD
   - cadenas
-  - sumision
+  - sumisión
   - esclavos
 ---
 

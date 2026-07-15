@@ -5,8 +5,8 @@ date: 2012-11-01 07:32:00 +0000
 permalink: /2012/11/fdd-nuevo-orden.html
 tags:
   - esclavos
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - FdD
 ---
 

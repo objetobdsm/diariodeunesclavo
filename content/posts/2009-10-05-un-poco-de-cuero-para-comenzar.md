@@ -4,7 +4,7 @@ title: "un poco de cuero para comenzar"
 date: 2009-10-05 04:24:00 +0000
 permalink: /2009/10/un-poco-de-cuero-para-comenzar.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

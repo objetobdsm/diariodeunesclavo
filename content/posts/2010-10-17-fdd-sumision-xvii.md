@@ -4,7 +4,7 @@ title: "FdD sumisión XVII"
 date: 2010-10-17 06:14:00 +0000
 permalink: /2010/10/fdd-sumision-xvii.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

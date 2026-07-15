@@ -5,7 +5,7 @@ date: 2022-12-06 17:55:00 +0000
 permalink: /2022/12/fdd-de-caza.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

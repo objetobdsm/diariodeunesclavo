@@ -5,7 +5,7 @@ date: 2021-12-06 13:49:00 +0000
 permalink: /2021/12/fdd-busqueda.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -4,8 +4,8 @@ title: "sumiso y dócil"
 date: 2011-04-27 11:29:00 +0000
 permalink: /2011/04/sumiso-y-docil.html
 tags:
-  - teoria
-  - dominacion
+  - teoría
+  - dominación
 ---
 
 <div style="text-align: justify;">navegando por internet me encontré con este texto. son consejos que da un Ama a otras Amas sobre como ejercer la dominación masculina. me pareció tan interesante que creo que merece la pena publicarlo. son todas las entradas de un blog corto, pero que ojalá no se hubiera detenido. para los lectores gays del blog basta hacer un ligero cambio de género. me lo planteé hacer pero consideré que eso sería "violar" un poco el texto. a este esclavo le ha gustado mucho y cree que no tiene desperdicio:</div><br />

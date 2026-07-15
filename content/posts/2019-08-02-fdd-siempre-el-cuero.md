@@ -5,7 +5,7 @@ date: 2019-08-02 09:33:00 +0000
 permalink: /2019/08/fdd-siempre-el-cuero.html
 tags:
   - FdD
-  - Imagen
+  - imágenes
   - leather
 ---
 

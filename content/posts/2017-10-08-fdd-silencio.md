@@ -6,7 +6,7 @@ permalink: /2017/10/fdd-silencio.html
 tags:
   - guantes
   - FdD
-  - dominacion
+  - dominación
   - leather
 ---
 

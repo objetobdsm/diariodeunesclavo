@@ -6,7 +6,7 @@ permalink: /2013/09/fdd-pisando.html
 tags:
   - skins
   - botas
-  - sumision
+  - sumisión
   - FdD
 ---
 

@@ -4,7 +4,7 @@ title: "FdD nuevamente un gimp"
 date: 2019-02-25 18:55:00 +0000
 permalink: /2019/02/fdd-nuevamente-un-gimp.html
 tags:
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - leather

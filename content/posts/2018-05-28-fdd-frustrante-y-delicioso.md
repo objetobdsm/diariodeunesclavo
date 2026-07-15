@@ -6,7 +6,7 @@ permalink: /2018/05/fdd-frustrante-y-delicioso.html
 tags:
   - bondage
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

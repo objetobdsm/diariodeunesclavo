@@ -6,7 +6,7 @@ permalink: /2011/02/fdd-la-casa-del-senor.html
 tags:
   - esclavos
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

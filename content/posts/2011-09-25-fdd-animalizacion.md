@@ -4,7 +4,7 @@ title: "FdD animalización"
 date: 2011-09-25 06:35:00 +0000
 permalink: /2011/09/fdd-animalizacion.html
 tags:
-  - sumision
+  - sumisión
   - FdD
 ---
 

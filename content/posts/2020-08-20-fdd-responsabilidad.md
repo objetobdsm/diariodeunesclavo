@@ -6,7 +6,7 @@ permalink: /2020/08/fdd-responsabilidad.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

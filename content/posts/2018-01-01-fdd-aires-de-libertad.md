@@ -6,7 +6,7 @@ permalink: /2018/01/fdd-aires-de-libertad.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

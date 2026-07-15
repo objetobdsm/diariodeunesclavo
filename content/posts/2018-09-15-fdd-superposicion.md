@@ -6,7 +6,7 @@ permalink: /2018/09/fdd-superposicion.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

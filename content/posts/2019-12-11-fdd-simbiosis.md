@@ -6,7 +6,7 @@ permalink: /2019/12/fdd-simbiosis.html
 tags:
   - FdD
   - leather
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

@@ -5,7 +5,7 @@ date: 2015-08-31 05:49:00 +0000
 permalink: /2015/08/fdd-satisfacer-sin-recibir.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2015-12-16 10:58:00 +0000
 permalink: /2015/12/fdd-naturalezas.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

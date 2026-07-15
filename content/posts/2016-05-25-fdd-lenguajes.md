@@ -5,7 +5,7 @@ date: 2016-05-25 07:57:00 +0000
 permalink: /2016/05/fdd-lenguajes.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

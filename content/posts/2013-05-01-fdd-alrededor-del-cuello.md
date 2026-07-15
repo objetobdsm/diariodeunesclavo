@@ -5,8 +5,8 @@ date: 2013-05-01 07:51:00 +0000
 permalink: /2013/05/fdd-alrededor-del-cuello.html
 tags:
   - esclavos
-  - amos
-  - sumision
+  - Amos
+  - sumisión
   - FdD
 ---
 

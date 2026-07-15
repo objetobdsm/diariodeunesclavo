@@ -6,7 +6,7 @@ permalink: /2023/01/fdd-valor-del-control.html
 tags:
   - bondage
   - FdD
-  - despersonalizacion
+  - despersonalización
   - deshumanización
   - leather
 ---

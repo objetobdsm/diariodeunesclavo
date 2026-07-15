@@ -5,7 +5,7 @@ date: 2024-09-02 00:44:00 +0000
 permalink: /2024/09/fdd-esclavo-encubierto.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

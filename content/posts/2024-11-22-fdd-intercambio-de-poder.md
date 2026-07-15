@@ -5,7 +5,7 @@ date: 2024-11-22 08:55:00 +0000
 permalink: /2024/11/fdd-intercambio-de-poder.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2017-04-06 13:12:00 +0000
 permalink: /2017/04/fdd-autentica-naturaleza.html
 tags:
   - objetificación
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
   - latex

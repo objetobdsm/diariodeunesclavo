@@ -4,7 +4,7 @@ title: "FdD encuerado"
 date: 2010-06-08 06:34:00 +0000
 permalink: /2010/06/fdd-encuerado_08.html
 tags:
-  - amos
+  - Amos
   - leather
 ---
 

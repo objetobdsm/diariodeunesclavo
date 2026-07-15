@@ -5,7 +5,7 @@ date: 2017-07-13 07:06:00 +0000
 permalink: /2017/07/fdd-callejones.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2025-05-15 08:00:00 +0000
 permalink: /2025/05/fdd-sosteniendo.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - esclavos
 ---
 

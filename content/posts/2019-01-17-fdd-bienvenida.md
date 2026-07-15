@@ -6,7 +6,7 @@ permalink: /2019/01/fdd-bienvenida.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

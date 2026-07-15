@@ -6,7 +6,7 @@ permalink: /2012/07/fdd-dolores.html
 tags:
   - dolor
   - esclavos
-  - amos
+  - Amos
   - FdD
 ---
 

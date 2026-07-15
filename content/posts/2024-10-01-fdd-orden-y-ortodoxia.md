@@ -5,7 +5,7 @@ date: 2024-10-01 02:52:00 +0000
 permalink: /2024/10/fdd-orden-y-ortodoxia.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

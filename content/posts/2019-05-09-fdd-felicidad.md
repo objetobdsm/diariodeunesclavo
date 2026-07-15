@@ -6,7 +6,7 @@ permalink: /2019/05/fdd-felicidad.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

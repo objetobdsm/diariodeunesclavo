@@ -4,7 +4,7 @@ title: "instrumentos de tortura"
 date: 2012-08-03 11:45:00 +0000
 permalink: /2012/08/instrumentos-de-tortura.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - tortura
 ---
 

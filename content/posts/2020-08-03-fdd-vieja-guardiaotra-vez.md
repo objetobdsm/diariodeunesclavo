@@ -5,7 +5,7 @@ date: 2020-08-03 01:51:00 +0000
 permalink: /2020/08/fdd-vieja-guardiaotra-vez.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

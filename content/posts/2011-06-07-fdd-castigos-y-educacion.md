@@ -7,7 +7,7 @@ tags:
   - botas
   - castigo
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

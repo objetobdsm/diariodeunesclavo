@@ -4,7 +4,7 @@ title: "FdD arneses"
 date: 2010-07-16 08:42:00 +0000
 permalink: /2010/07/fdd-arneses.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

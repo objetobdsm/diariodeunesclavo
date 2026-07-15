@@ -4,7 +4,7 @@ title: "FdD sujeción"
 date: 2012-06-03 06:01:00 +0000
 permalink: /2012/06/fdd-sujecion.html
 tags:
-  - dominacion
+  - dominación
   - bondage
   - leather
   - FdD

@@ -5,7 +5,7 @@ date: 2015-07-13 07:53:00 +0000
 permalink: /2015/07/fdd-momentos-especiales.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

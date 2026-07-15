@@ -5,7 +5,7 @@ date: 2011-11-22 06:38:00 +0000
 permalink: /2011/11/fdd-conducido.html
 tags:
   - esclavos
-  - sumision
+  - sumisión
   - FdD
 ---
 

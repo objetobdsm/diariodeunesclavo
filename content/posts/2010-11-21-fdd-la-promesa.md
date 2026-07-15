@@ -4,7 +4,7 @@ title: "FdD la promesa"
 date: 2010-11-21 07:55:00 +0000
 permalink: /2010/11/fdd-la-promesa.html
 tags:
-  - imagenes
+  - imágenes
   - bondage
   - esclavitud
   - jaulas

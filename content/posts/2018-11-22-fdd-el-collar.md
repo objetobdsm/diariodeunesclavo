@@ -5,7 +5,7 @@ date: 2018-11-22 05:54:00 +0000
 permalink: /2018/11/fdd-el-collar.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

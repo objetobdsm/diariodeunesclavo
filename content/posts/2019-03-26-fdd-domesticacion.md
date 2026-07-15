@@ -4,7 +4,7 @@ title: "FdD domesticación"
 date: 2019-03-26 08:32:00 +0000
 permalink: /2019/03/fdd-domesticacion.html
 tags:
-  - despersonalizacion
+  - despersonalización
   - FdD
   - jaulas
 ---

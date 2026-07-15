@@ -4,7 +4,7 @@ title: "FdD auténticos"
 date: 2010-05-26 04:47:00 +0000
 permalink: /2010/05/fdd-autenticos.html
 tags:
-  - amos
+  - Amos
   - leather
 ---
 

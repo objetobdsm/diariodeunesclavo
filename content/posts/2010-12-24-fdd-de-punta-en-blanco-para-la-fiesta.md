@@ -4,7 +4,7 @@ title: "FdD de punta en blanco para la fiesta"
 date: 2010-12-24 05:57:00 +0000
 permalink: /2010/12/fdd-de-punta-en-blanco-para-la-fiesta.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

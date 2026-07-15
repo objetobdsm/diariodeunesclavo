@@ -6,7 +6,7 @@ permalink: /2011/10/fdd-soy-menos-que-el-suelo-que-pisa-mi.html
 tags:
   - botas
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

@@ -5,7 +5,7 @@ date: 2011-12-17 08:47:00 +0000
 permalink: /2011/12/fdd-contraluz.html
 tags:
   - esclavos
-  - sumision
+  - sumisión
   - FdD
 ---
 

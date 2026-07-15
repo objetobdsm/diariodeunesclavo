@@ -5,7 +5,7 @@ date: 2016-10-24 07:34:00 +0000
 permalink: /2016/10/fdd-filosofia.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

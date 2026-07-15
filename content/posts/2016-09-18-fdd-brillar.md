@@ -5,7 +5,7 @@ date: 2016-09-18 06:18:00 +0000
 permalink: /2016/09/fdd-brillar.html
 tags:
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

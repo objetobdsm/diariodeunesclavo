@@ -5,7 +5,7 @@ date: 2018-06-26 10:27:00 +0000
 permalink: /2018/06/fdd-es-un-arte.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2013-07-27 08:31:00 +0000
 permalink: /2013/07/fdd-sumision.html
 tags:
   - esclavos
-  - amos
+  - Amos
   - leather
   - FdD
 ---

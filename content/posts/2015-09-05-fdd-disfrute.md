@@ -6,7 +6,7 @@ permalink: /2015/09/fdd-disfrute.html
 tags:
   - FdD
   - latex
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -4,7 +4,7 @@ title: "estado ideal"
 date: 2013-09-27 13:42:00 +0000
 permalink: /2013/09/estado-ideal.html
 tags:
-  - imagenes
+  - imágenes
   - bondage
   - leather
 ---

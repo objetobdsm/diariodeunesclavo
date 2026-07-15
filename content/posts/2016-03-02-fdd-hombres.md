@@ -7,7 +7,7 @@ tags:
   - botas
   - objetificación
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2010-03-28 22:07:00 +0000
 permalink: /2010/03/vision-de-esclavo2.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - leather
 ---
 

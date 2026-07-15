@@ -6,7 +6,7 @@ permalink: /2015/01/fdd-temores.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

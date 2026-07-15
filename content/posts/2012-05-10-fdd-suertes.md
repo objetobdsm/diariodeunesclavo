@@ -5,7 +5,7 @@ date: 2012-05-10 05:33:00 +0000
 permalink: /2012/05/fdd-suertes.html
 tags:
   - bondage
-  - sumision
+  - sumisión
   - FdD
 ---
 

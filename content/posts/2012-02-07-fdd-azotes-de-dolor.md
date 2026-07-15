@@ -5,7 +5,7 @@ date: 2012-02-07 07:39:00 +0000
 permalink: /2012/02/fdd-azotes-de-dolor.html
 tags:
   - dolor
-  - amos
+  - Amos
   - leather
   - FdD
 ---

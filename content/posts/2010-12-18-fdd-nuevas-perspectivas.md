@@ -4,8 +4,8 @@ title: "FdD nuevas perspectivas"
 date: 2010-12-18 07:32:00 +0000
 permalink: /2010/12/fdd-nuevas-perspectivas.html
 tags:
-  - imagenes
-  - dominacion
+  - imágenes
+  - dominación
   - leather
 ---
 

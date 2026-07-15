@@ -5,7 +5,7 @@ date: 2016-11-23 07:37:00 +0000
 permalink: /2016/11/fdd-sombras.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

@@ -5,7 +5,7 @@ date: 2011-02-06 23:22:00 +0000
 permalink: /2011/02/botas-diario-y-todo-el-dia.html
 tags:
   - botas
-  - imagenes propias
+  - imágenes propias
 ---
 
 <div class="separator" style="clear: both; text-align: justify;">ayer tuve todo el día con las botas puestas, pero no las negras, sino las marrones. era su estreno y cumplieron su función a la perfección. son un poco más grandes que las negras y el pie está más suelto, pero protegen del frio, del agua, y sobre todo tienen ese mismo sonido al pisar sobre el suelo. llevar botas ya no es sólo un placer, es una obligación para este esclavo porque ese es el deseo de su AMO. este esclavo sabe que cuando lleva botas, está cumpliendo Sus deseos, Sus órdenes, y se realiza como cumiso y como esclavo.</div><div class="separator" style="clear: both; text-align: center;"><br />

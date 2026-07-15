@@ -6,7 +6,7 @@ permalink: /2018/04/fdd-controlado-hasta-el-extremo.html
 tags:
   - bondage
   - objetificación
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
 ---

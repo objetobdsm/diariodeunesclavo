@@ -4,7 +4,7 @@ title: "FdD nuevos contrastes"
 date: 2012-10-04 06:48:00 +0000
 permalink: /2012/10/fdd-nuevos-contrastes.html
 tags:
-  - amos
+  - Amos
   - FdD
 ---
 

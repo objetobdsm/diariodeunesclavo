@@ -5,7 +5,7 @@ date: 2009-08-29 04:16:00 +0000
 permalink: /2009/08/lthr-y-botas-la-combinacion-perfecta.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - leather
 ---
 

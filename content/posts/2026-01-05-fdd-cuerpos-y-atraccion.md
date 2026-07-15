@@ -6,9 +6,9 @@ permalink:
 tags:
   - FdD
   - leather
-  - sumision
+  - sumisión
   - esclavitud voluntaria
-  - amos
+  - Amos
 ---
 ![Foto de dia](/uploads/2026/2026_01/2026_01_05.jpg)
 

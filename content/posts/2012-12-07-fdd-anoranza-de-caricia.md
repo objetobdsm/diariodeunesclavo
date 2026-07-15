@@ -5,7 +5,7 @@ date: 2012-12-07 08:03:00 +0000
 permalink: /2012/12/fdd-anoranza-de-caricia.html
 tags:
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

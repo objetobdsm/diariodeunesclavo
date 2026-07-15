@@ -5,7 +5,7 @@ date: 2019-11-23 18:21:00 +0000
 permalink: /2019/11/fdd-propiedad.html
 tags:
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

@@ -6,7 +6,7 @@ permalink: /2016/05/fdd-orden-y-control.html
 tags:
   - botas
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

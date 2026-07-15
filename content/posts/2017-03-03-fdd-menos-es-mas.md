@@ -5,7 +5,7 @@ date: 2017-03-03 07:12:00 +0000
 permalink: /2017/03/fdd-menos-es-mas.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

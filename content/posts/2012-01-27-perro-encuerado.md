@@ -4,7 +4,7 @@ title: "perro encuerado"
 date: 2012-01-27 19:50:00 +0000
 permalink: /2012/01/perro-encuerado.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - leather
   - capucha
 ---

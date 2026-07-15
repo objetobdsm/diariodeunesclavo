@@ -7,7 +7,7 @@ tags:
   - bondage
   - mazmorra
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

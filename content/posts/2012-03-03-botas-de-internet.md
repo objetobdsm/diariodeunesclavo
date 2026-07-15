@@ -5,7 +5,7 @@ date: 2012-03-03 15:30:00 +0000
 permalink: /2012/03/botas-de-internet.html
 tags:
   - botas
-  - imagenes
+  - imágenes
   - internet
 ---
 

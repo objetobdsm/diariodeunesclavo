@@ -6,7 +6,7 @@ permalink: /2014/10/fdd-en-sesion.html
 tags:
   - bondage
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

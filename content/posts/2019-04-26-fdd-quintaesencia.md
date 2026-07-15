@@ -5,8 +5,8 @@ date: 2019-04-26 08:51:00 +0000
 permalink: /2019/04/fdd-quintaesencia.html
 tags:
   - FdD
-  - dominacion
-  - sumision
+  - dominación
+  - sumisión
   - leather
 ---
 

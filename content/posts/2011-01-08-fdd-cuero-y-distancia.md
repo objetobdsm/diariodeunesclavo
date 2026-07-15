@@ -4,9 +4,9 @@ title: "FdD cuero y distancia"
 date: 2011-01-08 07:58:00 +0000
 permalink: /2011/01/fdd-cuero-y-distancia.html
 tags:
-  - imagenes
+  - imágenes
   - castigo
-  - amos
+  - Amos
   - leather
 ---
 

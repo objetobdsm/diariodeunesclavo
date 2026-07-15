@@ -4,7 +4,7 @@ title: "la naturaleza del objeto"
 date: 2021-12-28 15:14:00 +0000
 permalink: /2021/12/la-naturaleza-del-objeto.html
 tags:
-  - imagenes propias
+  - imágenes propias
   - castidad
 ---
 

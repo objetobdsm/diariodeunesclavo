@@ -6,7 +6,7 @@ permalink: /2012/03/fdd-honrando-al-amo.html
 tags:
   - botas
   - leather
-  - sumision
+  - sumisión
   - FdD
 ---
 

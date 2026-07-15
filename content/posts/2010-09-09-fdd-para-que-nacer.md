@@ -4,7 +4,7 @@ title: "FdD ¿para qué nacer?"
 date: 2010-09-09 06:54:00 +0000
 permalink: /2010/09/fdd-para-que-nacer.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

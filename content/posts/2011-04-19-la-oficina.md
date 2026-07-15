@@ -4,7 +4,7 @@ title: "a la oficina."
 date: 2011-04-19 20:23:00 +0000
 permalink: /2011/04/la-oficina.html
 tags:
-  - imagenes
+  - imágenes
   - leather
 ---
 

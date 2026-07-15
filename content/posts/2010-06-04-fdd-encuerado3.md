@@ -4,7 +4,7 @@ title: "FdD encuerado3"
 date: 2010-06-04 04:26:00 +0000
 permalink: /2010/06/fdd-encuerado3.html
 tags:
-  - dominacion
+  - dominación
   - leather
 ---
 

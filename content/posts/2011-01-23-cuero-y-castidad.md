@@ -4,7 +4,7 @@ title: "cuero y castidad"
 date: 2011-01-23 16:42:00 +0000
 permalink: /2011/01/cuero-y-castidad.html
 tags:
-  - imagenes
+  - imágenes
   - castidad
 ---
 

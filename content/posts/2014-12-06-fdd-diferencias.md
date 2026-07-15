@@ -6,7 +6,7 @@ permalink: /2014/12/fdd-diferencias.html
 tags:
   - botas
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

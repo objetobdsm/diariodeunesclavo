@@ -4,7 +4,7 @@ title: "FdD latex y bondage"
 date: 2010-06-20 04:21:00 +0000
 permalink: /2010/06/fdd-latex-y-bondage.html
 tags:
-  - imagenes
+  - imágenes
   - latex
   - bondage
 ---

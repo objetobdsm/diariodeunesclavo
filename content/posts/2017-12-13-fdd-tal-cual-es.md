@@ -5,7 +5,7 @@ date: 2017-12-13 07:05:00 +0000
 permalink: /2017/12/fdd-tal-cual-es.html
 tags:
   - capucha
-  - despersonalizacion
+  - despersonalización
   - FdD
   - deshumanización
 ---

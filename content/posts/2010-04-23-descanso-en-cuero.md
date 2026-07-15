@@ -4,7 +4,7 @@ title: "descanso en cuero"
 date: 2010-04-23 04:47:00 +0000
 permalink: /2010/04/descanso-en-cuero.html
 tags:
-  - imagenes
+  - imágenes
   - vida real
 ---
 

@@ -6,7 +6,7 @@ permalink: /2024/09/fdd-sufrimiento-y-placer.html
 tags:
   - bondage
   - FdD
-  - sumision
+  - sumisión
   - privación sensorial
 ---
 

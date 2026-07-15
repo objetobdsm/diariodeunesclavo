@@ -6,7 +6,7 @@ permalink: /2025/07/fdd-perfecta-complementariedad.html
 tags:
   - FdD
   - leather
-  - amos
+  - Amos
   - esclavos
   - esclavitud voluntaria
 ---

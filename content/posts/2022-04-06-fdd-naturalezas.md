@@ -5,7 +5,7 @@ date: 2022-04-06 09:42:00 +0000
 permalink: /2022/04/fdd-naturalezas.html
 tags:
   - FdD
-  - amos
+  - Amos
   - latex
 ---
 

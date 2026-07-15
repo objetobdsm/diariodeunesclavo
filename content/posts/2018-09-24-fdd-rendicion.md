@@ -6,7 +6,7 @@ permalink: /2018/09/fdd-rendicion.html
 tags:
   - esclavos
   - FdD
-  - amos
+  - Amos
   - leather
 ---
 

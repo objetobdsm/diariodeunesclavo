@@ -4,7 +4,7 @@ title: "FdD pasiones"
 date: 2013-07-25 07:28:00 +0000
 permalink: /2013/07/fdd-pasiones.html
 tags:
-  - dominacion
+  - dominación
   - mordazas
   - FdD
 ---

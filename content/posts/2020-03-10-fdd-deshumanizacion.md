@@ -5,7 +5,7 @@ date: 2020-03-10 19:10:00 +0000
 permalink: /2020/03/fdd-deshumanizacion.html
 tags:
   - FdD
-  - despersonalizacion
+  - despersonalización
   - deshumanización
   - leather
 ---

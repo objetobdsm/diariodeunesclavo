@@ -6,7 +6,7 @@ permalink: /2025/05/fdd-respeto-y-violencia.html
 tags:
   - FdD
   - leather
-  - amos
+  - Amos
   - esclavos
 ---
 

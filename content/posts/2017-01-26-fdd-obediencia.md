@@ -5,7 +5,7 @@ date: 2017-01-26 05:45:00 +0000
 permalink: /2017/01/fdd-obediencia.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

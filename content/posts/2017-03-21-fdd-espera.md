@@ -5,7 +5,7 @@ date: 2017-03-21 05:32:00 +0000
 permalink: /2017/03/fdd-espera.html
 tags:
   - bondage
-  - despersonalizacion
+  - despersonalización
   - FdD
   - privación sensorial
   - leather

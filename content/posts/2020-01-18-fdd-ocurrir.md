@@ -6,7 +6,7 @@ permalink: /2020/01/fdd-ocurrir.html
 tags:
   - guantes
   - FdD
-  - sumision
+  - sumisión
 ---
 
 <div class="separator" style="clear: both; text-align: center;">

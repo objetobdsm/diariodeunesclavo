@@ -4,7 +4,7 @@ title: "FdD bautizo 2"
 date: 2010-07-08 08:26:00 +0000
 permalink: /2010/07/fdd-bautizo-2.html
 tags:
-  - imagenes
+  - imágenes
   - vida real
   - esclavos
 ---

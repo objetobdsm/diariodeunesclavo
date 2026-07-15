@@ -5,7 +5,7 @@ date: 2015-09-11 08:43:00 +0000
 permalink: /2015/09/fdd-transmision.html
 tags:
   - FdD
-  - sumision
+  - sumisión
   - leather
 ---
 

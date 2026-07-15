@@ -6,7 +6,7 @@ permalink: /2014/12/fdd-merecimiento.html
 tags:
   - bondage
   - FdD
-  - momificacion
+  - momificación
   - leather
 ---
 
