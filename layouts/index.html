@@ -25,7 +25,7 @@
       </h3>
 
       <p class="post-date">
-        {{ .Date.Format "2 January 2006" }}
+        {{ partial "fecha.html" .Date }}
       </p>
 
       {{ with .Plain }}
