@@ -1,43 +1,230 @@
 {{ define "main" }}
+<div class="archivo-container">
 
-<article class="page">
+  <h1 class="archivo-titulo">{{ .Title }}</h1>
 
-  <h1>{{ .Title }}</h1>
+  {{ if .Content }}
+    <div class="archivo-intro">{{ .Content }}</div>
+  {{ end }}
 
-  <div class="page-content">
+  {{ $meses := slice "Enero" "Febrero" "Marzo" "Abril" "Mayo" "Junio" "Julio" "Agosto" "Septiembre" "Octubre" "Noviembre" "Diciembre" }}
 
-    {{ .Content }}
-
-    {{ $pages := where site.RegularPages "Section" "posts" }}
-    {{ $years := slice }}
-
-    {{ range $pages }}
-      {{ $year := .Date.Format "2006" }}
-      {{ if not (in $years $year) }}
-        {{ $years = $years | append $year }}
+  <!-- Lista de años en horizontal -->
+  <div class="archivo-anios">
+    {{ range $i, $yearGroup := (.Site.RegularPages.GroupByDate "2006") }}
+      {{ $year := $yearGroup.Key }}
+      {{ if ne $year "0001" }}
+        <button type="button"
+                class="archivo-anio-btn"
+                onclick="archivoToggleAnio('{{ $year }}')"
+                id="btn-anio-{{ $year }}">
+          {{ $year }}
+        </button>
       {{ end }}
     {{ end }}
-
-    {{ $sorted := sort $years "value" "desc" }}
-
-    <nav class="archivo-years">
-
-      {{ range $i, $year := $sorted }}
-        <a href="#" class="archivo-year" data-year="{{ $year }}">{{ $year }}</a>{{ if lt $i (sub (len $sorted) 1) }} · {{ end }}
-      {{ end }}
-
-    </nav>
-
-    <div id="archivo-content">
-
-      <p class="archivo-placeholder">
-        selecciona un año.
-      </p>
-
-    </div>
-
   </div>
 
-</article>
+  <!-- Contenido por año (oculto por defecto) -->
+  {{ range .Site.RegularPages.GroupByDate "2006" }}
+    {{ $year := .Key }}
+    {{ if ne $year "0001" }}
+    <div class="archivo-anio-bloque" id="bloque-anio-{{ $year }}" style="display:none;">
 
+      <!-- Meses de ese año -->
+      <div class="archivo-meses">
+        {{ range .Pages.GroupByDate "2006-01" }}
+          {{ $monthKey := .Key }}                     {{/* ej: 2024-03 */}}
+          {{ $parts := split $monthKey "-" }}
+          {{ $monthNumStr := index $parts 1 }}
+          {{ $monthNumClean := $monthNumStr | strings.TrimLeft "0" }}
+          {{ if eq $monthNumClean "" }}{{ $monthNumClean = "0" }}{{ end }}
+          {{ $monthNum := $monthNumClean | int }}
+          {{ $monthName := index $meses (sub $monthNum 1) }}
+          {{ $count := len .Pages }}
+          {{ $monthId := printf "%s-%s" (index $parts 0) $monthNumStr }}
+
+          <button type="button"
+                  class="archivo-mes-btn"
+                  onclick="archivoToggleMes('{{ $monthId }}')"
+                  id="btn-mes-{{ $monthId }}">
+            {{ $monthName }} <span class="archivo-contador">({{ $count }})</span>
+          </button>
+        {{ end }}
+      </div>
+
+      <!-- Entradas de cada mes de ese año (ocultas por defecto) -->
+      {{ range .Pages.GroupByDate "2006-01" }}
+        {{ $monthKey := .Key }}
+        {{ $parts := split $monthKey "-" }}
+        {{ $monthNumStr := index $parts 1 }}
+        {{ $monthId := printf "%s-%s" (index $parts 0) $monthNumStr }}
+
+        <div class="archivo-mes-bloque" id="bloque-mes-{{ $monthId }}" style="display:none;">
+          <ul class="archivo-lista-entradas">
+            {{ range .Pages }}
+              <li>
+                <a href="{{ .RelPermalink }}">{{ .Title }}</a>
+                <time datetime="{{ .Date.Format "2006-01-02" }}">
+                  {{ .Date.Format "02/01/2006" }}
+                </time>
+              </li>
+            {{ end }}
+          </ul>
+        </div>
+      {{ end }}
+
+    </div>
+    {{ end }}
+  {{ end }}
+
+</div>
+
+<style>
+  .archivo-container {
+    max-width: 800px;
+    margin: 0 auto;
+    font-family: Georgia, "Times New Roman", serif;
+    color: #e8e3d8;
+  }
+
+  .archivo-anios {
+    display: flex;
+    flex-wrap: wrap;
+    gap: 0.5rem;
+    margin: 1.5rem 0;
+  }
+
+  .archivo-anio-btn {
+    padding: 0.5rem 1.2rem;
+    border: 1px solid #2b3440;
+    border-radius: 6px;
+    background: #11151b;
+    color: #e8e3d8;
+    cursor: pointer;
+    font-family: Georgia, "Times New Roman", serif;
+    font-size: 1rem;
+    transition: background 0.2s ease, border-color 0.2s ease;
+  }
+
+  .archivo-anio-btn:hover,
+  .archivo-anio-btn.activo {
+    background: #1c232d;
+    border-color: #d6c39a;
+    color: #efe0bc;
+  }
+
+  .archivo-anio-bloque {
+    margin-bottom: 2rem;
+    padding-left: 0.5rem;
+    border-left: 2px solid #2b3440;
+  }
+
+  .archivo-meses {
+    display: flex;
+    flex-wrap: wrap;
+    gap: 0.5rem;
+    margin: 1rem 0;
+  }
+
+  .archivo-mes-btn {
+    padding: 0.4rem 0.9rem;
+    border: 1px solid #2b3440;
+    border-radius: 5px;
+    background: #11151b;
+    color: #e8e3d8;
+    cursor: pointer;
+    font-family: Georgia, "Times New Roman", serif;
+    font-size: 0.95rem;
+    transition: background 0.2s ease, border-color 0.2s ease;
+  }
+
+  .archivo-mes-btn:hover,
+  .archivo-mes-btn.activo {
+    background: #1c232d;
+    border-color: #d6c39a;
+    color: #efe0bc;
+  }
+
+  .archivo-contador {
+    font-size: 0.85rem;
+    color: #9ea7b3;
+  }
+
+  .archivo-mes-bloque {
+    margin: 0.5rem 0 1.5rem 0.5rem;
+  }
+
+  .archivo-lista-entradas {
+    list-style: none;
+    padding: 0;
+    margin: 0;
+  }
+
+  .archivo-lista-entradas li {
+    display: flex;
+    justify-content: space-between;
+    gap: 1rem;
+    padding: 0.3rem 0;
+    border-bottom: 1px dashed #2b3440;
+  }
+
+  .archivo-lista-entradas a {
+    color: #d6c39a;
+  }
+
+  .archivo-lista-entradas a:hover {
+    color: #efe0bc;
+  }
+
+  .archivo-lista-entradas time {
+    color: #9ea7b3;
+    font-size: 0.85rem;
+    white-space: nowrap;
+  }
+</style>
+
+<script>
+  // Muestra/oculta el bloque de un año. Si ya estaba abierto, lo cierra.
+  function archivoToggleAnio(anio) {
+    var bloque = document.getElementById('bloque-anio-' + anio);
+    var boton = document.getElementById('btn-anio-' + anio);
+    if (!bloque) return;
+
+    var abierto = bloque.style.display !== 'none';
+
+    document.querySelectorAll('.archivo-anio-bloque').forEach(function (el) {
+      el.style.display = 'none';
+    });
+    document.querySelectorAll('.archivo-anio-btn').forEach(function (btn) {
+      btn.classList.remove('activo');
+    });
+
+    if (!abierto) {
+      bloque.style.display = 'block';
+      if (boton) boton.classList.add('activo');
+    }
+  }
+
+  // Muestra/oculta el bloque de un mes dentro del año visible.
+  function archivoToggleMes(monthId) {
+    var bloque = document.getElementById('bloque-mes-' + monthId);
+    var boton = document.getElementById('btn-mes-' + monthId);
+    if (!bloque) return;
+
+    var abierto = bloque.style.display !== 'none';
+
+    var anio = monthId.split('-')[0];
+    document.querySelectorAll('[id^="bloque-mes-' + anio + '-"]').forEach(function (el) {
+      el.style.display = 'none';
+    });
+    document.querySelectorAll('[id^="btn-mes-' + anio + '-"]').forEach(function (btn) {
+      btn.classList.remove('activo');
+    });
+
+    if (!abierto) {
+      bloque.style.display = 'block';
+      if (boton) boton.classList.add('activo');
+    }
+  }
+</script>
 {{ end }}

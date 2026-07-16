@@ -4,26 +4,51 @@
 
   <h1>{{ .Title }}</h1>
 
+<p style="color:red;font-size:2rem;">PRUEBA ARCHIVO</p>
+
   {{ .Content }}
 
-  <nav class="topic-map">
+  {{ $posts := where site.RegularPages "Section" "posts" }}
 
-    {{ $pages := where site.RegularPages "Section" "posts" }}
+  {{ range ($posts.GroupByDate "2006") }}
 
-    {{ range ($pages.GroupByDate "2006") }}
+    <details class="archive-year">
 
-      <a href="/posts/#{{ .Key }}">
+      <summary>
         {{ .Key }}
         <span>({{ len .Pages }})</span>
-      </a>
+      </summary>
 
-      {{ if ne .Key "2000" }}
-        <span class="topic-separator">·</span>
+      {{ range (.Pages.GroupByDate "January") }}
+
+        <details class="archive-month">
+
+          <summary>
+            {{ .Key }}
+            <span>({{ len .Pages }})</span>
+          </summary>
+
+          <ul>
+
+            {{ range .Pages.ByDate.Reverse }}
+
+              <li>
+                <a href="{{ .RelPermalink }}">
+                  {{ .Date.Format "02" }} · {{ .Title }}
+                </a>
+              </li>
+
+            {{ end }}
+
+          </ul>
+
+        </details>
+
       {{ end }}
 
-    {{ end }}
+    </details>
 
-  </nav>
+  {{ end }}
 
 </article>
 
